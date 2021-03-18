@@ -57,7 +57,7 @@
 1. [中方敦促美国立即停止侵犯人权](https://s.weibo.com/weibo?q=%E4%B8%AD%E6%96%B9%E6%95%A6%E4%BF%83%E7%BE%8E%E5%9B%BD%E7%AB%8B%E5%8D%B3%E5%81%9C%E6%AD%A2%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83&Refer=top) `755.9K 🔥`
 1. [河北武安铁矿瞒报6人死亡事故](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E6%AD%A6%E5%AE%89%E9%93%81%E7%9F%BF%E7%9E%92%E6%8A%A56%E4%BA%BA%E6%AD%BB%E4%BA%A1%E4%BA%8B%E6%95%85%23&Refer=top) `755.5K 🔥`
 
-数据更新于 2021-03-18 16:34:11
+数据更新于 2021-03-18 16:51:01
 
 <!-- END -->
 
