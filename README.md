@@ -55,9 +55,9 @@
 1. [杨丞琳发文表白姐姐们](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B8%9E%E7%90%B3%E5%8F%91%E6%96%87%E8%A1%A8%E7%99%BD%E5%A7%90%E5%A7%90%E4%BB%AC%23&Refer=top) `170.8K 🔥`
 1. [欧冠抽签](https://s.weibo.com/weibo?q=%E6%AC%A7%E5%86%A0%E6%8A%BD%E7%AD%BE&Refer=top) `149.0K 🔥`
 1. [怎么看待年轻人立遗嘱](https://s.weibo.com/weibo?q=%E6%80%8E%E4%B9%88%E7%9C%8B%E5%BE%85%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%AB%8B%E9%81%97%E5%98%B1&Refer=top) `100.3K 🔥`
-1. [被火烧钢琴吓到的邓紫棋](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%81%AB%E7%83%A7%E9%92%A2%E7%90%B4%E5%90%93%E5%88%B0%E7%9A%84%E9%82%93%E7%B4%AB%E6%A3%8B%23&Refer=top) `84.7K 🔥`
+1. [柠檬身价暴涨](https://s.weibo.com/weibo?q=%E6%9F%A0%E6%AA%AC%E8%BA%AB%E4%BB%B7%E6%9A%B4%E6%B6%A8&Refer=top) `94.6K 🔥`
 
-数据更新于 2021-03-20 03:24:20
+数据更新于 2021-03-20 03:32:15
 
 <!-- END -->
 
