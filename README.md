@@ -50,14 +50,14 @@
 1. [合肥心形公路走一圈13.14公里](https://s.weibo.com/weibo?q=%23%E5%90%88%E8%82%A5%E5%BF%83%E5%BD%A2%E5%85%AC%E8%B7%AF%E8%B5%B0%E4%B8%80%E5%9C%8813.14%E5%85%AC%E9%87%8C%23&Refer=top) `607.6K 🔥`
 1. [程晨](https://s.weibo.com/weibo?q=%E7%A8%8B%E6%99%A8&Refer=top) `603.6K 🔥`
 1. [很贵但绝对很值的东西](https://s.weibo.com/weibo?q=%23%E5%BE%88%E8%B4%B5%E4%BD%86%E7%BB%9D%E5%AF%B9%E5%BE%88%E5%80%BC%E7%9A%84%E4%B8%9C%E8%A5%BF%23&Refer=top) `602.7K 🔥`
+1. [除非让爸爸也改名叫鲑鱼](https://s.weibo.com/weibo?q=%E9%99%A4%E9%9D%9E%E8%AE%A9%E7%88%B8%E7%88%B8%E4%B9%9F%E6%94%B9%E5%90%8D%E5%8F%AB%E9%B2%91%E9%B1%BC&Refer=top) `578.1K 🔥`
 1. [女子打110点小龙虾要求加辣](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%89%93110%E7%82%B9%E5%B0%8F%E9%BE%99%E8%99%BE%E8%A6%81%E6%B1%82%E5%8A%A0%E8%BE%A3%23&Refer=top) `574.7K 🔥`
+1. [深圳男子遭家暴申请人身保护令](https://s.weibo.com/weibo?q=%E6%B7%B1%E5%9C%B3%E7%94%B7%E5%AD%90%E9%81%AD%E5%AE%B6%E6%9A%B4%E7%94%B3%E8%AF%B7%E4%BA%BA%E8%BA%AB%E4%BF%9D%E6%8A%A4%E4%BB%A4&Refer=top) `555.8K 🔥`
 1. [西虹市首富涉侵权案开庭](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E8%99%B9%E5%B8%82%E9%A6%96%E5%AF%8C%E6%B6%89%E4%BE%B5%E6%9D%83%E6%A1%88%E5%BC%80%E5%BA%AD%23&Refer=top) `554.1K 🔥`
 1. [显卡价格暴涨](https://s.weibo.com/weibo?q=%E6%98%BE%E5%8D%A1%E4%BB%B7%E6%A0%BC%E6%9A%B4%E6%B6%A8&Refer=top) `547.8K 🔥`
 1. [广东一幼儿园校车与货车相撞](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%B8%9C%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E6%A0%A1%E8%BD%A6%E4%B8%8E%E8%B4%A7%E8%BD%A6%E7%9B%B8%E6%92%9E&Refer=top) `535.8K 🔥`
-1. [东南大学樱花教室](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%A8%B1%E8%8A%B1%E6%95%99%E5%AE%A4%23&Refer=top) `513.8K 🔥`
-1. [张艺兴学拖拉机](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%AD%A6%E6%8B%96%E6%8B%89%E6%9C%BA%23&Refer=top) `505.5K 🔥`
 
-数据更新于 2021-03-19 14:54:14
+数据更新于 2021-03-19 15:00:09
 
 <!-- END -->
 
