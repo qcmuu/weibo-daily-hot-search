@@ -40,10 +40,13 @@
 1. [青你3第一次排名](https://s.weibo.com/weibo?q=%23%E9%9D%92%E4%BD%A03%E7%AC%AC%E4%B8%80%E6%AC%A1%E6%8E%92%E5%90%8D%23&Refer=top) `1.4M 🔥`
 1. [警方通报女子被丈夫掌掴23次后吐血](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%A5%B3%E5%AD%90%E8%A2%AB%E4%B8%88%E5%A4%AB%E6%8E%8C%E6%8E%B423%E6%AC%A1%E5%90%8E%E5%90%90%E8%A1%80%23&Refer=top) `1.4M 🔥`
 1. [三星堆亡国宝器掩埋说可能性降低](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E4%BA%A1%E5%9B%BD%E5%AE%9D%E5%99%A8%E6%8E%A9%E5%9F%8B%E8%AF%B4%E5%8F%AF%E8%83%BD%E6%80%A7%E9%99%8D%E4%BD%8E%23&Refer=top) `1.3M 🔥`
+1. [三星堆是外星文明吗](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E6%98%AF%E5%A4%96%E6%98%9F%E6%96%87%E6%98%8E%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [我的1919 我们的2021](https://s.weibo.com/weibo?q=%E6%88%91%E7%9A%841919%20%E6%88%91%E4%BB%AC%E7%9A%842021&Refer=top) `1.2M 🔥`
 1. [西安确诊病例接种疫苗后感染](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E6%84%9F%E6%9F%93%23&Refer=top) `1.1M 🔥`
+1. [山河令](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4&Refer=top) `1.1M 🔥`
+1. [被金靖李佳琦笑死](https://s.weibo.com/weibo?q=%E8%A2%AB%E9%87%91%E9%9D%96%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%AC%91%E6%AD%BB&Refer=top) `1.1M 🔥`
+1. [李宇春从春晚赶去大厂](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%87%E6%98%A5%E4%BB%8E%E6%98%A5%E6%99%9A%E8%B5%B6%E5%8E%BB%E5%A4%A7%E5%8E%82%23&Refer=top) `1.1M 🔥`
 1. [俄外交部发言人盛赞杨洁篪强硬回应](https://s.weibo.com/weibo?q=%23%E4%BF%84%E5%A4%96%E4%BA%A4%E9%83%A8%E5%8F%91%E8%A8%80%E4%BA%BA%E7%9B%9B%E8%B5%9E%E6%9D%A8%E6%B4%81%E7%AF%AA%E5%BC%BA%E7%A1%AC%E5%9B%9E%E5%BA%94%23&Refer=top) `1.0M 🔥`
-1. [山河令](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4&Refer=top) `1.0M 🔥`
 1. [仅约3成医学毕业生拿到执业资格证](https://s.weibo.com/weibo?q=%23%E4%BB%85%E7%BA%A63%E6%88%90%E5%8C%BB%E5%AD%A6%E6%AF%95%E4%B8%9A%E7%94%9F%E6%8B%BF%E5%88%B0%E6%89%A7%E4%B8%9A%E8%B5%84%E6%A0%BC%E8%AF%81%23&Refer=top) `1.0M 🔥`
 1. [2分钟速览中美高层战略对话首日](https://s.weibo.com/weibo?q=%232%E5%88%86%E9%92%9F%E9%80%9F%E8%A7%88%E4%B8%AD%E7%BE%8E%E9%AB%98%E5%B1%82%E6%88%98%E7%95%A5%E5%AF%B9%E8%AF%9D%E9%A6%96%E6%97%A5%23&Refer=top) `1.0M 🔥`
 1. [创造营排名](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5%E6%8E%92%E5%90%8D&Refer=top) `1.0M 🔥`
@@ -53,11 +56,8 @@
 1. [南派三叔](https://s.weibo.com/weibo?q=%E5%8D%97%E6%B4%BE%E4%B8%89%E5%8F%94&Refer=top) `959.0K 🔥`
 1. [林依轮被助理忽悠拍西湖游客照](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BE%9D%E8%BD%AE%E8%A2%AB%E5%8A%A9%E7%90%86%E5%BF%BD%E6%82%A0%E6%8B%8D%E8%A5%BF%E6%B9%96%E6%B8%B8%E5%AE%A2%E7%85%A7%23&Refer=top) `953.1K 🔥`
 1. [刘宇宁 出了76首歌1首都没火](https://s.weibo.com/weibo?q=%E5%88%98%E5%AE%87%E5%AE%81%20%E5%87%BA%E4%BA%8676%E9%A6%96%E6%AD%8C1%E9%A6%96%E9%83%BD%E6%B2%A1%E7%81%AB&Refer=top) `947.6K 🔥`
-1. [厦门坠海直升机上4人全部遇难](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E9%97%A8%E5%9D%A0%E6%B5%B7%E7%9B%B4%E5%8D%87%E6%9C%BA%E4%B8%8A4%E4%BA%BA%E5%85%A8%E9%83%A8%E9%81%87%E9%9A%BE%23&Refer=top) `947.2K 🔥`
-1. [三星堆遗址出土500余件重要文物](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E9%81%97%E5%9D%80%E5%87%BA%E5%9C%9F500%E4%BD%99%E4%BB%B6%E9%87%8D%E8%A6%81%E6%96%87%E7%89%A9%23&Refer=top) `940.8K 🔥`
-1. [雅思](https://s.weibo.com/weibo?q=%E9%9B%85%E6%80%9D&Refer=top) `938.7K 🔥`
 
-数据更新于 2021-03-20 22:06:16
+数据更新于 2021-03-20 22:30:36
 
 <!-- END -->
 
