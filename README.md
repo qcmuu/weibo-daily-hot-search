@@ -19,8 +19,8 @@
 1. [张哲瀚说自己只有一块大肚腩](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E8%AF%B4%E8%87%AA%E5%B7%B1%E5%8F%AA%E6%9C%89%E4%B8%80%E5%9D%97%E5%A4%A7%E8%82%9A%E8%85%A9%23&Refer=top) `1.6M 🔥`
 1. [中美对话美方紫头发翻译被吐槽](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%BE%8E%E5%AF%B9%E8%AF%9D%E7%BE%8E%E6%96%B9%E7%B4%AB%E5%A4%B4%E5%8F%91%E7%BF%BB%E8%AF%91%E8%A2%AB%E5%90%90%E6%A7%BD%23&Refer=top) `1.5M 🔥`
 1. [利老师休想逃](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%80%81%E5%B8%88%E4%BC%91%E6%83%B3%E9%80%83%23&Refer=top) `1.5M 🔥`
-1. [迪丽热巴小名是迪丽喇叭吧](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%B0%8F%E5%90%8D%E6%98%AF%E8%BF%AA%E4%B8%BD%E5%96%87%E5%8F%AD%E5%90%A7%23&Refer=top) `1.4M 🔥`
 1. [青你初C没进出道位](https://s.weibo.com/weibo?q=%23%E9%9D%92%E4%BD%A0%E5%88%9DC%E6%B2%A1%E8%BF%9B%E5%87%BA%E9%81%93%E4%BD%8D%23&Refer=top) `1.4M 🔥`
+1. [迪丽热巴小名是迪丽喇叭吧](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%B0%8F%E5%90%8D%E6%98%AF%E8%BF%AA%E4%B8%BD%E5%96%87%E5%8F%AD%E5%90%A7%23&Refer=top) `1.4M 🔥`
 1. [苹果iPhone生产可能面临中断风险](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9CiPhone%E7%94%9F%E4%BA%A7%E5%8F%AF%E8%83%BD%E9%9D%A2%E4%B8%B4%E4%B8%AD%E6%96%AD%E9%A3%8E%E9%99%A9%23&Refer=top) `1.4M 🔥`
 1. [连淮伟说没想到粉丝脱粉这么快](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%B7%AE%E4%BC%9F%E8%AF%B4%E6%B2%A1%E6%83%B3%E5%88%B0%E7%B2%89%E4%B8%9D%E8%84%B1%E7%B2%89%E8%BF%99%E4%B9%88%E5%BF%AB%23&Refer=top) `1.2M 🔥`
 1. [老鼠侵袭澳大利亚](https://s.weibo.com/weibo?q=%E8%80%81%E9%BC%A0%E4%BE%B5%E8%A2%AD%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [女子忘拉手刹闺蜜帮踩油门致连环撞车](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E5%BF%98%E6%8B%89%E6%89%8B%E5%88%B9%E9%97%BA%E8%9C%9C%E5%B8%AE%E8%B8%A9%E6%B2%B9%E9%97%A8%E8%87%B4%E8%BF%9E%E7%8E%AF%E6%92%9E%E8%BD%A6&Refer=top) `561.4K 🔥`
 1. [和马](https://s.weibo.com/weibo?q=%E5%92%8C%E9%A9%AC&Refer=top) `559.0K 🔥`
 
-数据更新于 2021-03-21 13:57:16
+数据更新于 2021-03-21 14:17:18
 
 <!-- END -->
 
