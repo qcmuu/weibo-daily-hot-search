@@ -8,9 +8,9 @@
 
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `8.6M 🔥`
 1. [淘宝下架HM商品](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E4%B8%8B%E6%9E%B6HM%E5%95%86%E5%93%81%23&Refer=top) `7.6M 🔥`
+1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `7.2M 🔥`
 1. [姚明明道歉](https://s.weibo.com/weibo?q=%E5%A7%9A%E6%98%8E%E6%98%8E%E9%81%93%E6%AD%89&Refer=top) `7.1M 🔥`
 1. [黄轩终止与HM合作](https://s.weibo.com/weibo?q=%23%E9%BB%84%E8%BD%A9%E7%BB%88%E6%AD%A2%E4%B8%8EHM%E5%90%88%E4%BD%9C%23&Refer=top) `6.4M 🔥`
-1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `6.2M 🔥`
 1. [新疆雪白的棉花](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%9B%AA%E7%99%BD%E7%9A%84%E6%A3%89%E8%8A%B1%23&Refer=top) `5.8M 🔥`
 1. [养母称未见到姚策最后一面](https://s.weibo.com/weibo?q=%23%E5%85%BB%E6%AF%8D%E7%A7%B0%E6%9C%AA%E8%A7%81%E5%88%B0%E5%A7%9A%E7%AD%96%E6%9C%80%E5%90%8E%E4%B8%80%E9%9D%A2%23&Refer=top) `5.1M 🔥`
 1. [华春莹表示五眼联盟显然搞错了时代](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E8%A1%A8%E7%A4%BA%E4%BA%94%E7%9C%BC%E8%81%94%E7%9B%9F%E6%98%BE%E7%84%B6%E6%90%9E%E9%94%99%E4%BA%86%E6%97%B6%E4%BB%A3%23&Refer=top) `4.8M 🔥`
@@ -57,7 +57,7 @@
 1. [张哲瀚工作室微博评论](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%23&Refer=top) `1.6M 🔥`
 1. [国产樱桃身价碾压进口车厘子](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%BA%A7%E6%A8%B1%E6%A1%83%E8%BA%AB%E4%BB%B7%E7%A2%BE%E5%8E%8B%E8%BF%9B%E5%8F%A3%E8%BD%A6%E5%8E%98%E5%AD%90%23&Refer=top) `1.6M 🔥`
 
-数据更新于 2021-03-24 22:52:14
+数据更新于 2021-03-24 22:58:09
 
 <!-- END -->
 
