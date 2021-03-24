@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [淘宝下架HM商品](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E4%B8%8B%E6%9E%B6HM%E5%95%86%E5%93%81%23&Refer=top) `7.4M 🔥`
+1. [淘宝下架HM商品](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E4%B8%8B%E6%9E%B6HM%E5%95%86%E5%93%81%23&Refer=top) `7.6M 🔥`
 1. [姚明明道歉](https://s.weibo.com/weibo?q=%E5%A7%9A%E6%98%8E%E6%98%8E%E9%81%93%E6%AD%89&Refer=top) `7.1M 🔥`
 1. [黄轩终止与HM合作](https://s.weibo.com/weibo?q=%23%E9%BB%84%E8%BD%A9%E7%BB%88%E6%AD%A2%E4%B8%8EHM%E5%90%88%E4%BD%9C%23&Refer=top) `6.4M 🔥`
 1. [养母称未见到姚策最后一面](https://s.weibo.com/weibo?q=%23%E5%85%BB%E6%AF%8D%E7%A7%B0%E6%9C%AA%E8%A7%81%E5%88%B0%E5%A7%9A%E7%AD%96%E6%9C%80%E5%90%8E%E4%B8%80%E9%9D%A2%23&Refer=top) `5.1M 🔥`
@@ -22,6 +22,7 @@
 1. [尾号55555手机号120万拍出](https://s.weibo.com/weibo?q=%23%E5%B0%BE%E5%8F%B755555%E6%89%8B%E6%9C%BA%E5%8F%B7120%E4%B8%87%E6%8B%8D%E5%87%BA%23&Refer=top) `3.6M 🔥`
 1. [张文宏称害怕打疫苗是人性问题](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%87%E5%AE%8F%E7%A7%B0%E5%AE%B3%E6%80%95%E6%89%93%E7%96%AB%E8%8B%97%E6%98%AF%E4%BA%BA%E6%80%A7%E9%97%AE%E9%A2%98%23&Refer=top) `3.2M 🔥`
 1. [涉嫌猥亵女童13岁男孩被家属接回](https://s.weibo.com/weibo?q=%23%E6%B6%89%E5%AB%8C%E7%8C%A5%E4%BA%B5%E5%A5%B3%E7%AB%A513%E5%B2%81%E7%94%B7%E5%AD%A9%E8%A2%AB%E5%AE%B6%E5%B1%9E%E6%8E%A5%E5%9B%9E%23&Refer=top) `3.2M 🔥`
+1. [肖宇梁](https://s.weibo.com/weibo?q=%E8%82%96%E5%AE%87%E6%A2%81&Refer=top) `2.6M 🔥`
 1. [宝洁 杨笠](https://s.weibo.com/weibo?q=%E5%AE%9D%E6%B4%81%20%E6%9D%A8%E7%AC%A0&Refer=top) `2.5M 🔥`
 1. [安踏退出BCI组织](https://s.weibo.com/weibo?q=%E5%AE%89%E8%B8%8F%E9%80%80%E5%87%BABCI%E7%BB%84%E7%BB%87&Refer=top) `2.5M 🔥`
 1. [景甜 遇到司藤是我不太好的时候](https://s.weibo.com/weibo?q=%E6%99%AF%E7%94%9C%20%E9%81%87%E5%88%B0%E5%8F%B8%E8%97%A4%E6%98%AF%E6%88%91%E4%B8%8D%E5%A4%AA%E5%A5%BD%E7%9A%84%E6%97%B6%E5%80%99&Refer=top) `2.4M 🔥`
@@ -54,10 +55,9 @@
 1. [原来富士山是私人财产](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%AF%8C%E5%A3%AB%E5%B1%B1%E6%98%AF%E7%A7%81%E4%BA%BA%E8%B4%A2%E4%BA%A7%23&Refer=top) `1.4M 🔥`
 1. [湖南一村庄用土泡水喝了200年](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E4%B8%80%E6%9D%91%E5%BA%84%E7%94%A8%E5%9C%9F%E6%B3%A1%E6%B0%B4%E5%96%9D%E4%BA%86200%E5%B9%B4%23&Refer=top) `1.4M 🔥`
 1. [马斯克点赞中国碳达峰目标](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E6%96%AF%E5%85%8B%E7%82%B9%E8%B5%9E%E4%B8%AD%E5%9B%BD%E7%A2%B3%E8%BE%BE%E5%B3%B0%E7%9B%AE%E6%A0%87%23&Refer=top) `1.3M 🔥`
-1. [阚清子说不想再压抑自己了](https://s.weibo.com/weibo?q=%23%E9%98%9A%E6%B8%85%E5%AD%90%E8%AF%B4%E4%B8%8D%E6%83%B3%E5%86%8D%E5%8E%8B%E6%8A%91%E8%87%AA%E5%B7%B1%E4%BA%86%23&Refer=top) `1.3M 🔥`
-1. [当龚俊接到原唱的电话](https://s.weibo.com/weibo?q=%23%E5%BD%93%E9%BE%9A%E4%BF%8A%E6%8E%A5%E5%88%B0%E5%8E%9F%E5%94%B1%E7%9A%84%E7%94%B5%E8%AF%9D%23&Refer=top) `1.3M 🔥`
+1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-03-24 20:41:29
+数据更新于 2021-03-24 20:50:38
 
 <!-- END -->
 
