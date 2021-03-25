@@ -9,7 +9,7 @@
 1. [阿迪达斯](https://s.weibo.com/weibo?q=%23%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%23&Refer=top) `19.3M 🔥`
 1. [新疆曾多次邀请欧盟驻华使节参访](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%9B%BE%E5%A4%9A%E6%AC%A1%E9%82%80%E8%AF%B7%E6%AC%A7%E7%9B%9F%E9%A9%BB%E5%8D%8E%E4%BD%BF%E8%8A%82%E5%8F%82%E8%AE%BF%23&Refer=top) `18.4M 🔥`
 1. [耐克](https://s.weibo.com/weibo?q=%E8%80%90%E5%85%8B&Refer=top) `16.0M 🔥`
-1. [张少华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `10.7M 🔥`
+1. [张少华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `12.3M 🔥`
 1. [新疆棉花中国自己还不够用](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E4%B8%AD%E5%9B%BD%E8%87%AA%E5%B7%B1%E8%BF%98%E4%B8%8D%E5%A4%9F%E7%94%A8%23&Refer=top) `10.1M 🔥`
 1. [无印良品求生欲](https://s.weibo.com/weibo?q=%23%E6%97%A0%E5%8D%B0%E8%89%AF%E5%93%81%E6%B1%82%E7%94%9F%E6%AC%B2%23&Refer=top) `9.0M 🔥`
 1. [得物](https://s.weibo.com/weibo?q=%E5%BE%97%E7%89%A9&Refer=top) `7.8M 🔥`
@@ -57,7 +57,7 @@
 1. [多款地图APP屏蔽HM店铺](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%AC%BE%E5%9C%B0%E5%9B%BEAPP%E5%B1%8F%E8%94%BDHM%E5%BA%97%E9%93%BA%23&Refer=top) `1.1M 🔥`
 1. [韭黄在国外的尴尬处境](https://s.weibo.com/weibo?q=%23%E9%9F%AD%E9%BB%84%E5%9C%A8%E5%9B%BD%E5%A4%96%E7%9A%84%E5%B0%B4%E5%B0%AC%E5%A4%84%E5%A2%83%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-03-25 15:21:43
+数据更新于 2021-03-25 15:29:19
 
 <!-- END -->
 
