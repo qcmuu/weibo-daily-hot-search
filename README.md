@@ -41,11 +41,11 @@
 1. [中消协称严重关切HM事件](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%B6%88%E5%8D%8F%E7%A7%B0%E4%B8%A5%E9%87%8D%E5%85%B3%E5%88%87HM%E4%BA%8B%E4%BB%B6%23&Refer=top) `3.0M 🔥`
 1. [易烊千玺终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `3.0M 🔥`
 1. [IU回归](https://s.weibo.com/weibo?q=IU%E5%9B%9E%E5%BD%92&Refer=top) `2.9M 🔥`
+1. [刘亦菲终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.8M 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `2.8M 🔥`
 1. [幼师多次针刺9幼儿被公诉](https://s.weibo.com/weibo?q=%E5%B9%BC%E5%B8%88%E5%A4%9A%E6%AC%A1%E9%92%88%E5%88%BA9%E5%B9%BC%E5%84%BF%E8%A2%AB%E5%85%AC%E8%AF%89&Refer=top) `2.8M 🔥`
 1. [一个学校能有多大](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E5%AD%A6%E6%A0%A1%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `2.8M 🔥`
 1. [欧阳娜娜终止与匡威合作](https://s.weibo.com/weibo?q=%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C&Refer=top) `2.8M 🔥`
-1. [刘亦菲终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.7M 🔥`
 1. [中国棉花协会发文](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%A3%89%E8%8A%B1%E5%8D%8F%E4%BC%9A%E5%8F%91%E6%96%87%23&Refer=top) `2.7M 🔥`
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
 1. [佟丽娅 我爱我的家乡](https://s.weibo.com/weibo?q=%E4%BD%9F%E4%B8%BD%E5%A8%85%20%E6%88%91%E7%88%B1%E6%88%91%E7%9A%84%E5%AE%B6%E4%B9%A1&Refer=top) `2.6M 🔥`
@@ -57,7 +57,7 @@
 1. [一张支持新疆棉的大长图](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%BC%A0%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E7%9A%84%E5%A4%A7%E9%95%BF%E5%9B%BE%23&Refer=top) `2.1M 🔥`
 1. [王源终止与优衣库合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%BB%88%E6%AD%A2%E4%B8%8E%E4%BC%98%E8%A1%A3%E5%BA%93%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-03-25 20:19:03
+数据更新于 2021-03-25 20:31:29
 
 <!-- END -->
 
