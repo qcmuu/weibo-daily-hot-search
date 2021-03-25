@@ -8,7 +8,7 @@
 
 1. [阿迪达斯](https://s.weibo.com/weibo?q=%23%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%23&Refer=top) `19.3M 🔥`
 1. [耐克](https://s.weibo.com/weibo?q=%E8%80%90%E5%85%8B&Refer=top) `16.0M 🔥`
-1. [新疆曾多次邀请欧盟驻华使节参访](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%9B%BE%E5%A4%9A%E6%AC%A1%E9%82%80%E8%AF%B7%E6%AC%A7%E7%9B%9F%E9%A9%BB%E5%8D%8E%E4%BD%BF%E8%8A%82%E5%8F%82%E8%AE%BF%23&Refer=top) `14.9M 🔥`
+1. [新疆曾多次邀请欧盟驻华使节参访](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%9B%BE%E5%A4%9A%E6%AC%A1%E9%82%80%E8%AF%B7%E6%AC%A7%E7%9B%9F%E9%A9%BB%E5%8D%8E%E4%BD%BF%E8%8A%82%E5%8F%82%E8%AE%BF%23&Refer=top) `15.8M 🔥`
 1. [新疆棉花中国自己还不够用](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E4%B8%AD%E5%9B%BD%E8%87%AA%E5%B7%B1%E8%BF%98%E4%B8%8D%E5%A4%9F%E7%94%A8%23&Refer=top) `10.1M 🔥`
 1. [无印良品求生欲](https://s.weibo.com/weibo?q=%23%E6%97%A0%E5%8D%B0%E8%89%AF%E5%93%81%E6%B1%82%E7%94%9F%E6%AC%B2%23&Refer=top) `9.0M 🔥`
 1. [得物](https://s.weibo.com/weibo?q=%E5%BE%97%E7%89%A9&Refer=top) `7.8M 🔥`
@@ -57,7 +57,7 @@
 1. [孔肖吟](https://s.weibo.com/weibo?q=%E5%AD%94%E8%82%96%E5%90%9F&Refer=top) `960.8K 🔥`
 1. [薇娅起诉薇娅严选](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E8%B5%B7%E8%AF%89%E8%96%87%E5%A8%85%E4%B8%A5%E9%80%89%23&Refer=top) `953.2K 🔥`
 
-数据更新于 2021-03-25 12:42:46
+数据更新于 2021-03-25 12:51:35
 
 <!-- END -->
 
