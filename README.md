@@ -15,8 +15,8 @@
 1. [无印良品求生欲](https://s.weibo.com/weibo?q=%23%E6%97%A0%E5%8D%B0%E8%89%AF%E5%93%81%E6%B1%82%E7%94%9F%E6%AC%B2%23&Refer=top) `9.0M 🔥`
 1. [白敬亭终止与匡威合作](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C%23&Refer=top) `8.0M 🔥`
 1. [得物](https://s.weibo.com/weibo?q=%E5%BE%97%E7%89%A9&Refer=top) `7.8M 🔥`
+1. [王者荣耀取消与Burberry合作](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%8F%96%E6%B6%88%E4%B8%8EBurberry%E5%90%88%E4%BD%9C&Refer=top) `7.0M 🔥`
 1. [华春莹说新疆棉花这么好不用是损失](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E8%AF%B4%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E8%BF%99%E4%B9%88%E5%A5%BD%E4%B8%8D%E7%94%A8%E6%98%AF%E6%8D%9F%E5%A4%B1%23&Refer=top) `6.9M 🔥`
-1. [王者荣耀取消与Burberry合作](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%8F%96%E6%B6%88%E4%B8%8EBurberry%E5%90%88%E4%BD%9C&Refer=top) `6.8M 🔥`
 1. [张艺兴终止与CK匡威合作](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%89%BA%E5%85%B4%E7%BB%88%E6%AD%A2%E4%B8%8ECK%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C&Refer=top) `6.7M 🔥`
 1. [王子文 吴永恩](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E6%96%87%20%E5%90%B4%E6%B0%B8%E6%81%A9&Refer=top) `6.7M 🔥`
 1. [得物耐克交易量](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9%E8%80%90%E5%85%8B%E4%BA%A4%E6%98%93%E9%87%8F%23&Refer=top) `6.0M 🔥`
@@ -50,14 +50,14 @@
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
 1. [佟丽娅 我爱我的家乡](https://s.weibo.com/weibo?q=%E4%BD%9F%E4%B8%BD%E5%A8%85%20%E6%88%91%E7%88%B1%E6%88%91%E7%9A%84%E5%AE%B6%E4%B9%A1&Refer=top) `2.6M 🔥`
 1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.5M 🔥`
+1. [一张支持新疆棉的大长图](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%BC%A0%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E7%9A%84%E5%A4%A7%E9%95%BF%E5%9B%BE%23&Refer=top) `2.4M 🔥`
 1. [新疆雪白的棉花](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%9B%AA%E7%99%BD%E7%9A%84%E6%A3%89%E8%8A%B1%23&Refer=top) `2.4M 🔥`
 1. [电视开机广告不能一键关闭被判侵权](https://s.weibo.com/weibo?q=%E7%94%B5%E8%A7%86%E5%BC%80%E6%9C%BA%E5%B9%BF%E5%91%8A%E4%B8%8D%E8%83%BD%E4%B8%80%E9%94%AE%E5%85%B3%E9%97%AD%E8%A2%AB%E5%88%A4%E4%BE%B5%E6%9D%83&Refer=top) `2.3M 🔥`
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.3M 🔥`
 1. [淘宝特价版已向微信提交小程序申请](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E7%89%B9%E4%BB%B7%E7%89%88%E5%B7%B2%E5%90%91%E5%BE%AE%E4%BF%A1%E6%8F%90%E4%BA%A4%E5%B0%8F%E7%A8%8B%E5%BA%8F%E7%94%B3%E8%AF%B7%23&Refer=top) `2.2M 🔥`
-1. [一张支持新疆棉的大长图](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%BC%A0%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E7%9A%84%E5%A4%A7%E9%95%BF%E5%9B%BE%23&Refer=top) `2.1M 🔥`
 1. [王源终止与优衣库合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%BB%88%E6%AD%A2%E4%B8%8E%E4%BC%98%E8%A1%A3%E5%BA%93%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-03-25 20:31:29
+数据更新于 2021-03-25 20:41:54
 
 <!-- END -->
 
