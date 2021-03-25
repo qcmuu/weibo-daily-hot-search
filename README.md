@@ -48,6 +48,7 @@
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.3M 🔥`
 1. [淘宝特价版已向微信提交小程序申请](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E7%89%B9%E4%BB%B7%E7%89%88%E5%B7%B2%E5%90%91%E5%BE%AE%E4%BF%A1%E6%8F%90%E4%BA%A4%E5%B0%8F%E7%A8%8B%E5%BA%8F%E7%94%B3%E8%AF%B7%23&Refer=top) `2.2M 🔥`
 1. [央视主播为新疆代言](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E4%B8%BA%E6%96%B0%E7%96%86%E4%BB%A3%E8%A8%80%23&Refer=top) `2.1M 🔥`
+1. [王嘉尔终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 1. [匡威](https://s.weibo.com/weibo?q=%E5%8C%A1%E5%A8%81&Refer=top) `2.1M 🔥`
 1. [拉萨舰正式加入中国海军序列](https://s.weibo.com/weibo?q=%E6%8B%89%E8%90%A8%E8%88%B0%E6%AD%A3%E5%BC%8F%E5%8A%A0%E5%85%A5%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%86%9B%E5%BA%8F%E5%88%97&Refer=top) `2.1M 🔥`
 1. [赖冠霖机场穿拖鞋](https://s.weibo.com/weibo?q=%23%E8%B5%96%E5%86%A0%E9%9C%96%E6%9C%BA%E5%9C%BA%E7%A9%BF%E6%8B%96%E9%9E%8B%23&Refer=top) `2.0M 🔥`
@@ -55,9 +56,8 @@
 1. [陈伟霆终止与TommyHilfiger合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%BC%9F%E9%9C%86%E7%BB%88%E6%AD%A2%E4%B8%8ETommyHilfiger%E5%90%88%E4%BD%9C%23&Refer=top) `2.0M 🔥`
 1. [BCI是个什么组织](https://s.weibo.com/weibo?q=BCI%E6%98%AF%E4%B8%AA%E4%BB%80%E4%B9%88%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
 1. [淘宝下架HM商品](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E4%B8%8B%E6%9E%B6HM%E5%95%86%E5%93%81%23&Refer=top) `2.0M 🔥`
-1. [一线城市年轻人租房时间越来越长](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%BA%BF%E5%9F%8E%E5%B8%82%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%A7%9F%E6%88%BF%E6%97%B6%E9%97%B4%E8%B6%8A%E6%9D%A5%E8%B6%8A%E9%95%BF%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 18:20:55
+数据更新于 2021-03-25 18:28:42
 
 <!-- END -->
 
