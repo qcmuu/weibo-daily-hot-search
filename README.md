@@ -24,6 +24,7 @@
 1. [李宁把新疆棉写在标签上](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E6%8A%8A%E6%96%B0%E7%96%86%E6%A3%89%E5%86%99%E5%9C%A8%E6%A0%87%E7%AD%BE%E4%B8%8A%23&Refer=top) `5.2M 🔥`
 1. [我支持新疆棉花](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `5.0M 🔥`
 1. [HM实体店](https://s.weibo.com/weibo?q=%23HM%E5%AE%9E%E4%BD%93%E5%BA%97%23&Refer=top) `5.0M 🔥`
+1. [王者荣耀取消与Burberry合作](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%8F%96%E6%B6%88%E4%B8%8EBurberry%E5%90%88%E4%BD%9C&Refer=top) `4.4M 🔥`
 1. [陈学冬晒购物记录支持新疆棉](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%AD%A6%E5%86%AC%E6%99%92%E8%B4%AD%E7%89%A9%E8%AE%B0%E5%BD%95%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%23&Refer=top) `4.4M 🔥`
 1. [古力娜扎 我爱家乡雪白的棉花](https://s.weibo.com/weibo?q=%E5%8F%A4%E5%8A%9B%E5%A8%9C%E6%89%8E%20%E6%88%91%E7%88%B1%E5%AE%B6%E4%B9%A1%E9%9B%AA%E7%99%BD%E7%9A%84%E6%A3%89%E8%8A%B1&Refer=top) `4.3M 🔥`
 1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `4.0M 🔥`
@@ -31,7 +32,7 @@
 1. [李宁股价大涨逾7%](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%AE%81%E8%82%A1%E4%BB%B7%E5%A4%A7%E6%B6%A8%E9%80%BE7%25&Refer=top) `3.8M 🔥`
 1. [听完日媒记者的提问华春莹笑了](https://s.weibo.com/weibo?q=%23%E5%90%AC%E5%AE%8C%E6%97%A5%E5%AA%92%E8%AE%B0%E8%80%85%E7%9A%84%E6%8F%90%E9%97%AE%E5%8D%8E%E6%98%A5%E8%8E%B9%E7%AC%91%E4%BA%86%23&Refer=top) `3.7M 🔥`
 1. [华春莹展示美国黑奴被迫采棉花照片](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%B1%95%E7%A4%BA%E7%BE%8E%E5%9B%BD%E9%BB%91%E5%A5%B4%E8%A2%AB%E8%BF%AB%E9%87%87%E6%A3%89%E8%8A%B1%E7%85%A7%E7%89%87%23&Refer=top) `3.7M 🔥`
-1. [陈奕迅终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%95%E8%BF%85%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `3.6M 🔥`
+1. [陈奕迅终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%95%E8%BF%85%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `3.7M 🔥`
 1. [小学生飞奔过马路被撞身亡](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E9%A3%9E%E5%A5%94%E8%BF%87%E9%A9%AC%E8%B7%AF%E8%A2%AB%E6%92%9E%E8%BA%AB%E4%BA%A1%23&Refer=top) `3.6M 🔥`
 1. [优衣库](https://s.weibo.com/weibo?q=%E4%BC%98%E8%A1%A3%E5%BA%93&Refer=top) `3.4M 🔥`
 1. [不要为难打工人](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%BA%E9%9A%BE%E6%89%93%E5%B7%A5%E4%BA%BA%23&Refer=top) `3.3M 🔥`
@@ -48,16 +49,15 @@
 1. [佟丽娅 我爱我的家乡](https://s.weibo.com/weibo?q=%E4%BD%9F%E4%B8%BD%E5%A8%85%20%E6%88%91%E7%88%B1%E6%88%91%E7%9A%84%E5%AE%B6%E4%B9%A1&Refer=top) `2.6M 🔥`
 1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.5M 🔥`
 1. [新疆雪白的棉花](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%9B%AA%E7%99%BD%E7%9A%84%E6%A3%89%E8%8A%B1%23&Refer=top) `2.4M 🔥`
-1. [王者荣耀取消与Burberry合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%8F%96%E6%B6%88%E4%B8%8EBurberry%E5%90%88%E4%BD%9C%23&Refer=top) `2.4M 🔥`
 1. [电视开机广告不能一键关闭被判侵权](https://s.weibo.com/weibo?q=%E7%94%B5%E8%A7%86%E5%BC%80%E6%9C%BA%E5%B9%BF%E5%91%8A%E4%B8%8D%E8%83%BD%E4%B8%80%E9%94%AE%E5%85%B3%E9%97%AD%E8%A2%AB%E5%88%A4%E4%BE%B5%E6%9D%83&Refer=top) `2.3M 🔥`
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.3M 🔥`
+1. [成都大悦城HM摘牌](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%A4%A7%E6%82%A6%E5%9F%8EHM%E6%91%98%E7%89%8C%23&Refer=top) `2.2M 🔥`
 1. [淘宝特价版已向微信提交小程序申请](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E7%89%B9%E4%BB%B7%E7%89%88%E5%B7%B2%E5%90%91%E5%BE%AE%E4%BF%A1%E6%8F%90%E4%BA%A4%E5%B0%8F%E7%A8%8B%E5%BA%8F%E7%94%B3%E8%AF%B7%23&Refer=top) `2.2M 🔥`
 1. [刘亦菲终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.2M 🔥`
-1. [成都大悦城HM摘牌](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%A4%A7%E6%82%A6%E5%9F%8EHM%E6%91%98%E7%89%8C%23&Refer=top) `2.2M 🔥`
 1. [一张支持新疆棉的大长图](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%BC%A0%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E7%9A%84%E5%A4%A7%E9%95%BF%E5%9B%BE%23&Refer=top) `2.1M 🔥`
 1. [王源终止与优衣库合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%BB%88%E6%AD%A2%E4%B8%8E%E4%BC%98%E8%A1%A3%E5%BA%93%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-03-25 19:52:14
+数据更新于 2021-03-25 19:58:04
 
 <!-- END -->
 
