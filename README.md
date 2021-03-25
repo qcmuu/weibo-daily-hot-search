@@ -38,6 +38,7 @@
 1. [听完日媒记者的提问华春莹笑了](https://s.weibo.com/weibo?q=%23%E5%90%AC%E5%AE%8C%E6%97%A5%E5%AA%92%E8%AE%B0%E8%80%85%E7%9A%84%E6%8F%90%E9%97%AE%E5%8D%8E%E6%98%A5%E8%8E%B9%E7%AC%91%E4%BA%86%23&Refer=top) `3.7M 🔥`
 1. [华春莹展示美国黑奴被迫采棉花照片](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%B1%95%E7%A4%BA%E7%BE%8E%E5%9B%BD%E9%BB%91%E5%A5%B4%E8%A2%AB%E8%BF%AB%E9%87%87%E6%A3%89%E8%8A%B1%E7%85%A7%E7%89%87%23&Refer=top) `3.7M 🔥`
 1. [陈奕迅终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%95%E8%BF%85%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `3.7M 🔥`
+1. [耐克阿迪股价大跌](https://s.weibo.com/weibo?q=%23%E8%80%90%E5%85%8B%E9%98%BF%E8%BF%AA%E8%82%A1%E4%BB%B7%E5%A4%A7%E8%B7%8C%23&Refer=top) `3.6M 🔥`
 1. [小学生飞奔过马路被撞身亡](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E9%A3%9E%E5%A5%94%E8%BF%87%E9%A9%AC%E8%B7%AF%E8%A2%AB%E6%92%9E%E8%BA%AB%E4%BA%A1%23&Refer=top) `3.6M 🔥`
 1. [医院回应拒绝戴黑色口罩市民进入](https://s.weibo.com/weibo?q=%E5%8C%BB%E9%99%A2%E5%9B%9E%E5%BA%94%E6%8B%92%E7%BB%9D%E6%88%B4%E9%BB%91%E8%89%B2%E5%8F%A3%E7%BD%A9%E5%B8%82%E6%B0%91%E8%BF%9B%E5%85%A5&Refer=top) `3.5M 🔥`
 1. [优衣库](https://s.weibo.com/weibo?q=%E4%BC%98%E8%A1%A3%E5%BA%93&Refer=top) `3.4M 🔥`
@@ -55,9 +56,8 @@
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
 1. [佟丽娅 我爱我的家乡](https://s.weibo.com/weibo?q=%E4%BD%9F%E4%B8%BD%E5%A8%85%20%E6%88%91%E7%88%B1%E6%88%91%E7%9A%84%E5%AE%B6%E4%B9%A1&Refer=top) `2.6M 🔥`
 1. [国产车厘子价格升至120元每斤](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%BA%A7%E8%BD%A6%E5%8E%98%E5%AD%90%E4%BB%B7%E6%A0%BC%E5%8D%87%E8%87%B3120%E5%85%83%E6%AF%8F%E6%96%A4%23&Refer=top) `2.5M 🔥`
-1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.5M 🔥`
 
-数据更新于 2021-03-25 23:47:25
+数据更新于 2021-03-25 23:56:57
 
 <!-- END -->
 
