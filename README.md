@@ -43,6 +43,7 @@
 1. [一个学校能有多大](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E5%AD%A6%E6%A0%A1%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `2.8M 🔥`
 1. [欧阳娜娜终止与匡威合作](https://s.weibo.com/weibo?q=%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C&Refer=top) `2.8M 🔥`
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
+1. [中国棉花协会发文](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%A3%89%E8%8A%B1%E5%8D%8F%E4%BC%9A%E5%8F%91%E6%96%87%23&Refer=top) `2.6M 🔥`
 1. [佟丽娅 我爱我的家乡](https://s.weibo.com/weibo?q=%E4%BD%9F%E4%B8%BD%E5%A8%85%20%E6%88%91%E7%88%B1%E6%88%91%E7%9A%84%E5%AE%B6%E4%B9%A1&Refer=top) `2.6M 🔥`
 1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.5M 🔥`
 1. [新疆雪白的棉花](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%9B%AA%E7%99%BD%E7%9A%84%E6%A3%89%E8%8A%B1%23&Refer=top) `2.4M 🔥`
@@ -55,9 +56,8 @@
 1. [拉萨舰正式加入中国海军序列](https://s.weibo.com/weibo?q=%E6%8B%89%E8%90%A8%E8%88%B0%E6%AD%A3%E5%BC%8F%E5%8A%A0%E5%85%A5%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%86%9B%E5%BA%8F%E5%88%97&Refer=top) `2.1M 🔥`
 1. [赖冠霖机场穿拖鞋](https://s.weibo.com/weibo?q=%23%E8%B5%96%E5%86%A0%E9%9C%96%E6%9C%BA%E5%9C%BA%E7%A9%BF%E6%8B%96%E9%9E%8B%23&Refer=top) `2.0M 🔥`
 1. [安踏退出BCI组织](https://s.weibo.com/weibo?q=%E5%AE%89%E8%B8%8F%E9%80%80%E5%87%BABCI%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
-1. [陈伟霆终止与TommyHilfiger合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%BC%9F%E9%9C%86%E7%BB%88%E6%AD%A2%E4%B8%8ETommyHilfiger%E5%90%88%E4%BD%9C%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 19:07:34
+数据更新于 2021-03-25 19:17:55
 
 <!-- END -->
 
