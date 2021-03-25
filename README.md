@@ -12,7 +12,7 @@
 1. [新疆棉花中国自己还不够用](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E4%B8%AD%E5%9B%BD%E8%87%AA%E5%B7%B1%E8%BF%98%E4%B8%8D%E5%A4%9F%E7%94%A8%23&Refer=top) `10.1M 🔥`
 1. [无印良品求生欲](https://s.weibo.com/weibo?q=%23%E6%97%A0%E5%8D%B0%E8%89%AF%E5%93%81%E6%B1%82%E7%94%9F%E6%AC%B2%23&Refer=top) `9.0M 🔥`
 1. [得物](https://s.weibo.com/weibo?q=%E5%BE%97%E7%89%A9&Refer=top) `7.8M 🔥`
-1. [张少华去世](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96&Refer=top) `7.4M 🔥`
+1. [张少华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `7.5M 🔥`
 1. [王子文 吴永恩](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E6%96%87%20%E5%90%B4%E6%B0%B8%E6%81%A9&Refer=top) `6.7M 🔥`
 1. [得物耐克交易量](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9%E8%80%90%E5%85%8B%E4%BA%A4%E6%98%93%E9%87%8F%23&Refer=top) `6.0M 🔥`
 1. [王一博终止与NIKE合作](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E7%BB%88%E6%AD%A2%E4%B8%8ENIKE%E5%90%88%E4%BD%9C&Refer=top) `5.6M 🔥`
@@ -57,7 +57,7 @@
 1. [韭黄在国外的尴尬处境](https://s.weibo.com/weibo?q=%23%E9%9F%AD%E9%BB%84%E5%9C%A8%E5%9B%BD%E5%A4%96%E7%9A%84%E5%B0%B4%E5%B0%AC%E5%A4%84%E5%A2%83%23&Refer=top) `1.1M 🔥`
 1. [张哲瀚说两版结局都悲惨](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E8%AF%B4%E4%B8%A4%E7%89%88%E7%BB%93%E5%B1%80%E9%83%BD%E6%82%B2%E6%83%A8%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-03-25 15:07:25
+数据更新于 2021-03-25 15:14:27
 
 <!-- END -->
 
