@@ -20,6 +20,7 @@
 1. [陈小纭选队长时的表现](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%B0%8F%E7%BA%AD%E9%80%89%E9%98%9F%E9%95%BF%E6%97%B6%E7%9A%84%E8%A1%A8%E7%8E%B0%23&Refer=top) `728.2K 🔥`
 1. [华春莹被BBC记者自动对号入座逗笑](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E8%A2%ABBBC%E8%AE%B0%E8%80%85%E8%87%AA%E5%8A%A8%E5%AF%B9%E5%8F%B7%E5%85%A5%E5%BA%A7%E9%80%97%E7%AC%91%23&Refer=top) `714.5K 🔥`
 1. [黄牛外挂软件侵入上海交警APP](https://s.weibo.com/weibo?q=%E9%BB%84%E7%89%9B%E5%A4%96%E6%8C%82%E8%BD%AF%E4%BB%B6%E4%BE%B5%E5%85%A5%E4%B8%8A%E6%B5%B7%E4%BA%A4%E8%AD%A6APP&Refer=top) `694.8K 🔥`
+1. [薇娅1小时卖出2000多万元新疆棉制品](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%851%E5%B0%8F%E6%97%B6%E5%8D%96%E5%87%BA2000%E5%A4%9A%E4%B8%87%E5%85%83%E6%96%B0%E7%96%86%E6%A3%89%E5%88%B6%E5%93%81%23&Refer=top) `688.1K 🔥`
 1. [THE9演唱会](https://s.weibo.com/weibo?q=THE9%E6%BC%94%E5%94%B1%E4%BC%9A&Refer=top) `684.1K 🔥`
 1. [Doinb和小天握手](https://s.weibo.com/weibo?q=%23Doinb%E5%92%8C%E5%B0%8F%E5%A4%A9%E6%8F%A1%E6%89%8B%23&Refer=top) `682.8K 🔥`
 1. [高校学生宿舍烧小龙虾消防找上门](https://s.weibo.com/weibo?q=%23%E9%AB%98%E6%A0%A1%E5%AD%A6%E7%94%9F%E5%AE%BF%E8%88%8D%E7%83%A7%E5%B0%8F%E9%BE%99%E8%99%BE%E6%B6%88%E9%98%B2%E6%89%BE%E4%B8%8A%E9%97%A8%23&Refer=top) `674.8K 🔥`
@@ -55,9 +56,8 @@
 1. [埃及火车相撞致32死66伤](https://s.weibo.com/weibo?q=%23%E5%9F%83%E5%8F%8A%E7%81%AB%E8%BD%A6%E7%9B%B8%E6%92%9E%E8%87%B432%E6%AD%BB66%E4%BC%A4%23&Refer=top) `283.2K 🔥`
 1. [安又琪金子涵国风扇子舞](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%8F%88%E7%90%AA%E9%87%91%E5%AD%90%E6%B6%B5%E5%9B%BD%E9%A3%8E%E6%89%87%E5%AD%90%E8%88%9E%23&Refer=top) `271.9K 🔥`
 1. [相亲对象自信发言大赏](https://s.weibo.com/weibo?q=%23%E7%9B%B8%E4%BA%B2%E5%AF%B9%E8%B1%A1%E8%87%AA%E4%BF%A1%E5%8F%91%E8%A8%80%E5%A4%A7%E8%B5%8F%23&Refer=top) `266.4K 🔥`
-1. [警方通报老人坐轮椅进隧道被撞身亡](https://s.weibo.com/weibo?q=%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E8%80%81%E4%BA%BA%E5%9D%90%E8%BD%AE%E6%A4%85%E8%BF%9B%E9%9A%A7%E9%81%93%E8%A2%AB%E6%92%9E%E8%BA%AB%E4%BA%A1&Refer=top) `264.0K 🔥`
 
-数据更新于 2021-03-27 07:18:18
+数据更新于 2021-03-27 07:30:18
 
 <!-- END -->
 
