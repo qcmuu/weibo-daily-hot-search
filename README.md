@@ -50,14 +50,14 @@
 1. [王源用橘子做音乐](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%94%A8%E6%A9%98%E5%AD%90%E5%81%9A%E9%9F%B3%E4%B9%90%23&Refer=top) `295.9K 🔥`
 1. [十二谭特效](https://s.weibo.com/weibo?q=%E5%8D%81%E4%BA%8C%E8%B0%AD%E7%89%B9%E6%95%88&Refer=top) `280.2K 🔥`
 1. [新疆青年超燃rap喊话西方势力](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%9D%92%E5%B9%B4%E8%B6%85%E7%87%83rap%E5%96%8A%E8%AF%9D%E8%A5%BF%E6%96%B9%E5%8A%BF%E5%8A%9B%23&Refer=top) `275.1K 🔥`
+1. [吴昕直播](https://s.weibo.com/weibo?q=%E5%90%B4%E6%98%95%E7%9B%B4%E6%92%AD&Refer=top) `274.8K 🔥`
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `261.9K 🔥`
 1. [曾涵江rap实力](https://s.weibo.com/weibo?q=%E6%9B%BE%E6%B6%B5%E6%B1%9Frap%E5%AE%9E%E5%8A%9B&Refer=top) `249.1K 🔥`
 1. [老人超市拿鸡蛋被拦猝死案始末](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E8%B6%85%E5%B8%82%E6%8B%BF%E9%B8%A1%E8%9B%8B%E8%A2%AB%E6%8B%A6%E7%8C%9D%E6%AD%BB%E6%A1%88%E5%A7%8B%E6%9C%AB%23&Refer=top) `239.6K 🔥`
 1. [谢可寅Comet舞台](https://s.weibo.com/weibo?q=%E8%B0%A2%E5%8F%AF%E5%AF%85Comet%E8%88%9E%E5%8F%B0&Refer=top) `209.4K 🔥`
 1. [iPhone折叠屏手机](https://s.weibo.com/weibo?q=%23iPhone%E6%8A%98%E5%8F%A0%E5%B1%8F%E6%89%8B%E6%9C%BA%23&Refer=top) `203.0K 🔥`
-1. [庆怜 古巴小李子](https://s.weibo.com/weibo?q=%E5%BA%86%E6%80%9C%20%E5%8F%A4%E5%B7%B4%E5%B0%8F%E6%9D%8E%E5%AD%90&Refer=top) `199.9K 🔥`
 
-数据更新于 2021-03-28 07:07:36
+数据更新于 2021-03-28 07:18:36
 
 <!-- END -->
 
