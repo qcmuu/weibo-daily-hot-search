@@ -21,9 +21,9 @@
 1. [王牌对王牌剪辑](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C%E5%89%AA%E8%BE%91%23&Refer=top) `1.9M 🔥`
 1. [中国足协谴责耐克](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E8%B6%B3%E5%8D%8F%E8%B0%B4%E8%B4%A3%E8%80%90%E5%85%8B&Refer=top) `1.8M 🔥`
 1. [聂远对黄奕说希望你幸福](https://s.weibo.com/weibo?q=%23%E8%81%82%E8%BF%9C%E5%AF%B9%E9%BB%84%E5%A5%95%E8%AF%B4%E5%B8%8C%E6%9C%9B%E4%BD%A0%E5%B9%B8%E7%A6%8F%23&Refer=top) `1.7M 🔥`
+1. [龚俊 Leave the Door Open](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20Leave%20the%20Door%20Open&Refer=top) `1.6M 🔥`
 1. [斯凯奇声明中国供应商没有强制劳工](https://s.weibo.com/weibo?q=%23%E6%96%AF%E5%87%AF%E5%A5%87%E5%A3%B0%E6%98%8E%E4%B8%AD%E5%9B%BD%E4%BE%9B%E5%BA%94%E5%95%86%E6%B2%A1%E6%9C%89%E5%BC%BA%E5%88%B6%E5%8A%B3%E5%B7%A5%23&Refer=top) `1.5M 🔥`
 1. [崔天凯提醒跨国公司勿破坏国际市场](https://s.weibo.com/weibo?q=%23%E5%B4%94%E5%A4%A9%E5%87%AF%E6%8F%90%E9%86%92%E8%B7%A8%E5%9B%BD%E5%85%AC%E5%8F%B8%E5%8B%BF%E7%A0%B4%E5%9D%8F%E5%9B%BD%E9%99%85%E5%B8%82%E5%9C%BA%23&Refer=top) `1.5M 🔥`
-1. [龚俊 Leave the Door Open](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20Leave%20the%20Door%20Open&Refer=top) `1.5M 🔥`
 1. [李荣浩晒乡村爱情手办](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%E6%99%92%E4%B9%A1%E6%9D%91%E7%88%B1%E6%83%85%E6%89%8B%E5%8A%9E&Refer=top) `1.4M 🔥`
 1. [独居老太突发脑梗用鞋敲地2晚获救](https://s.weibo.com/weibo?q=%E7%8B%AC%E5%B1%85%E8%80%81%E5%A4%AA%E7%AA%81%E5%8F%91%E8%84%91%E6%A2%97%E7%94%A8%E9%9E%8B%E6%95%B2%E5%9C%B02%E6%99%9A%E8%8E%B7%E6%95%91&Refer=top) `1.3M 🔥`
 1. [英国首相后悔群体免疫决定](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E5%90%8E%E6%82%94%E7%BE%A4%E4%BD%93%E5%85%8D%E7%96%AB%E5%86%B3%E5%AE%9A%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [小李琳 这是最后一次扮演杜冰雁](https://s.weibo.com/weibo?q=%E5%B0%8F%E6%9D%8E%E7%90%B3%20%E8%BF%99%E6%98%AF%E6%9C%80%E5%90%8E%E4%B8%80%E6%AC%A1%E6%89%AE%E6%BC%94%E6%9D%9C%E5%86%B0%E9%9B%81&Refer=top) `736.8K 🔥`
 1. [埃及列车相撞32死因前车拉紧急制动](https://s.weibo.com/weibo?q=%23%E5%9F%83%E5%8F%8A%E5%88%97%E8%BD%A6%E7%9B%B8%E6%92%9E32%E6%AD%BB%E5%9B%A0%E5%89%8D%E8%BD%A6%E6%8B%89%E7%B4%A7%E6%80%A5%E5%88%B6%E5%8A%A8%23&Refer=top) `728.8K 🔥`
 
-数据更新于 2021-03-27 13:19:17
+数据更新于 2021-03-27 13:32:59
 
 <!-- END -->
 
