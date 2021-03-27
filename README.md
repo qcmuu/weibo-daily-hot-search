@@ -16,8 +16,8 @@
 1. [乌合麒麟](https://s.weibo.com/weibo?q=%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F&Refer=top) `2.5M 🔥`
 1. [张卫健时隔531天见到老婆](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%8D%AB%E5%81%A5%E6%97%B6%E9%9A%94531%E5%A4%A9%E8%A7%81%E5%88%B0%E8%80%81%E5%A9%86&Refer=top) `2.4M 🔥`
 1. [THE9演唱会 假唱](https://s.weibo.com/weibo?q=THE9%E6%BC%94%E5%94%B1%E4%BC%9A%20%E5%81%87%E5%94%B1&Refer=top) `2.3M 🔥`
+1. [张彬彬 有人没事在海里游泳喝了口海水](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%BD%AC%E5%BD%AC%20%E6%9C%89%E4%BA%BA%E6%B2%A1%E4%BA%8B%E5%9C%A8%E6%B5%B7%E9%87%8C%E6%B8%B8%E6%B3%B3%E5%96%9D%E4%BA%86%E5%8F%A3%E6%B5%B7%E6%B0%B4&Refer=top) `2.3M 🔥`
 1. [金子涵 不唱跳就不知道做什么了](https://s.weibo.com/weibo?q=%E9%87%91%E5%AD%90%E6%B6%B5%20%E4%B8%8D%E5%94%B1%E8%B7%B3%E5%B0%B1%E4%B8%8D%E7%9F%A5%E9%81%93%E5%81%9A%E4%BB%80%E4%B9%88%E4%BA%86&Refer=top) `2.1M 🔥`
-1. [张彬彬 有人没事在海里游泳喝了口海水](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%BD%AC%E5%BD%AC%20%E6%9C%89%E4%BA%BA%E6%B2%A1%E4%BA%8B%E5%9C%A8%E6%B5%B7%E9%87%8C%E6%B8%B8%E6%B3%B3%E5%96%9D%E4%BA%86%E5%8F%A3%E6%B5%B7%E6%B0%B4&Refer=top) `2.1M 🔥`
 1. [杨丞琳唱功被低估了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B8%9E%E7%90%B3%E5%94%B1%E5%8A%9F%E8%A2%AB%E4%BD%8E%E4%BC%B0%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [王牌对王牌剪辑](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C%E5%89%AA%E8%BE%91%23&Refer=top) `1.9M 🔥`
 1. [中国足协谴责耐克](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E8%B6%B3%E5%8D%8F%E8%B0%B4%E8%B4%A3%E8%80%90%E5%85%8B&Refer=top) `1.8M 🔥`
@@ -57,7 +57,7 @@
 1. [顶楼 神级反转狗血剧](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC%20%E7%A5%9E%E7%BA%A7%E5%8F%8D%E8%BD%AC%E7%8B%97%E8%A1%80%E5%89%A7&Refer=top) `745.1K 🔥`
 1. [小李琳 这是最后一次扮演杜冰雁](https://s.weibo.com/weibo?q=%E5%B0%8F%E6%9D%8E%E7%90%B3%20%E8%BF%99%E6%98%AF%E6%9C%80%E5%90%8E%E4%B8%80%E6%AC%A1%E6%89%AE%E6%BC%94%E6%9D%9C%E5%86%B0%E9%9B%81&Refer=top) `736.8K 🔥`
 
-数据更新于 2021-03-27 14:08:02
+数据更新于 2021-03-27 14:19:31
 
 <!-- END -->
 
