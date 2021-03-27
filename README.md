@@ -41,6 +41,7 @@
 1. [艾福杰尼说只能盖新疆棉被睡觉](https://s.weibo.com/weibo?q=%23%E8%89%BE%E7%A6%8F%E6%9D%B0%E5%B0%BC%E8%AF%B4%E5%8F%AA%E8%83%BD%E7%9B%96%E6%96%B0%E7%96%86%E6%A3%89%E8%A2%AB%E7%9D%A1%E8%A7%89%23&Refer=top) `902.7K 🔥`
 1. [央视直击湖南操场埋尸案侦办幕后](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E7%9B%B4%E5%87%BB%E6%B9%96%E5%8D%97%E6%93%8D%E5%9C%BA%E5%9F%8B%E5%B0%B8%E6%A1%88%E4%BE%A6%E5%8A%9E%E5%B9%95%E5%90%8E%23&Refer=top) `899.6K 🔥`
 1. [福原爱已三个月没见孩子](https://s.weibo.com/weibo?q=%E7%A6%8F%E5%8E%9F%E7%88%B1%E5%B7%B2%E4%B8%89%E4%B8%AA%E6%9C%88%E6%B2%A1%E8%A7%81%E5%AD%A9%E5%AD%90&Refer=top) `876.0K 🔥`
+1. [张彬彬 有人没事在海里游泳喝了口海水](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%BD%AC%E5%BD%AC%20%E6%9C%89%E4%BA%BA%E6%B2%A1%E4%BA%8B%E5%9C%A8%E6%B5%B7%E9%87%8C%E6%B8%B8%E6%B3%B3%E5%96%9D%E4%BA%86%E5%8F%A3%E6%B5%B7%E6%B0%B4&Refer=top) `866.3K 🔥`
 1. [外国博主发视频讲透涉疆谎言](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%9B%BD%E5%8D%9A%E4%B8%BB%E5%8F%91%E8%A7%86%E9%A2%91%E8%AE%B2%E9%80%8F%E6%B6%89%E7%96%86%E8%B0%8E%E8%A8%80%23&Refer=top) `839.6K 🔥`
 1. [IU](https://s.weibo.com/weibo?q=IU&Refer=top) `838.9K 🔥`
 1. [这就是中方态度](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E4%B8%AD%E6%96%B9%E6%80%81%E5%BA%A6%23&Refer=top) `838.7K 🔥`
@@ -55,9 +56,8 @@
 1. [黄奕聂远再现掀盖头名场面](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%A5%95%E8%81%82%E8%BF%9C%E5%86%8D%E7%8E%B0%E6%8E%80%E7%9B%96%E5%A4%B4%E5%90%8D%E5%9C%BA%E9%9D%A2%23&Refer=top) `759.5K 🔥`
 1. [顶楼 神级反转狗血剧](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC%20%E7%A5%9E%E7%BA%A7%E5%8F%8D%E8%BD%AC%E7%8B%97%E8%A1%80%E5%89%A7&Refer=top) `745.1K 🔥`
 1. [小李琳 这是最后一次扮演杜冰雁](https://s.weibo.com/weibo?q=%E5%B0%8F%E6%9D%8E%E7%90%B3%20%E8%BF%99%E6%98%AF%E6%9C%80%E5%90%8E%E4%B8%80%E6%AC%A1%E6%89%AE%E6%BC%94%E6%9D%9C%E5%86%B0%E9%9B%81&Refer=top) `736.8K 🔥`
-1. [埃及列车相撞32死因前车拉紧急制动](https://s.weibo.com/weibo?q=%23%E5%9F%83%E5%8F%8A%E5%88%97%E8%BD%A6%E7%9B%B8%E6%92%9E32%E6%AD%BB%E5%9B%A0%E5%89%8D%E8%BD%A6%E6%8B%89%E7%B4%A7%E6%80%A5%E5%88%B6%E5%8A%A8%23&Refer=top) `728.8K 🔥`
 
-数据更新于 2021-03-27 13:53:22
+数据更新于 2021-03-27 13:59:08
 
 <!-- END -->
 
