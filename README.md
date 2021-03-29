@@ -33,7 +33,7 @@
 1. [司藤](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4&Refer=top) `1.1M 🔥`
 1. [大学生酒后强奸女同学获缓刑4年](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E7%94%9F%E9%85%92%E5%90%8E%E5%BC%BA%E5%A5%B8%E5%A5%B3%E5%90%8C%E5%AD%A6%E8%8E%B7%E7%BC%93%E5%88%914%E5%B9%B4%23&Refer=top) `1.1M 🔥`
 1. [树很年轻可以改变 树很老它只能断](https://s.weibo.com/weibo?q=%E6%A0%91%E5%BE%88%E5%B9%B4%E8%BD%BB%E5%8F%AF%E4%BB%A5%E6%94%B9%E5%8F%98%20%E6%A0%91%E5%BE%88%E8%80%81%E5%AE%83%E5%8F%AA%E8%83%BD%E6%96%AD&Refer=top) `1.0M 🔥`
-1. [北京最后一家狗不理门店停业](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%9C%80%E5%90%8E%E4%B8%80%E5%AE%B6%E7%8B%97%E4%B8%8D%E7%90%86%E9%97%A8%E5%BA%97%E5%81%9C%E4%B8%9A&Refer=top) `975.3K 🔥`
+1. [北京最后一家狗不理门店停业](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%9C%80%E5%90%8E%E4%B8%80%E5%AE%B6%E7%8B%97%E4%B8%8D%E7%90%86%E9%97%A8%E5%BA%97%E5%81%9C%E4%B8%9A%23&Refer=top) `1.0M 🔥`
 1. [F1](https://s.weibo.com/weibo?q=F1&Refer=top) `895.1K 🔥`
 1. [明年中国整形市场规模将达3000亿元](https://s.weibo.com/weibo?q=%23%E6%98%8E%E5%B9%B4%E4%B8%AD%E5%9B%BD%E6%95%B4%E5%BD%A2%E5%B8%82%E5%9C%BA%E8%A7%84%E6%A8%A1%E5%B0%86%E8%BE%BE3000%E4%BA%BF%E5%85%83%23&Refer=top) `860.8K 🔥`
 1. [新疆棉农种了100亩地不好意思说](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%A3%89%E5%86%9C%E7%A7%8D%E4%BA%86100%E4%BA%A9%E5%9C%B0%E4%B8%8D%E5%A5%BD%E6%84%8F%E6%80%9D%E8%AF%B4%23&Refer=top) `842.8K 🔥`
@@ -46,6 +46,7 @@
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `683.0K 🔥`
 1. [张萌说女嘉宾不应该因为优秀被灭灯](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%90%8C%E8%AF%B4%E5%A5%B3%E5%98%89%E5%AE%BE%E4%B8%8D%E5%BA%94%E8%AF%A5%E5%9B%A0%E4%B8%BA%E4%BC%98%E7%A7%80%E8%A2%AB%E7%81%AD%E7%81%AF%23&Refer=top) `683.0K 🔥`
 1. [李俊濠排名](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BF%8A%E6%BF%A0%E6%8E%92%E5%90%8D%23&Refer=top) `643.4K 🔥`
+1. [韩国低生育率或致高校倒闭潮](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E4%BD%8E%E7%94%9F%E8%82%B2%E7%8E%87%E6%88%96%E8%87%B4%E9%AB%98%E6%A0%A1%E5%80%92%E9%97%AD%E6%BD%AE%23&Refer=top) `617.9K 🔥`
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `601.0K 🔥`
 1. [王嘉尔用六种语言直播](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E7%94%A8%E5%85%AD%E7%A7%8D%E8%AF%AD%E8%A8%80%E7%9B%B4%E6%92%AD%23&Refer=top) `590.2K 🔥`
 1. [岳云鹏第一次不想努力](https://s.weibo.com/weibo?q=%23%E5%B2%B3%E4%BA%91%E9%B9%8F%E7%AC%AC%E4%B8%80%E6%AC%A1%E4%B8%8D%E6%83%B3%E5%8A%AA%E5%8A%9B%23&Refer=top) `571.0K 🔥`
@@ -55,9 +56,8 @@
 1. [马泽平](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%B3%BD%E5%B9%B3&Refer=top) `529.8K 🔥`
 1. [Viper的霞](https://s.weibo.com/weibo?q=Viper%E7%9A%84%E9%9C%9E&Refer=top) `524.6K 🔥`
 1. [黄山景区回应游客闯迎客松保护区](https://s.weibo.com/weibo?q=%E9%BB%84%E5%B1%B1%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E6%B8%B8%E5%AE%A2%E9%97%AF%E8%BF%8E%E5%AE%A2%E6%9D%BE%E4%BF%9D%E6%8A%A4%E5%8C%BA&Refer=top) `522.9K 🔥`
-1. [余景天第一](https://s.weibo.com/weibo?q=%E4%BD%99%E6%99%AF%E5%A4%A9%E7%AC%AC%E4%B8%80&Refer=top) `521.8K 🔥`
 
-数据更新于 2021-03-29 09:40:05
+数据更新于 2021-03-29 10:07:17
 
 <!-- END -->
 
