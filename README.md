@@ -54,10 +54,10 @@
 1. [我的姐姐](https://s.weibo.com/weibo?q=%E6%88%91%E7%9A%84%E5%A7%90%E5%A7%90&Refer=top) `214.5K 🔥`
 1. [主人含泪为退役导盲犬找领养家庭](https://s.weibo.com/weibo?q=%23%E4%B8%BB%E4%BA%BA%E5%90%AB%E6%B3%AA%E4%B8%BA%E9%80%80%E5%BD%B9%E5%AF%BC%E7%9B%B2%E7%8A%AC%E6%89%BE%E9%A2%86%E5%85%BB%E5%AE%B6%E5%BA%AD%23&Refer=top) `198.5K 🔥`
 1. [夫妻家庭地位由经济决定吗](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E5%AE%B6%E5%BA%AD%E5%9C%B0%E4%BD%8D%E7%94%B1%E7%BB%8F%E6%B5%8E%E5%86%B3%E5%AE%9A%E5%90%97%23&Refer=top) `182.8K 🔥`
-1. [心疼长歌](https://s.weibo.com/weibo?q=%23%E5%BF%83%E7%96%BC%E9%95%BF%E6%AD%8C%23&Refer=top) `137.1K 🔥`
-1. [龚俊跟薇娅说女儿取名龚得起](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%B7%9F%E8%96%87%E5%A8%85%E8%AF%B4%E5%A5%B3%E5%84%BF%E5%8F%96%E5%90%8D%E9%BE%9A%E5%BE%97%E8%B5%B7%23&Refer=top) `133.6K 🔥`
+1. [龚俊跟薇娅说女儿取名龚得起](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%B7%9F%E8%96%87%E5%A8%85%E8%AF%B4%E5%A5%B3%E5%84%BF%E5%8F%96%E5%90%8D%E9%BE%9A%E5%BE%97%E8%B5%B7%23&Refer=top) `159.5K 🔥`
+1. [BTS新歌](https://s.weibo.com/weibo?q=BTS%E6%96%B0%E6%AD%8C&Refer=top) `155.8K 🔥`
 
-数据更新于 2021-04-02 01:06:55
+数据更新于 2021-04-02 01:31:51
 
 <!-- END -->
 
