@@ -57,7 +57,7 @@
 1. [北京健身房设七天冷静期](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%81%A5%E8%BA%AB%E6%88%BF%E8%AE%BE%E4%B8%83%E5%A4%A9%E5%86%B7%E9%9D%99%E6%9C%9F%23&Refer=top) `1.3M 🔥`
 1. [五百万够普通家庭用多久](https://s.weibo.com/weibo?q=%23%E4%BA%94%E7%99%BE%E4%B8%87%E5%A4%9F%E6%99%AE%E9%80%9A%E5%AE%B6%E5%BA%AD%E7%94%A8%E5%A4%9A%E4%B9%85%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-04-01 18:54:52
+数据更新于 2021-04-01 19:00:55
 
 <!-- END -->
 
