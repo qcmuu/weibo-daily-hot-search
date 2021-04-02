@@ -11,6 +11,7 @@
 1. [沈腾追Angelababy时摔倒](https://s.weibo.com/weibo?q=%E6%B2%88%E8%85%BE%E8%BF%BDAngelababy%E6%97%B6%E6%91%94%E5%80%92&Refer=top) `5.1M 🔥`
 1. [等等让孙俪去医院看看头脑](https://s.weibo.com/weibo?q=%23%E7%AD%89%E7%AD%89%E8%AE%A9%E5%AD%99%E4%BF%AA%E5%8E%BB%E5%8C%BB%E9%99%A2%E7%9C%8B%E7%9C%8B%E5%A4%B4%E8%84%91%23&Refer=top) `4.7M 🔥`
 1. [脸书将删除所有带特朗普声音的内容](https://s.weibo.com/weibo?q=%23%E8%84%B8%E4%B9%A6%E5%B0%86%E5%88%A0%E9%99%A4%E6%89%80%E6%9C%89%E5%B8%A6%E7%89%B9%E6%9C%97%E6%99%AE%E5%A3%B0%E9%9F%B3%E7%9A%84%E5%86%85%E5%AE%B9%23&Refer=top) `3.6M 🔥`
+1. [台铁脱轨事故仍有200人等待救援](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E4%BA%8B%E6%95%85%E4%BB%8D%E6%9C%89200%E4%BA%BA%E7%AD%89%E5%BE%85%E6%95%91%E6%8F%B4&Refer=top) `3.6M 🔥`
 1. [陈小纭 讨论抨击我都接受](https://s.weibo.com/weibo?q=%E9%99%88%E5%B0%8F%E7%BA%AD%20%E8%AE%A8%E8%AE%BA%E6%8A%A8%E5%87%BB%E6%88%91%E9%83%BD%E6%8E%A5%E5%8F%97&Refer=top) `3.4M 🔥`
 1. [我国每68名孩子中约有1名患自闭症](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%AF%8F68%E5%90%8D%E5%AD%A9%E5%AD%90%E4%B8%AD%E7%BA%A6%E6%9C%891%E5%90%8D%E6%82%A3%E8%87%AA%E9%97%AD%E7%97%87%23&Refer=top) `3.4M 🔥`
 1. [深圳茶颜悦色已排队3万号](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E5%B7%B2%E6%8E%92%E9%98%9F3%E4%B8%87%E5%8F%B7%23&Refer=top) `3.2M 🔥`
@@ -26,7 +27,6 @@
 1. [张子枫演技](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%BC%94%E6%8A%80&Refer=top) `2.3M 🔥`
 1. [央视评HM伤疤未好又闯祸](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E4%BC%A4%E7%96%A4%E6%9C%AA%E5%A5%BD%E5%8F%88%E9%97%AF%E7%A5%B8%23&Refer=top) `2.3M 🔥`
 1. [欢天喜地七仙女重聚 爷青回](https://s.weibo.com/weibo?q=%E6%AC%A2%E5%A4%A9%E5%96%9C%E5%9C%B0%E4%B8%83%E4%BB%99%E5%A5%B3%E9%87%8D%E8%81%9A%20%E7%88%B7%E9%9D%92%E5%9B%9E&Refer=top) `2.3M 🔥`
-1. [台铁脱轨事故仍有200人等待救援](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E4%BA%8B%E6%95%85%E4%BB%8D%E6%9C%89200%E4%BA%BA%E7%AD%89%E5%BE%85%E6%95%91%E6%8F%B4&Refer=top) `2.3M 🔥`
 1. [林依轮两个儿子同台走秀](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BE%9D%E8%BD%AE%E4%B8%A4%E4%B8%AA%E5%84%BF%E5%AD%90%E5%90%8C%E5%8F%B0%E8%B5%B0%E7%A7%80%23&Refer=top) `2.2M 🔥`
 1. [杨丞琳说心疼吴青峰](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B8%9E%E7%90%B3%E8%AF%B4%E5%BF%83%E7%96%BC%E5%90%B4%E9%9D%92%E5%B3%B0&Refer=top) `2.1M 🔥`
 1. [龚俊工作室](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E5%B7%A5%E4%BD%9C%E5%AE%A4&Refer=top) `2.1M 🔥`
@@ -48,16 +48,16 @@
 1. [李荣浩说同事给他拍的照片像村痞](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%E8%AF%B4%E5%90%8C%E4%BA%8B%E7%BB%99%E4%BB%96%E6%8B%8D%E7%9A%84%E7%85%A7%E7%89%87%E5%83%8F%E6%9D%91%E7%97%9E&Refer=top) `1.6M 🔥`
 1. [清明假期全国天气预报地图](https://s.weibo.com/weibo?q=%23%E6%B8%85%E6%98%8E%E5%81%87%E6%9C%9F%E5%85%A8%E5%9B%BD%E5%A4%A9%E6%B0%94%E9%A2%84%E6%8A%A5%E5%9C%B0%E5%9B%BE%23&Refer=top) `1.5M 🔥`
 1. [利路修 天生爱豆](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%20%E5%A4%A9%E7%94%9F%E7%88%B1%E8%B1%86&Refer=top) `1.4M 🔥`
+1. [于小雨宣布退役](https://s.weibo.com/weibo?q=%E4%BA%8E%E5%B0%8F%E9%9B%A8%E5%AE%A3%E5%B8%83%E9%80%80%E5%BD%B9&Refer=top) `1.4M 🔥`
+1. [仅1个月巴西近6.7万人死于新冠](https://s.weibo.com/weibo?q=%E4%BB%851%E4%B8%AA%E6%9C%88%E5%B7%B4%E8%A5%BF%E8%BF%916.7%E4%B8%87%E4%BA%BA%E6%AD%BB%E4%BA%8E%E6%96%B0%E5%86%A0&Refer=top) `1.4M 🔥`
 1. [教育部明确3个重要时间保睡眠](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E6%98%8E%E7%A1%AE3%E4%B8%AA%E9%87%8D%E8%A6%81%E6%97%B6%E9%97%B4%E4%BF%9D%E7%9D%A1%E7%9C%A0%23&Refer=top) `1.4M 🔥`
 1. [吴磊台词 攻或不攻我自有考量](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%E5%8F%B0%E8%AF%8D%20%E6%94%BB%E6%88%96%E4%B8%8D%E6%94%BB%E6%88%91%E8%87%AA%E6%9C%89%E8%80%83%E9%87%8F&Refer=top) `1.4M 🔥`
 1. [华春莹要求日方停止搬弄是非](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E8%A6%81%E6%B1%82%E6%97%A5%E6%96%B9%E5%81%9C%E6%AD%A2%E6%90%AC%E5%BC%84%E6%98%AF%E9%9D%9E%23&Refer=top) `1.4M 🔥`
+1. [范丞丞穿女装比薇娅好看](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E7%A9%BF%E5%A5%B3%E8%A3%85%E6%AF%94%E8%96%87%E5%A8%85%E5%A5%BD%E7%9C%8B%23&Refer=top) `1.3M 🔥`
 1. [米佧把邢克垒吻懵了](https://s.weibo.com/weibo?q=%23%E7%B1%B3%E4%BD%A7%E6%8A%8A%E9%82%A2%E5%85%8B%E5%9E%92%E5%90%BB%E6%87%B5%E4%BA%86%23&Refer=top) `1.3M 🔥`
-1. [仅1个月巴西近6.7万人死于新冠](https://s.weibo.com/weibo?q=%E4%BB%851%E4%B8%AA%E6%9C%88%E5%B7%B4%E8%A5%BF%E8%BF%916.7%E4%B8%87%E4%BA%BA%E6%AD%BB%E4%BA%8E%E6%96%B0%E5%86%A0&Refer=top) `1.3M 🔥`
 1. [云南耿马发现1例无症状感染者](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%80%BF%E9%A9%AC%E5%8F%91%E7%8E%B01%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85%23&Refer=top) `1.2M 🔥`
-1. [Angelababy问沈腾她和杨幂谁好看](https://s.weibo.com/weibo?q=%23Angelababy%E9%97%AE%E6%B2%88%E8%85%BE%E5%A5%B9%E5%92%8C%E6%9D%A8%E5%B9%82%E8%B0%81%E5%A5%BD%E7%9C%8B%23&Refer=top) `1.2M 🔥`
-1. [张杰晒昔日视频送别赵英俊](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%9D%B0%E6%99%92%E6%98%94%E6%97%A5%E8%A7%86%E9%A2%91%E9%80%81%E5%88%AB%E8%B5%B5%E8%8B%B1%E4%BF%8A&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-02 23:14:42
+数据更新于 2021-04-02 23:28:14
 
 <!-- END -->
 
