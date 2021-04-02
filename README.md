@@ -36,6 +36,7 @@
 1. [20多国使节新疆参观后称眼见为实](https://s.weibo.com/weibo?q=%2320%E5%A4%9A%E5%9B%BD%E4%BD%BF%E8%8A%82%E6%96%B0%E7%96%86%E5%8F%82%E8%A7%82%E5%90%8E%E7%A7%B0%E7%9C%BC%E8%A7%81%E4%B8%BA%E5%AE%9E%23&Refer=top) `1.6M 🔥`
 1. [李荣浩说同事给他拍的照片像村痞](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%E8%AF%B4%E5%90%8C%E4%BA%8B%E7%BB%99%E4%BB%96%E6%8B%8D%E7%9A%84%E7%85%A7%E7%89%87%E5%83%8F%E6%9D%91%E7%97%9E&Refer=top) `1.6M 🔥`
 1. [清明假期全国天气预报地图](https://s.weibo.com/weibo?q=%23%E6%B8%85%E6%98%8E%E5%81%87%E6%9C%9F%E5%85%A8%E5%9B%BD%E5%A4%A9%E6%B0%94%E9%A2%84%E6%8A%A5%E5%9C%B0%E5%9B%BE%23&Refer=top) `1.5M 🔥`
+1. [王牌对王牌](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C&Refer=top) `1.4M 🔥`
 1. [利路修 天生爱豆](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%20%E5%A4%A9%E7%94%9F%E7%88%B1%E8%B1%86&Refer=top) `1.4M 🔥`
 1. [教育部明确3个重要时间保睡眠](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E6%98%8E%E7%A1%AE3%E4%B8%AA%E9%87%8D%E8%A6%81%E6%97%B6%E9%97%B4%E4%BF%9D%E7%9D%A1%E7%9C%A0%23&Refer=top) `1.4M 🔥`
 1. [吴磊台词 攻或不攻我自有考量](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%E5%8F%B0%E8%AF%8D%20%E6%94%BB%E6%88%96%E4%B8%8D%E6%94%BB%E6%88%91%E8%87%AA%E6%9C%89%E8%80%83%E9%87%8F&Refer=top) `1.4M 🔥`
@@ -50,14 +51,13 @@
 1. [罗永浩称6亿债务年底还完](https://s.weibo.com/weibo?q=%23%E7%BD%97%E6%B0%B8%E6%B5%A9%E7%A7%B06%E4%BA%BF%E5%80%BA%E5%8A%A1%E5%B9%B4%E5%BA%95%E8%BF%98%E5%AE%8C%23&Refer=top) `1.1M 🔥`
 1. [山东婚姻登记照相全省免费](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A9%9A%E5%A7%BB%E7%99%BB%E8%AE%B0%E7%85%A7%E7%9B%B8%E5%85%A8%E7%9C%81%E5%85%8D%E8%B4%B9%23&Refer=top) `1.1M 🔥`
 1. [Schoolgirlbyebye成员自曝学术造假](https://s.weibo.com/weibo?q=%23Schoolgirlbyebye%E6%88%90%E5%91%98%E8%87%AA%E6%9B%9D%E5%AD%A6%E6%9C%AF%E9%80%A0%E5%81%87%23&Refer=top) `1.1M 🔥`
+1. [多所高校开设死亡教育课](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%89%80%E9%AB%98%E6%A0%A1%E5%BC%80%E8%AE%BE%E6%AD%BB%E4%BA%A1%E6%95%99%E8%82%B2%E8%AF%BE%23&Refer=top) `1.1M 🔥`
 1. [塞尔维亚总统采访中力挺中国](https://s.weibo.com/weibo?q=%23%E5%A1%9E%E5%B0%94%E7%BB%B4%E4%BA%9A%E6%80%BB%E7%BB%9F%E9%87%87%E8%AE%BF%E4%B8%AD%E5%8A%9B%E6%8C%BA%E4%B8%AD%E5%9B%BD%23&Refer=top) `1.1M 🔥`
 1. [新疆问题教材使用长达13年](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%97%AE%E9%A2%98%E6%95%99%E6%9D%90%E4%BD%BF%E7%94%A8%E9%95%BF%E8%BE%BE13%E5%B9%B4%23&Refer=top) `1.1M 🔥`
 1. [广东省考成绩](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%B8%9C%E7%9C%81%E8%80%83%E6%88%90%E7%BB%A9&Refer=top) `1.0M 🔥`
 1. [中棉协邀请国外行业协会赴新疆调研](https://s.weibo.com/weibo?q=%E4%B8%AD%E6%A3%89%E5%8D%8F%E9%82%80%E8%AF%B7%E5%9B%BD%E5%A4%96%E8%A1%8C%E4%B8%9A%E5%8D%8F%E4%BC%9A%E8%B5%B4%E6%96%B0%E7%96%86%E8%B0%83%E7%A0%94&Refer=top) `1.0M 🔥`
-1. [极端分子脑中的天堂什么样](https://s.weibo.com/weibo?q=%23%E6%9E%81%E7%AB%AF%E5%88%86%E5%AD%90%E8%84%91%E4%B8%AD%E7%9A%84%E5%A4%A9%E5%A0%82%E4%BB%80%E4%B9%88%E6%A0%B7%23&Refer=top) `1.0M 🔥`
-1. [ATM机一年减少8万台](https://s.weibo.com/weibo?q=ATM%E6%9C%BA%E4%B8%80%E5%B9%B4%E5%87%8F%E5%B0%918%E4%B8%87%E5%8F%B0&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-04-02 20:45:26
+数据更新于 2021-04-02 21:00:34
 
 <!-- END -->
 
