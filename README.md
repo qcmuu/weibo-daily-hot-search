@@ -15,12 +15,13 @@
 1. [台铁列车脱轨事故已35人无生命迹象](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%93%81%E5%88%97%E8%BD%A6%E8%84%B1%E8%BD%A8%E4%BA%8B%E6%95%85%E5%B7%B235%E4%BA%BA%E6%97%A0%E7%94%9F%E5%91%BD%E8%BF%B9%E8%B1%A1%23&Refer=top) `2.4M 🔥`
 1. [林依轮两个儿子同台走秀](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BE%9D%E8%BD%AE%E4%B8%A4%E4%B8%AA%E5%84%BF%E5%AD%90%E5%90%8C%E5%8F%B0%E8%B5%B0%E7%A7%80%23&Refer=top) `2.2M 🔥`
 1. [杨丞琳说心疼吴青峰](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B8%9E%E7%90%B3%E8%AF%B4%E5%BF%83%E7%96%BC%E5%90%B4%E9%9D%92%E5%B3%B0&Refer=top) `2.1M 🔥`
+1. [多名证人称弗洛伊德在案发现场已死亡](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%90%8D%E8%AF%81%E4%BA%BA%E7%A7%B0%E5%BC%97%E6%B4%9B%E4%BC%8A%E5%BE%B7%E5%9C%A8%E6%A1%88%E5%8F%91%E7%8E%B0%E5%9C%BA%E5%B7%B2%E6%AD%BB%E4%BA%A1%23&Refer=top) `2.1M 🔥`
 1. [男子微信群聊中辱骂烈士被刑拘](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%BE%AE%E4%BF%A1%E7%BE%A4%E8%81%8A%E4%B8%AD%E8%BE%B1%E9%AA%82%E7%83%88%E5%A3%AB%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `2.1M 🔥`
-1. [多名证人称弗洛伊德在案发现场已死亡](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%90%8D%E8%AF%81%E4%BA%BA%E7%A7%B0%E5%BC%97%E6%B4%9B%E4%BC%8A%E5%BE%B7%E5%9C%A8%E6%A1%88%E5%8F%91%E7%8E%B0%E5%9C%BA%E5%B7%B2%E6%AD%BB%E4%BA%A1%23&Refer=top) `2.0M 🔥`
 1. [30秒了解女性打新冠疫苗要点](https://s.weibo.com/weibo?q=%2330%E7%A7%92%E4%BA%86%E8%A7%A3%E5%A5%B3%E6%80%A7%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%A6%81%E7%82%B9%23&Refer=top) `1.9M 🔥`
 1. [蒋勤勤 建斌诗集随手一翻好多错字](https://s.weibo.com/weibo?q=%E8%92%8B%E5%8B%A4%E5%8B%A4%20%E5%BB%BA%E6%96%8C%E8%AF%97%E9%9B%86%E9%9A%8F%E6%89%8B%E4%B8%80%E7%BF%BB%E5%A5%BD%E5%A4%9A%E9%94%99%E5%AD%97&Refer=top) `1.8M 🔥`
 1. [十年一品温如言选角](https://s.weibo.com/weibo?q=%E5%8D%81%E5%B9%B4%E4%B8%80%E5%93%81%E6%B8%A9%E5%A6%82%E8%A8%80%E9%80%89%E8%A7%92&Refer=top) `1.8M 🔥`
 1. [迪丽热巴赵露思CP名](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%B5%B5%E9%9C%B2%E6%80%9DCP%E5%90%8D%23&Refer=top) `1.8M 🔥`
+1. [刘昊然说袜子不同色是fashion](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E8%AF%B4%E8%A2%9C%E5%AD%90%E4%B8%8D%E5%90%8C%E8%89%B2%E6%98%AFfashion%23&Refer=top) `1.7M 🔥`
 1. [李荣浩说同事给他拍的照片像村痞](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%E8%AF%B4%E5%90%8C%E4%BA%8B%E7%BB%99%E4%BB%96%E6%8B%8D%E7%9A%84%E7%85%A7%E7%89%87%E5%83%8F%E6%9D%91%E7%97%9E&Refer=top) `1.6M 🔥`
 1. [清明假期全国天气预报地图](https://s.weibo.com/weibo?q=%23%E6%B8%85%E6%98%8E%E5%81%87%E6%9C%9F%E5%85%A8%E5%9B%BD%E5%A4%A9%E6%B0%94%E9%A2%84%E6%8A%A5%E5%9C%B0%E5%9B%BE%23&Refer=top) `1.5M 🔥`
 1. [教育部明确3个重要时间保睡眠](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E6%98%8E%E7%A1%AE3%E4%B8%AA%E9%87%8D%E8%A6%81%E6%97%B6%E9%97%B4%E4%BF%9D%E7%9D%A1%E7%9C%A0%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [Rookie 最近状态有点低迷对不起大家](https://s.weibo.com/weibo?q=Rookie%20%E6%9C%80%E8%BF%91%E7%8A%B6%E6%80%81%E6%9C%89%E7%82%B9%E4%BD%8E%E8%BF%B7%E5%AF%B9%E4%B8%8D%E8%B5%B7%E5%A4%A7%E5%AE%B6&Refer=top) `809.8K 🔥`
 1. [银行取款进入刷脸时代](https://s.weibo.com/weibo?q=%23%E9%93%B6%E8%A1%8C%E5%8F%96%E6%AC%BE%E8%BF%9B%E5%85%A5%E5%88%B7%E8%84%B8%E6%97%B6%E4%BB%A3%23&Refer=top) `809.0K 🔥`
 1. [86岁的院士打疫苗](https://s.weibo.com/weibo?q=%2386%E5%B2%81%E7%9A%84%E9%99%A2%E5%A3%AB%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `808.0K 🔥`
-1. [95岁一等功老兵深藏功名72年](https://s.weibo.com/weibo?q=%2395%E5%B2%81%E4%B8%80%E7%AD%89%E5%8A%9F%E8%80%81%E5%85%B5%E6%B7%B1%E8%97%8F%E5%8A%9F%E5%90%8D72%E5%B9%B4%23&Refer=top) `804.2K 🔥`
 
-数据更新于 2021-04-02 16:14:58
+数据更新于 2021-04-02 16:29:18
 
 <!-- END -->
 
