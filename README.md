@@ -57,7 +57,7 @@
 1. [最强大脑](https://s.weibo.com/weibo?q=%E6%9C%80%E5%BC%BA%E5%A4%A7%E8%84%91&Refer=top) `220.1K 🔥`
 1. [LPL](https://s.weibo.com/weibo?q=LPL&Refer=top) `173.2K 🔥`
 
-数据更新于 2021-04-03 01:02:26
+数据更新于 2021-04-03 01:27:00
 
 <!-- END -->
 
