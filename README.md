@@ -57,7 +57,7 @@
 1. [央视评HM伤疤未好又闯祸](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E4%BC%A4%E7%96%A4%E6%9C%AA%E5%A5%BD%E5%8F%88%E9%97%AF%E7%A5%B8%23&Refer=top) `1.2M 🔥`
 1. [多所高校开设死亡教育课](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%89%80%E9%AB%98%E6%A0%A1%E5%BC%80%E8%AE%BE%E6%AD%BB%E4%BA%A1%E6%95%99%E8%82%B2%E8%AF%BE%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-03 19:51:12
+数据更新于 2021-04-03 19:57:06
 
 <!-- END -->
 
