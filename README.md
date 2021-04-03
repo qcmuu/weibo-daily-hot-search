@@ -40,9 +40,10 @@
 1. [吴允熙自首](https://s.weibo.com/weibo?q=%E5%90%B4%E5%85%81%E7%86%99%E8%87%AA%E9%A6%96&Refer=top) `1.1M 🔥`
 1. [范丞丞穿女装比薇娅好看](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E7%A9%BF%E5%A5%B3%E8%A3%85%E6%AF%94%E8%96%87%E5%A8%85%E5%A5%BD%E7%9C%8B%23&Refer=top) `1.1M 🔥`
 1. [迅猛龙](https://s.weibo.com/weibo?q=%E8%BF%85%E7%8C%9B%E9%BE%99&Refer=top) `1.1M 🔥`
+1. [吴磊把粉丝送的笋吃了](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E6%8A%8A%E7%B2%89%E4%B8%9D%E9%80%81%E7%9A%84%E7%AC%8B%E5%90%83%E4%BA%86%23&Refer=top) `985.5K 🔥`
 1. [记者播报时被狗狗抢走话筒](https://s.weibo.com/weibo?q=%E8%AE%B0%E8%80%85%E6%92%AD%E6%8A%A5%E6%97%B6%E8%A2%AB%E7%8B%97%E7%8B%97%E6%8A%A2%E8%B5%B0%E8%AF%9D%E7%AD%92&Refer=top) `887.8K 🔥`
 1. [坐高铁通勤是什么体验](https://s.weibo.com/weibo?q=%23%E5%9D%90%E9%AB%98%E9%93%81%E9%80%9A%E5%8B%A4%E6%98%AF%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `855.6K 🔥`
-1. [科研人员发现中医经络存在证据](https://s.weibo.com/weibo?q=%E7%A7%91%E7%A0%94%E4%BA%BA%E5%91%98%E5%8F%91%E7%8E%B0%E4%B8%AD%E5%8C%BB%E7%BB%8F%E7%BB%9C%E5%AD%98%E5%9C%A8%E8%AF%81%E6%8D%AE&Refer=top) `833.4K 🔥`
+1. [科研人员发现中医经络存在证据](https://s.weibo.com/weibo?q=%23%E7%A7%91%E7%A0%94%E4%BA%BA%E5%91%98%E5%8F%91%E7%8E%B0%E4%B8%AD%E5%8C%BB%E7%BB%8F%E7%BB%9C%E5%AD%98%E5%9C%A8%E8%AF%81%E6%8D%AE%23&Refer=top) `846.6K 🔥`
 1. [妈妈在陈红军墓前摆满他爱吃的菜](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%9C%A8%E9%99%88%E7%BA%A2%E5%86%9B%E5%A2%93%E5%89%8D%E6%91%86%E6%BB%A1%E4%BB%96%E7%88%B1%E5%90%83%E7%9A%84%E8%8F%9C%23&Refer=top) `822.3K 🔥`
 1. [拜登下令白宫降半旗向埃文斯致哀](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E4%B8%8B%E4%BB%A4%E7%99%BD%E5%AE%AB%E9%99%8D%E5%8D%8A%E6%97%97%E5%90%91%E5%9F%83%E6%96%87%E6%96%AF%E8%87%B4%E5%93%80%23&Refer=top) `814.2K 🔥`
 1. [椰树集团发文称广告没违法](https://s.weibo.com/weibo?q=%E6%A4%B0%E6%A0%91%E9%9B%86%E5%9B%A2%E5%8F%91%E6%96%87%E7%A7%B0%E5%B9%BF%E5%91%8A%E6%B2%A1%E8%BF%9D%E6%B3%95&Refer=top) `751.9K 🔥`
@@ -55,9 +56,8 @@
 1. [对付猫的一百种损招](https://s.weibo.com/weibo?q=%23%E5%AF%B9%E4%BB%98%E7%8C%AB%E7%9A%84%E4%B8%80%E7%99%BE%E7%A7%8D%E6%8D%9F%E6%8B%9B%23&Refer=top) `658.4K 🔥`
 1. [见过最草率的名字](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E8%8D%89%E7%8E%87%E7%9A%84%E5%90%8D%E5%AD%97%23&Refer=top) `650.8K 🔥`
 1. [大张伟模仿黄晓明](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%BC%A0%E4%BC%9F%E6%A8%A1%E4%BB%BF%E9%BB%84%E6%99%93%E6%98%8E%23&Refer=top) `650.4K 🔥`
-1. [Angelababy晒樱花自拍](https://s.weibo.com/weibo?q=%23Angelababy%E6%99%92%E6%A8%B1%E8%8A%B1%E8%87%AA%E6%8B%8D%23&Refer=top) `636.3K 🔥`
 
-数据更新于 2021-04-03 14:12:22
+数据更新于 2021-04-03 14:25:27
 
 <!-- END -->
 
