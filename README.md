@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [陈思诚原想把张子枫吻戏留给刘昊然](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%80%9D%E8%AF%9A%E5%8E%9F%E6%83%B3%E6%8A%8A%E5%BC%A0%E5%AD%90%E6%9E%AB%E5%90%BB%E6%88%8F%E7%95%99%E7%BB%99%E5%88%98%E6%98%8A%E7%84%B6%23&Refer=top) `4.4M 🔥`
+1. [韩美娟被淘汰](https://s.weibo.com/weibo?q=%E9%9F%A9%E7%BE%8E%E5%A8%9F%E8%A2%AB%E6%B7%98%E6%B1%B0&Refer=top) `4.1M 🔥`
 1. [男子回家扫墓见孤单父亲大哭](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%9B%9E%E5%AE%B6%E6%89%AB%E5%A2%93%E8%A7%81%E5%AD%A4%E5%8D%95%E7%88%B6%E4%BA%B2%E5%A4%A7%E5%93%AD%23&Refer=top) `4.0M 🔥`
 1. [王一博 将门毒后](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%20%E5%B0%86%E9%97%A8%E6%AF%92%E5%90%8E&Refer=top) `3.9M 🔥`
-1. [韩美娟被淘汰](https://s.weibo.com/weibo?q=%E9%9F%A9%E7%BE%8E%E5%A8%9F%E8%A2%AB%E6%B7%98%E6%B1%B0&Refer=top) `3.9M 🔥`
 1. [白敬亭脱鞋脱了个寂寞](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E8%84%B1%E9%9E%8B%E8%84%B1%E4%BA%86%E4%B8%AA%E5%AF%82%E5%AF%9E%23&Refer=top) `3.6M 🔥`
 1. [台铁脱轨事故仍有200人等待救援](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E4%BA%8B%E6%95%85%E4%BB%8D%E6%9C%89200%E4%BA%BA%E7%AD%89%E5%BE%85%E6%95%91%E6%8F%B4%23&Refer=top) `3.6M 🔥`
 1. [沈腾追Angelababy时摔倒](https://s.weibo.com/weibo?q=%E6%B2%88%E8%85%BE%E8%BF%BDAngelababy%E6%97%B6%E6%91%94%E5%80%92&Refer=top) `3.6M 🔥`
@@ -57,7 +57,7 @@
 1. [杨紫 救场](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%95%91%E5%9C%BA&Refer=top) `1.2M 🔥`
 1. [顶楼主演囚服自拍](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E4%B8%BB%E6%BC%94%E5%9B%9A%E6%9C%8D%E8%87%AA%E6%8B%8D%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-03 21:02:08
+数据更新于 2021-04-03 21:13:36
 
 <!-- END -->
 
