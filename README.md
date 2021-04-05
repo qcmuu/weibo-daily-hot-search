@@ -32,6 +32,7 @@
 1. [我国已有五款新冠病毒疫苗获批使用](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E5%B7%B2%E6%9C%89%E4%BA%94%E6%AC%BE%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E8%8E%B7%E6%89%B9%E4%BD%BF%E7%94%A8%23&Refer=top) `1.8M 🔥`
 1. [司藤](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4&Refer=top) `1.7M 🔥`
 1. [民警牺牲数月女儿还在发微信找爸爸](https://s.weibo.com/weibo?q=%23%E6%B0%91%E8%AD%A6%E7%89%BA%E7%89%B2%E6%95%B0%E6%9C%88%E5%A5%B3%E5%84%BF%E8%BF%98%E5%9C%A8%E5%8F%91%E5%BE%AE%E4%BF%A1%E6%89%BE%E7%88%B8%E7%88%B8%23&Refer=top) `1.7M 🔥`
+1. [吐槽大会第五季冠军大张伟](https://s.weibo.com/weibo?q=%23%E5%90%90%E6%A7%BD%E5%A4%A7%E4%BC%9A%E7%AC%AC%E4%BA%94%E5%AD%A3%E5%86%A0%E5%86%9B%E5%A4%A7%E5%BC%A0%E4%BC%9F%23&Refer=top) `1.6M 🔥`
 1. [韩美娟最想和甘望星交换身体](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E7%BE%8E%E5%A8%9F%E6%9C%80%E6%83%B3%E5%92%8C%E7%94%98%E6%9C%9B%E6%98%9F%E4%BA%A4%E6%8D%A2%E8%BA%AB%E4%BD%93%23&Refer=top) `1.6M 🔥`
 1. [纽约上万人参加反歧视亚裔抗议活动](https://s.weibo.com/weibo?q=%E7%BA%BD%E7%BA%A6%E4%B8%8A%E4%B8%87%E4%BA%BA%E5%8F%82%E5%8A%A0%E5%8F%8D%E6%AD%A7%E8%A7%86%E4%BA%9A%E8%A3%94%E6%8A%97%E8%AE%AE%E6%B4%BB%E5%8A%A8&Refer=top) `1.6M 🔥`
 1. [怎么暗示领导这礼物很贵](https://s.weibo.com/weibo?q=%23%E6%80%8E%E4%B9%88%E6%9A%97%E7%A4%BA%E9%A2%86%E5%AF%BC%E8%BF%99%E7%A4%BC%E7%89%A9%E5%BE%88%E8%B4%B5%23&Refer=top) `1.6M 🔥`
@@ -55,9 +56,8 @@
 1. [cp可以冷门但不可以邪门](https://s.weibo.com/weibo?q=%23cp%E5%8F%AF%E4%BB%A5%E5%86%B7%E9%97%A8%E4%BD%86%E4%B8%8D%E5%8F%AF%E4%BB%A5%E9%82%AA%E9%97%A8%23&Refer=top) `1.2M 🔥`
 1. [密室大逃脱路透](https://s.weibo.com/weibo?q=%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1%E8%B7%AF%E9%80%8F&Refer=top) `1.2M 🔥`
 1. [云南新增15例确诊](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E15%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.2M 🔥`
-1. [西藏雪崩震撼全过程](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E8%97%8F%E9%9B%AA%E5%B4%A9%E9%9C%87%E6%92%BC%E5%85%A8%E8%BF%87%E7%A8%8B%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-05 21:18:01
+数据更新于 2021-04-05 21:33:04
 
 <!-- END -->
 
