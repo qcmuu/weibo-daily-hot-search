@@ -17,6 +17,8 @@
 1. [老人患阿尔兹海默症却记得烈士哥哥](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E6%82%A3%E9%98%BF%E5%B0%94%E5%85%B9%E6%B5%B7%E9%BB%98%E7%97%87%E5%8D%B4%E8%AE%B0%E5%BE%97%E7%83%88%E5%A3%AB%E5%93%A5%E5%93%A5%23&Refer=top) `2.4M 🔥`
 1. [虞书欣还原顶火锅事件](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%E8%BF%98%E5%8E%9F%E9%A1%B6%E7%81%AB%E9%94%85%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.2M 🔥`
 1. [纪委回应干部被外甥实名举报](https://s.weibo.com/weibo?q=%E7%BA%AA%E5%A7%94%E5%9B%9E%E5%BA%94%E5%B9%B2%E9%83%A8%E8%A2%AB%E5%A4%96%E7%94%A5%E5%AE%9E%E5%90%8D%E4%B8%BE%E6%8A%A5&Refer=top) `2.2M 🔥`
+1. [越来越多美国人假装疫情结束](https://s.weibo.com/weibo?q=%23%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%A4%9A%E7%BE%8E%E5%9B%BD%E4%BA%BA%E5%81%87%E8%A3%85%E7%96%AB%E6%83%85%E7%BB%93%E6%9D%9F%23&Refer=top) `2.2M 🔥`
+1. [黄俊捷道歉](https://s.weibo.com/weibo?q=%23%E9%BB%84%E4%BF%8A%E6%8D%B7%E9%81%93%E6%AD%89%23&Refer=top) `2.2M 🔥`
 1. [主人脚臭对猫的伤害](https://s.weibo.com/weibo?q=%23%E4%B8%BB%E4%BA%BA%E8%84%9A%E8%87%AD%E5%AF%B9%E7%8C%AB%E7%9A%84%E4%BC%A4%E5%AE%B3%23&Refer=top) `2.0M 🔥`
 1. [专家回应过敏体质能否打新冠疫苗](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E5%9B%9E%E5%BA%94%E8%BF%87%E6%95%8F%E4%BD%93%E8%B4%A8%E8%83%BD%E5%90%A6%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `2.0M 🔥`
 1. [LG宣布退出智能手机业务](https://s.weibo.com/weibo?q=LG%E5%AE%A3%E5%B8%83%E9%80%80%E5%87%BA%E6%99%BA%E8%83%BD%E6%89%8B%E6%9C%BA%E4%B8%9A%E5%8A%A1&Refer=top) `1.9M 🔥`
@@ -34,9 +36,9 @@
 1. [台铁脱轨肇事工程车负责人山坡观望](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E8%82%87%E4%BA%8B%E5%B7%A5%E7%A8%8B%E8%BD%A6%E8%B4%9F%E8%B4%A3%E4%BA%BA%E5%B1%B1%E5%9D%A1%E8%A7%82%E6%9C%9B&Refer=top) `1.3M 🔥`
 1. [沙僧被贬下界真的不冤](https://s.weibo.com/weibo?q=%23%E6%B2%99%E5%83%A7%E8%A2%AB%E8%B4%AC%E4%B8%8B%E7%95%8C%E7%9C%9F%E7%9A%84%E4%B8%8D%E5%86%A4%23&Refer=top) `1.3M 🔥`
 1. [广西钦州三名溺水女学生均不幸遇难](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E9%92%A6%E5%B7%9E%E4%B8%89%E5%90%8D%E6%BA%BA%E6%B0%B4%E5%A5%B3%E5%AD%A6%E7%94%9F%E5%9D%87%E4%B8%8D%E5%B9%B8%E9%81%87%E9%9A%BE%23&Refer=top) `1.3M 🔥`
+1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.3M 🔥`
 1. [意大利全国升为红色疫情防疫区](https://s.weibo.com/weibo?q=%23%E6%84%8F%E5%A4%A7%E5%88%A9%E5%85%A8%E5%9B%BD%E5%8D%87%E4%B8%BA%E7%BA%A2%E8%89%B2%E7%96%AB%E6%83%85%E9%98%B2%E7%96%AB%E5%8C%BA%23&Refer=top) `1.3M 🔥`
 1. [芒果降价了](https://s.weibo.com/weibo?q=%23%E8%8A%92%E6%9E%9C%E9%99%8D%E4%BB%B7%E4%BA%86%23&Refer=top) `1.2M 🔥`
-1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.2M 🔥`
 1. [云南新增15例确诊](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E15%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.2M 🔥`
 1. [刘娥封后](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A8%A5%E5%B0%81%E5%90%8E%23&Refer=top) `1.1M 🔥`
 1. [金莎 谁想做艺人还默默无名](https://s.weibo.com/weibo?q=%E9%87%91%E8%8E%8E%20%E8%B0%81%E6%83%B3%E5%81%9A%E8%89%BA%E4%BA%BA%E8%BF%98%E9%BB%98%E9%BB%98%E6%97%A0%E5%90%8D&Refer=top) `1.0M 🔥`
@@ -54,10 +56,8 @@
 1. [沈海高速交通事故4人仍在ICU抢救](https://s.weibo.com/weibo?q=%E6%B2%88%E6%B5%B7%E9%AB%98%E9%80%9F%E4%BA%A4%E9%80%9A%E4%BA%8B%E6%95%854%E4%BA%BA%E4%BB%8D%E5%9C%A8ICU%E6%8A%A2%E6%95%91&Refer=top) `738.6K 🔥`
 1. [李菲儿为假唱道歉](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8F%B2%E5%84%BF%E4%B8%BA%E5%81%87%E5%94%B1%E9%81%93%E6%AD%89%23&Refer=top) `737.8K 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `732.9K 🔥`
-1. [越来越多美国人假装疫情结束](https://s.weibo.com/weibo?q=%23%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%A4%9A%E7%BE%8E%E5%9B%BD%E4%BA%BA%E5%81%87%E8%A3%85%E7%96%AB%E6%83%85%E7%BB%93%E6%9D%9F%23&Refer=top) `727.5K 🔥`
-1. [黄俊捷道歉](https://s.weibo.com/weibo?q=%E9%BB%84%E4%BF%8A%E6%8D%B7%E9%81%93%E6%AD%89&Refer=top) `723.0K 🔥`
 
-数据更新于 2021-04-05 16:03:12
+数据更新于 2021-04-05 16:12:50
 
 <!-- END -->
 
