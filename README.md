@@ -13,6 +13,8 @@
 1. [地球上仅存2只北部白犀牛](https://s.weibo.com/weibo?q=%E5%9C%B0%E7%90%83%E4%B8%8A%E4%BB%85%E5%AD%982%E5%8F%AA%E5%8C%97%E9%83%A8%E7%99%BD%E7%8A%80%E7%89%9B&Refer=top) `1.1M 🔥`
 1. [VaVa说丁太昇吃了文化有限的亏](https://s.weibo.com/weibo?q=%23VaVa%E8%AF%B4%E4%B8%81%E5%A4%AA%E6%98%87%E5%90%83%E4%BA%86%E6%96%87%E5%8C%96%E6%9C%89%E9%99%90%E7%9A%84%E4%BA%8F%23&Refer=top) `1.0M 🔥`
 1. [陈乔恩艾伦接吻庆生照](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%B9%94%E6%81%A9%E8%89%BE%E4%BC%A6%E6%8E%A5%E5%90%BB%E5%BA%86%E7%94%9F%E7%85%A7%23&Refer=top) `981.8K 🔥`
+1. [18岁女生立遗嘱留2万元给朋友](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%A5%B3%E7%94%9F%E7%AB%8B%E9%81%97%E5%98%B1%E7%95%992%E4%B8%87%E5%85%83%E7%BB%99%E6%9C%8B%E5%8F%8B%23&Refer=top) `852.0K 🔥`
+1. [父女被困70米伏羲雕像](https://s.weibo.com/weibo?q=%E7%88%B6%E5%A5%B3%E8%A2%AB%E5%9B%B070%E7%B1%B3%E4%BC%8F%E7%BE%B2%E9%9B%95%E5%83%8F&Refer=top) `824.3K 🔥`
 1. [沈海高速交通事故4人仍在ICU抢救](https://s.weibo.com/weibo?q=%E6%B2%88%E6%B5%B7%E9%AB%98%E9%80%9F%E4%BA%A4%E9%80%9A%E4%BA%8B%E6%95%854%E4%BA%BA%E4%BB%8D%E5%9C%A8ICU%E6%8A%A2%E6%95%91&Refer=top) `738.6K 🔥`
 1. [李菲儿为假唱道歉](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8F%B2%E5%84%BF%E4%B8%BA%E5%81%87%E5%94%B1%E9%81%93%E6%AD%89%23&Refer=top) `737.8K 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `732.9K 🔥`
@@ -39,6 +41,7 @@
 1. [网友网上下单为戍边烈士肖思远送花](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E7%BD%91%E4%B8%8A%E4%B8%8B%E5%8D%95%E4%B8%BA%E6%88%8D%E8%BE%B9%E7%83%88%E5%A3%AB%E8%82%96%E6%80%9D%E8%BF%9C%E9%80%81%E8%8A%B1%23&Refer=top) `453.2K 🔥`
 1. [女孩为600多位烈士找到家人](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E4%B8%BA600%E5%A4%9A%E4%BD%8D%E7%83%88%E5%A3%AB%E6%89%BE%E5%88%B0%E5%AE%B6%E4%BA%BA%23&Refer=top) `453.0K 🔥`
 1. [米佧邢克垒订婚](https://s.weibo.com/weibo?q=%23%E7%B1%B3%E4%BD%A7%E9%82%A2%E5%85%8B%E5%9E%92%E8%AE%A2%E5%A9%9A%23&Refer=top) `434.3K 🔥`
+1. [广西钦州三名溺水女学生均不幸遇难](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E9%92%A6%E5%B7%9E%E4%B8%89%E5%90%8D%E6%BA%BA%E6%B0%B4%E5%A5%B3%E5%AD%A6%E7%94%9F%E5%9D%87%E4%B8%8D%E5%B9%B8%E9%81%87%E9%9A%BE%23&Refer=top) `412.9K 🔥`
 1. [吴海 三公撑腰王](https://s.weibo.com/weibo?q=%E5%90%B4%E6%B5%B7%20%E4%B8%89%E5%85%AC%E6%92%91%E8%85%B0%E7%8E%8B&Refer=top) `411.6K 🔥`
 1. [2021年共和国已痛失9位院士](https://s.weibo.com/weibo?q=%232021%E5%B9%B4%E5%85%B1%E5%92%8C%E5%9B%BD%E5%B7%B2%E7%97%9B%E5%A4%B19%E4%BD%8D%E9%99%A2%E5%A3%AB%23&Refer=top) `393.9K 🔥`
 1. [魏宏宇排名](https://s.weibo.com/weibo?q=%23%E9%AD%8F%E5%AE%8F%E5%AE%87%E6%8E%92%E5%90%8D%23&Refer=top) `390.3K 🔥`
@@ -53,11 +56,8 @@
 1. [马嘉祺私生](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%98%89%E7%A5%BA%E7%A7%81%E7%94%9F%23&Refer=top) `348.8K 🔥`
 1. [鲜花金鱼替换纸钱寄哀思](https://s.weibo.com/weibo?q=%23%E9%B2%9C%E8%8A%B1%E9%87%91%E9%B1%BC%E6%9B%BF%E6%8D%A2%E7%BA%B8%E9%92%B1%E5%AF%84%E5%93%80%E6%80%9D%23&Refer=top) `346.2K 🔥`
 1. [那兔清明特别版](https://s.weibo.com/weibo?q=%23%E9%82%A3%E5%85%94%E6%B8%85%E6%98%8E%E7%89%B9%E5%88%AB%E7%89%88%23&Refer=top) `334.2K 🔥`
-1. [美国佛州227万吨有毒废水泄露](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E4%BD%9B%E5%B7%9E227%E4%B8%87%E5%90%A8%E6%9C%89%E6%AF%92%E5%BA%9F%E6%B0%B4%E6%B3%84%E9%9C%B2&Refer=top) `309.7K 🔥`
-1. [租车市场火爆](https://s.weibo.com/weibo?q=%23%E7%A7%9F%E8%BD%A6%E5%B8%82%E5%9C%BA%E7%81%AB%E7%88%86%23&Refer=top) `294.1K 🔥`
-1. [学生徒步108里为烈士扫墓](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E7%94%9F%E5%BE%92%E6%AD%A5108%E9%87%8C%E4%B8%BA%E7%83%88%E5%A3%AB%E6%89%AB%E5%A2%93%23&Refer=top) `291.3K 🔥`
 
-数据更新于 2021-04-05 09:12:24
+数据更新于 2021-04-05 09:43:41
 
 <!-- END -->
 
