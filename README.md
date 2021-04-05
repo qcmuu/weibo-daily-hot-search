@@ -57,7 +57,7 @@
 1. [酒泉通报班主任对学生罚款数万](https://s.weibo.com/weibo?q=%23%E9%85%92%E6%B3%89%E9%80%9A%E6%8A%A5%E7%8F%AD%E4%B8%BB%E4%BB%BB%E5%AF%B9%E5%AD%A6%E7%94%9F%E7%BD%9A%E6%AC%BE%E6%95%B0%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [景区回应酒店价高游客挤厕所](https://s.weibo.com/weibo?q=%23%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E9%85%92%E5%BA%97%E4%BB%B7%E9%AB%98%E6%B8%B8%E5%AE%A2%E6%8C%A4%E5%8E%95%E6%89%80%23&Refer=top) `1.4M 🔥`
 
-数据更新于 2021-04-05 23:43:51
+数据更新于 2021-04-05 23:55:08
 
 <!-- END -->
 
