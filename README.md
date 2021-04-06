@@ -16,6 +16,7 @@
 1. [娄滋博](https://s.weibo.com/weibo?q=%E5%A8%84%E6%BB%8B%E5%8D%9A&Refer=top) `1.7M 🔥`
 1. [妲己总喂纣王吃葡萄的原因](https://s.weibo.com/weibo?q=%23%E5%A6%B2%E5%B7%B1%E6%80%BB%E5%96%82%E7%BA%A3%E7%8E%8B%E5%90%83%E8%91%A1%E8%90%84%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `1.5M 🔥`
 1. [106岁奶奶陵园看望长眠边疆独子](https://s.weibo.com/weibo?q=%23106%E5%B2%81%E5%A5%B6%E5%A5%B6%E9%99%B5%E5%9B%AD%E7%9C%8B%E6%9C%9B%E9%95%BF%E7%9C%A0%E8%BE%B9%E7%96%86%E7%8B%AC%E5%AD%90%23&Refer=top) `1.4M 🔥`
+1. [NINEPERCENT出道三周年](https://s.weibo.com/weibo?q=NINEPERCENT%E5%87%BA%E9%81%93%E4%B8%89%E5%91%A8%E5%B9%B4&Refer=top) `1.3M 🔥`
 1. [焉栩嘉近照](https://s.weibo.com/weibo?q=%23%E7%84%89%E6%A0%A9%E5%98%89%E8%BF%91%E7%85%A7%23&Refer=top) `1.2M 🔥`
 1. [章泽天身材](https://s.weibo.com/weibo?q=%E7%AB%A0%E6%B3%BD%E5%A4%A9%E8%BA%AB%E6%9D%90&Refer=top) `1.2M 🔥`
 1. [吉克隽逸被陌生男子拍肩尾随](https://s.weibo.com/weibo?q=%23%E5%90%89%E5%85%8B%E9%9A%BD%E9%80%B8%E8%A2%AB%E9%99%8C%E7%94%9F%E7%94%B7%E5%AD%90%E6%8B%8D%E8%82%A9%E5%B0%BE%E9%9A%8F%23&Refer=top) `1.1M 🔥`
@@ -54,10 +55,9 @@
 1. [尾鱼在嗑真人CP](https://s.weibo.com/weibo?q=%23%E5%B0%BE%E9%B1%BC%E5%9C%A8%E5%97%91%E7%9C%9F%E4%BA%BACP%23&Refer=top) `459.7K 🔥`
 1. [哈登伤退](https://s.weibo.com/weibo?q=%E5%93%88%E7%99%BB%E4%BC%A4%E9%80%80&Refer=top) `420.5K 🔥`
 1. [律师表示炒鞋可能涉嫌多项违法](https://s.weibo.com/weibo?q=%23%E5%BE%8B%E5%B8%88%E8%A1%A8%E7%A4%BA%E7%82%92%E9%9E%8B%E5%8F%AF%E8%83%BD%E6%B6%89%E5%AB%8C%E5%A4%9A%E9%A1%B9%E8%BF%9D%E6%B3%95%23&Refer=top) `419.2K 🔥`
-1. [京粤大战](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E7%B2%A4%E5%A4%A7%E6%88%98%23&Refer=top) `411.5K 🔥`
-1. [王毅回应美方对华反复提竞争合作对抗](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%AF%85%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E5%AF%B9%E5%8D%8E%E5%8F%8D%E5%A4%8D%E6%8F%90%E7%AB%9E%E4%BA%89%E5%90%88%E4%BD%9C%E5%AF%B9%E6%8A%97%23&Refer=top) `411.1K 🔥`
+1. [女生与父亲发生争执负气跳江](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E4%B8%8E%E7%88%B6%E4%BA%B2%E5%8F%91%E7%94%9F%E4%BA%89%E6%89%A7%E8%B4%9F%E6%B0%94%E8%B7%B3%E6%B1%9F%23&Refer=top) `413.4K 🔥`
 
-数据更新于 2021-04-06 09:09:41
+数据更新于 2021-04-06 09:41:24
 
 <!-- END -->
 
