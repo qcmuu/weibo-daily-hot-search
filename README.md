@@ -57,7 +57,7 @@
 1. [快递过度包装专项治理](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E9%80%92%E8%BF%87%E5%BA%A6%E5%8C%85%E8%A3%85%E4%B8%93%E9%A1%B9%E6%B2%BB%E7%90%86%23&Refer=top) `1.4M 🔥`
 1. [Facebook测试二维码付款功能](https://s.weibo.com/weibo?q=Facebook%E6%B5%8B%E8%AF%95%E4%BA%8C%E7%BB%B4%E7%A0%81%E4%BB%98%E6%AC%BE%E5%8A%9F%E8%83%BD&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-04-07 22:59:32
+数据更新于 2021-04-07 23:07:39
 
 <!-- END -->
 
