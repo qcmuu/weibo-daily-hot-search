@@ -23,6 +23,7 @@
 1. [龚俊 我真的不是耍大牌](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E6%88%91%E7%9C%9F%E7%9A%84%E4%B8%8D%E6%98%AF%E8%80%8D%E5%A4%A7%E7%89%8C&Refer=top) `2.8M 🔥`
 1. [幼儿连续用电子产品不宜超过15分钟](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E8%BF%9E%E7%BB%AD%E7%94%A8%E7%94%B5%E5%AD%90%E4%BA%A7%E5%93%81%E4%B8%8D%E5%AE%9C%E8%B6%85%E8%BF%8715%E5%88%86%E9%92%9F%23&Refer=top) `2.7M 🔥`
 1. [拜登称枪支暴力在美国是种流行病](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E7%A7%B0%E6%9E%AA%E6%94%AF%E6%9A%B4%E5%8A%9B%E5%9C%A8%E7%BE%8E%E5%9B%BD%E6%98%AF%E7%A7%8D%E6%B5%81%E8%A1%8C%E7%97%85%23&Refer=top) `2.7M 🔥`
+1. [陈小纭微博小尾巴是关你peace](https://s.weibo.com/weibo?q=%E9%99%88%E5%B0%8F%E7%BA%AD%E5%BE%AE%E5%8D%9A%E5%B0%8F%E5%B0%BE%E5%B7%B4%E6%98%AF%E5%85%B3%E4%BD%A0peace&Refer=top) `2.6M 🔥`
 1. [乌合麒麟 披甲](https://s.weibo.com/weibo?q=%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F%20%E6%8A%AB%E7%94%B2&Refer=top) `2.6M 🔥`
 1. [向往的生活第五季定档](https://s.weibo.com/weibo?q=%23%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB%E7%AC%AC%E4%BA%94%E5%AD%A3%E5%AE%9A%E6%A1%A3%23&Refer=top) `2.6M 🔥`
 1. [10家平台承诺不用大数据杀熟](https://s.weibo.com/weibo?q=%2310%E5%AE%B6%E5%B9%B3%E5%8F%B0%E6%89%BF%E8%AF%BA%E4%B8%8D%E7%94%A8%E5%A4%A7%E6%95%B0%E6%8D%AE%E6%9D%80%E7%86%9F%23&Refer=top) `2.5M 🔥`
@@ -55,9 +56,8 @@
 1. [当小学老师也太快乐了](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B0%8F%E5%AD%A6%E8%80%81%E5%B8%88%E4%B9%9F%E5%A4%AA%E5%BF%AB%E4%B9%90%E4%BA%86%23&Refer=top) `911.0K 🔥`
 1. [人大回应多名考生复试0分](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E5%A4%A7%E5%9B%9E%E5%BA%94%E5%A4%9A%E5%90%8D%E8%80%83%E7%94%9F%E5%A4%8D%E8%AF%950%E5%88%86%23&Refer=top) `900.7K 🔥`
 1. [马斯克公布猴子用意念打游戏视频](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%96%AF%E5%85%8B%E5%85%AC%E5%B8%83%E7%8C%B4%E5%AD%90%E7%94%A8%E6%84%8F%E5%BF%B5%E6%89%93%E6%B8%B8%E6%88%8F%E8%A7%86%E9%A2%91&Refer=top) `896.8K 🔥`
-1. [阴阳师](https://s.weibo.com/weibo?q=%E9%98%B4%E9%98%B3%E5%B8%88&Refer=top) `895.2K 🔥`
 
-数据更新于 2021-04-09 17:26:09
+数据更新于 2021-04-09 17:38:36
 
 <!-- END -->
 
