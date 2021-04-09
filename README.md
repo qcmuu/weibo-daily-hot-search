@@ -26,7 +26,7 @@
 1. [10家平台承诺不用大数据杀熟](https://s.weibo.com/weibo?q=%2310%E5%AE%B6%E5%B9%B3%E5%8F%B0%E6%89%BF%E8%AF%BA%E4%B8%8D%E7%94%A8%E5%A4%A7%E6%95%B0%E6%8D%AE%E6%9D%80%E7%86%9F%23&Refer=top) `2.5M 🔥`
 1. [邢菲被陌生男子尾随数日报警](https://s.weibo.com/weibo?q=%23%E9%82%A2%E8%8F%B2%E8%A2%AB%E9%99%8C%E7%94%9F%E7%94%B7%E5%AD%90%E5%B0%BE%E9%9A%8F%E6%95%B0%E6%97%A5%E6%8A%A5%E8%AD%A6%23&Refer=top) `2.4M 🔥`
 1. [手机号66666被拍卖32万替友还债](https://s.weibo.com/weibo?q=%23%E6%89%8B%E6%9C%BA%E5%8F%B766666%E8%A2%AB%E6%8B%8D%E5%8D%9632%E4%B8%87%E6%9B%BF%E5%8F%8B%E8%BF%98%E5%80%BA%23&Refer=top) `2.4M 🔥`
-1. [刘涛喊易烊千玺女婿](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B6%9B%E5%96%8A%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E5%A5%B3%E5%A9%BF%23&Refer=top) `2.2M 🔥`
+1. [刘涛喊易烊千玺女婿](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B6%9B%E5%96%8A%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E5%A5%B3%E5%A9%BF%23&Refer=top) `2.3M 🔥`
 1. [陈松伶张铎结完婚把证撕了](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%9D%BE%E4%BC%B6%E5%BC%A0%E9%93%8E%E7%BB%93%E5%AE%8C%E5%A9%9A%E6%8A%8A%E8%AF%81%E6%92%95%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [乘风破浪的姐姐总决赛](https://s.weibo.com/weibo?q=%E4%B9%98%E9%A3%8E%E7%A0%B4%E6%B5%AA%E7%9A%84%E5%A7%90%E5%A7%90%E6%80%BB%E5%86%B3%E8%B5%9B&Refer=top) `1.7M 🔥`
 1. [小学严格执行免试就近入学](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E4%B8%A5%E6%A0%BC%E6%89%A7%E8%A1%8C%E5%85%8D%E8%AF%95%E5%B0%B1%E8%BF%91%E5%85%A5%E5%AD%A6%23&Refer=top) `1.7M 🔥`
@@ -45,6 +45,7 @@
 1. [郑乃馨方回应与李振宁恋情](https://s.weibo.com/weibo?q=%23%E9%83%91%E4%B9%83%E9%A6%A8%E6%96%B9%E5%9B%9E%E5%BA%94%E4%B8%8E%E6%9D%8E%E6%8C%AF%E5%AE%81%E6%81%8B%E6%83%85%23&Refer=top) `960.5K 🔥`
 1. [花70万买画女孩被指在娃圈做代理](https://s.weibo.com/weibo?q=%E8%8A%B170%E4%B8%87%E4%B9%B0%E7%94%BB%E5%A5%B3%E5%AD%A9%E8%A2%AB%E6%8C%87%E5%9C%A8%E5%A8%83%E5%9C%88%E5%81%9A%E4%BB%A3%E7%90%86&Refer=top) `957.5K 🔥`
 1. [杨子为黄圣依跳女团舞](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%AD%90%E4%B8%BA%E9%BB%84%E5%9C%A3%E4%BE%9D%E8%B7%B3%E5%A5%B3%E5%9B%A2%E8%88%9E%23&Refer=top) `937.8K 🔥`
+1. [哈里斯承认美国为石油发动战争](https://s.weibo.com/weibo?q=%23%E5%93%88%E9%87%8C%E6%96%AF%E6%89%BF%E8%AE%A4%E7%BE%8E%E5%9B%BD%E4%B8%BA%E7%9F%B3%E6%B2%B9%E5%8F%91%E5%8A%A8%E6%88%98%E4%BA%89%23&Refer=top) `934.1K 🔥`
 1. [张艺兴向往5常驻](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%90%91%E5%BE%805%E5%B8%B8%E9%A9%BB%23&Refer=top) `923.4K 🔥`
 1. [当小学老师也太快乐了](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B0%8F%E5%AD%A6%E8%80%81%E5%B8%88%E4%B9%9F%E5%A4%AA%E5%BF%AB%E4%B9%90%E4%BA%86%23&Refer=top) `911.0K 🔥`
 1. [人大回应多名考生复试0分](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E5%A4%A7%E5%9B%9E%E5%BA%94%E5%A4%9A%E5%90%8D%E8%80%83%E7%94%9F%E5%A4%8D%E8%AF%950%E5%88%86%23&Refer=top) `900.7K 🔥`
@@ -55,9 +56,8 @@
 1. [向往的生活家庭氛围感海报](https://s.weibo.com/weibo?q=%23%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB%E5%AE%B6%E5%BA%AD%E6%B0%9B%E5%9B%B4%E6%84%9F%E6%B5%B7%E6%8A%A5%23&Refer=top) `826.5K 🔥`
 1. [德国记者揭露许多西方媒体是美国CIA傀儡](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%9B%BD%E8%AE%B0%E8%80%85%E6%8F%AD%E9%9C%B2%E8%AE%B8%E5%A4%9A%E8%A5%BF%E6%96%B9%E5%AA%92%E4%BD%93%E6%98%AF%E7%BE%8E%E5%9B%BDCIA%E5%82%80%E5%84%A1%23&Refer=top) `822.7K 🔥`
 1. [龚俊费加罗封面](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E8%B4%B9%E5%8A%A0%E7%BD%97%E5%B0%81%E9%9D%A2&Refer=top) `821.5K 🔥`
-1. [龚俊白发造型](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E7%99%BD%E5%8F%91%E9%80%A0%E5%9E%8B&Refer=top) `783.2K 🔥`
 
-数据更新于 2021-04-09 13:46:39
+数据更新于 2021-04-09 13:54:48
 
 <!-- END -->
 
