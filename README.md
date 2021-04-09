@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [龚俊 我真的不是耍大牌](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E6%88%91%E7%9C%9F%E7%9A%84%E4%B8%8D%E6%98%AF%E8%80%8D%E5%A4%A7%E7%89%8C&Refer=top) `2.7M 🔥`
+1. [龚俊 我真的不是耍大牌](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E6%88%91%E7%9C%9F%E7%9A%84%E4%B8%8D%E6%98%AF%E8%80%8D%E5%A4%A7%E7%89%8C&Refer=top) `2.8M 🔥`
 1. [邢菲被陌生男子尾随数日报警](https://s.weibo.com/weibo?q=%23%E9%82%A2%E8%8F%B2%E8%A2%AB%E9%99%8C%E7%94%9F%E7%94%B7%E5%AD%90%E5%B0%BE%E9%9A%8F%E6%95%B0%E6%97%A5%E6%8A%A5%E8%AD%A6%23&Refer=top) `2.4M 🔥`
 1. [医保个人账户将允许家庭成员共济](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E4%BF%9D%E4%B8%AA%E4%BA%BA%E8%B4%A6%E6%88%B7%E5%B0%86%E5%85%81%E8%AE%B8%E5%AE%B6%E5%BA%AD%E6%88%90%E5%91%98%E5%85%B1%E6%B5%8E%23&Refer=top) `2.1M 🔥`
 1. [陈松伶张铎结完婚把证撕了](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%9D%BE%E4%BC%B6%E5%BC%A0%E9%93%8E%E7%BB%93%E5%AE%8C%E5%A9%9A%E6%8A%8A%E8%AF%81%E6%92%95%E4%BA%86%23&Refer=top) `2.0M 🔥`
@@ -40,24 +40,24 @@
 1. [北大保安第一人已回乡从教20年](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E4%BF%9D%E5%AE%89%E7%AC%AC%E4%B8%80%E4%BA%BA%E5%B7%B2%E5%9B%9E%E4%B9%A1%E4%BB%8E%E6%95%9920%E5%B9%B4%23&Refer=top) `529.1K 🔥`
 1. [唐明轩莫菲领证结婚](https://s.weibo.com/weibo?q=%E5%94%90%E6%98%8E%E8%BD%A9%E8%8E%AB%E8%8F%B2%E9%A2%86%E8%AF%81%E7%BB%93%E5%A9%9A&Refer=top) `527.1K 🔥`
 1. [唐嫣换头像](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E6%8D%A2%E5%A4%B4%E5%83%8F%23&Refer=top) `498.3K 🔥`
+1. [拜登宣布多项控枪行政措施](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E5%AE%A3%E5%B8%83%E5%A4%9A%E9%A1%B9%E6%8E%A7%E6%9E%AA%E8%A1%8C%E6%94%BF%E6%8E%AA%E6%96%BD%23&Refer=top) `488.5K 🔥`
+1. [10家平台承诺不用大数据杀熟](https://s.weibo.com/weibo?q=%2310%E5%AE%B6%E5%B9%B3%E5%8F%B0%E6%89%BF%E8%AF%BA%E4%B8%8D%E7%94%A8%E5%A4%A7%E6%95%B0%E6%8D%AE%E6%9D%80%E7%86%9F%23&Refer=top) `441.9K 🔥`
 1. [刘隽保姆级舞蹈教学](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9A%BD%E4%BF%9D%E5%A7%86%E7%BA%A7%E8%88%9E%E8%B9%88%E6%95%99%E5%AD%A6%23&Refer=top) `416.6K 🔥`
 1. [男子散布新冠疫苗不实言论被拘](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E5%B8%83%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E4%B8%8D%E5%AE%9E%E8%A8%80%E8%AE%BA%E8%A2%AB%E6%8B%98%23&Refer=top) `386.3K 🔥`
 1. [侯佩岑对黄柏俊说谢谢你娶我](https://s.weibo.com/weibo?q=%23%E4%BE%AF%E4%BD%A9%E5%B2%91%E5%AF%B9%E9%BB%84%E6%9F%8F%E4%BF%8A%E8%AF%B4%E8%B0%A2%E8%B0%A2%E4%BD%A0%E5%A8%B6%E6%88%91%23&Refer=top) `386.1K 🔥`
 1. [辣条螺蛳粉](https://s.weibo.com/weibo?q=%23%E8%BE%A3%E6%9D%A1%E8%9E%BA%E8%9B%B3%E7%B2%89%23&Refer=top) `384.7K 🔥`
-1. [10家平台承诺不用大数据杀熟](https://s.weibo.com/weibo?q=10%E5%AE%B6%E5%B9%B3%E5%8F%B0%E6%89%BF%E8%AF%BA%E4%B8%8D%E7%94%A8%E5%A4%A7%E6%95%B0%E6%8D%AE%E6%9D%80%E7%86%9F&Refer=top) `370.7K 🔥`
 1. [人大回应多名考生复试0分](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E5%A4%A7%E5%9B%9E%E5%BA%94%E5%A4%9A%E5%90%8D%E8%80%83%E7%94%9F%E5%A4%8D%E8%AF%950%E5%88%86%23&Refer=top) `359.9K 🔥`
 1. [徐璐 陆景总是从梁辰的全世界路过](https://s.weibo.com/weibo?q=%E5%BE%90%E7%92%90%20%E9%99%86%E6%99%AF%E6%80%BB%E6%98%AF%E4%BB%8E%E6%A2%81%E8%BE%B0%E7%9A%84%E5%85%A8%E4%B8%96%E7%95%8C%E8%B7%AF%E8%BF%87&Refer=top) `342.7K 🔥`
 1. [阿的江女儿观战新疆男篮比赛](https://s.weibo.com/weibo?q=%E9%98%BF%E7%9A%84%E6%B1%9F%E5%A5%B3%E5%84%BF%E8%A7%82%E6%88%98%E6%96%B0%E7%96%86%E7%94%B7%E7%AF%AE%E6%AF%94%E8%B5%9B&Refer=top) `338.1K 🔥`
 1. [你的婚礼提档430](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%9A%84%E5%A9%9A%E7%A4%BC%E6%8F%90%E6%A1%A3430%23&Refer=top) `337.7K 🔥`
+1. [2021年第100天](https://s.weibo.com/weibo?q=%232021%E5%B9%B4%E7%AC%AC100%E5%A4%A9%23&Refer=top) `334.5K 🔥`
+1. [港警完美回应美媒挖坑式提问](https://s.weibo.com/weibo?q=%23%E6%B8%AF%E8%AD%A6%E5%AE%8C%E7%BE%8E%E5%9B%9E%E5%BA%94%E7%BE%8E%E5%AA%92%E6%8C%96%E5%9D%91%E5%BC%8F%E6%8F%90%E9%97%AE%23&Refer=top) `333.0K 🔥`
+1. [上厕所引发的社死现场](https://s.weibo.com/weibo?q=%E4%B8%8A%E5%8E%95%E6%89%80%E5%BC%95%E5%8F%91%E7%9A%84%E7%A4%BE%E6%AD%BB%E7%8E%B0%E5%9C%BA&Refer=top) `330.7K 🔥`
 1. [李荣浩 找队友跟找对象是一样的](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%20%E6%89%BE%E9%98%9F%E5%8F%8B%E8%B7%9F%E6%89%BE%E5%AF%B9%E8%B1%A1%E6%98%AF%E4%B8%80%E6%A0%B7%E7%9A%84&Refer=top) `325.2K 🔥`
-1. [河北迁安两名男子暴力伤医被刑拘](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E8%BF%81%E5%AE%89%E4%B8%A4%E5%90%8D%E7%94%B7%E5%AD%90%E6%9A%B4%E5%8A%9B%E4%BC%A4%E5%8C%BB%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `321.6K 🔥`
-1. [华为全屋智能](https://s.weibo.com/weibo?q=%E5%8D%8E%E4%B8%BA%E5%85%A8%E5%B1%8B%E6%99%BA%E8%83%BD&Refer=top) `312.0K 🔥`
-1. [港警完美回应美媒挖坑式提问](https://s.weibo.com/weibo?q=%23%E6%B8%AF%E8%AD%A6%E5%AE%8C%E7%BE%8E%E5%9B%9E%E5%BA%94%E7%BE%8E%E5%AA%92%E6%8C%96%E5%9D%91%E5%BC%8F%E6%8F%90%E9%97%AE%23&Refer=top) `311.8K 🔥`
-1. [网友拍到朱鹮吃娃娃鱼](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%8B%8D%E5%88%B0%E6%9C%B1%E9%B9%AE%E5%90%83%E5%A8%83%E5%A8%83%E9%B1%BC%23&Refer=top) `300.0K 🔥`
-1. [咸素媛承认造假](https://s.weibo.com/weibo?q=%23%E5%92%B8%E7%B4%A0%E5%AA%9B%E6%89%BF%E8%AE%A4%E9%80%A0%E5%81%87%23&Refer=top) `299.8K 🔥`
-1. [范丞丞关晓彤吻戏路透](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E5%85%B3%E6%99%93%E5%BD%A4%E5%90%BB%E6%88%8F%E8%B7%AF%E9%80%8F%23&Refer=top) `299.7K 🔥`
+1. [陆柯燃渐变紫西装](https://s.weibo.com/weibo?q=%23%E9%99%86%E6%9F%AF%E7%87%83%E6%B8%90%E5%8F%98%E7%B4%AB%E8%A5%BF%E8%A3%85%23&Refer=top) `324.4K 🔥`
+1. [2000元的玩具熊被炒到3万元](https://s.weibo.com/weibo?q=%232000%E5%85%83%E7%9A%84%E7%8E%A9%E5%85%B7%E7%86%8A%E8%A2%AB%E7%82%92%E5%88%B03%E4%B8%87%E5%85%83%23&Refer=top) `322.1K 🔥`
 
-数据更新于 2021-04-09 08:42:28
+数据更新于 2021-04-09 09:10:03
 
 <!-- END -->
 
