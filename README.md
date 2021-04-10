@@ -42,22 +42,22 @@
 1. [商务部回应美方打压7家中国超算实体](https://s.weibo.com/weibo?q=%E5%95%86%E5%8A%A1%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E6%89%93%E5%8E%8B7%E5%AE%B6%E4%B8%AD%E5%9B%BD%E8%B6%85%E7%AE%97%E5%AE%9E%E4%BD%93&Refer=top) `495.0K 🔥`
 1. [纸扇书生实景拍摄只用了4天](https://s.weibo.com/weibo?q=%23%E7%BA%B8%E6%89%87%E4%B9%A6%E7%94%9F%E5%AE%9E%E6%99%AF%E6%8B%8D%E6%91%84%E5%8F%AA%E7%94%A8%E4%BA%864%E5%A4%A9%23&Refer=top) `494.3K 🔥`
 1. [青春有你排名](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0%E6%8E%92%E5%90%8D%23&Refer=top) `463.3K 🔥`
+1. [李现自己和自己玩石头剪刀布](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E8%87%AA%E5%B7%B1%E5%92%8C%E8%87%AA%E5%B7%B1%E7%8E%A9%E7%9F%B3%E5%A4%B4%E5%89%AA%E5%88%80%E5%B8%83%23&Refer=top) `429.5K 🔥`
 1. [退役军人三亚吃海鲜遭遇宰客](https://s.weibo.com/weibo?q=%23%E9%80%80%E5%BD%B9%E5%86%9B%E4%BA%BA%E4%B8%89%E4%BA%9A%E5%90%83%E6%B5%B7%E9%B2%9C%E9%81%AD%E9%81%87%E5%AE%B0%E5%AE%A2%23&Refer=top) `387.6K 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `372.4K 🔥`
 1. [幼儿园不得设学前班](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E4%B8%8D%E5%BE%97%E8%AE%BE%E5%AD%A6%E5%89%8D%E7%8F%AD%23&Refer=top) `367.5K 🔥`
 1. [梁辰陆景终于见面了](https://s.weibo.com/weibo?q=%23%E6%A2%81%E8%BE%B0%E9%99%86%E6%99%AF%E7%BB%88%E4%BA%8E%E8%A7%81%E9%9D%A2%E4%BA%86%23&Refer=top) `363.5K 🔥`
 1. [西安人有多会排队](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%BA%BA%E6%9C%89%E5%A4%9A%E4%BC%9A%E6%8E%92%E9%98%9F%23&Refer=top) `350.4K 🔥`
+1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `313.1K 🔥`
 1. [李易峰号召大家打疫苗](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E5%8F%B7%E5%8F%AC%E5%A4%A7%E5%AE%B6%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `301.8K 🔥`
 1. [幼儿连续用电子产品不宜超过15分钟](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E8%BF%9E%E7%BB%AD%E7%94%A8%E7%94%B5%E5%AD%90%E4%BA%A7%E5%93%81%E4%B8%8D%E5%AE%9C%E8%B6%85%E8%BF%8715%E5%88%86%E9%92%9F%23&Refer=top) `301.3K 🔥`
-1. [李现自己和自己玩石头剪刀布](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E8%87%AA%E5%B7%B1%E5%92%8C%E8%87%AA%E5%B7%B1%E7%8E%A9%E7%9F%B3%E5%A4%B4%E5%89%AA%E5%88%80%E5%B8%83%23&Refer=top) `293.5K 🔥`
 1. [青春有你](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0&Refer=top) `286.6K 🔥`
-1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `273.6K 🔥`
 1. [利物浦 维拉](https://s.weibo.com/weibo?q=%E5%88%A9%E7%89%A9%E6%B5%A6%20%E7%BB%B4%E6%8B%89&Refer=top) `273.6K 🔥`
 1. [警方回应必胜客员工与顾客起冲突](https://s.weibo.com/weibo?q=%E8%AD%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E5%BF%85%E8%83%9C%E5%AE%A2%E5%91%98%E5%B7%A5%E4%B8%8E%E9%A1%BE%E5%AE%A2%E8%B5%B7%E5%86%B2%E7%AA%81&Refer=top) `264.6K 🔥`
 1. [多地启用Z字形斑马线](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E5%90%AF%E7%94%A8Z%E5%AD%97%E5%BD%A2%E6%96%91%E9%A9%AC%E7%BA%BF%23&Refer=top) `252.6K 🔥`
 1. [杨九郎即兴捧哏能力](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B9%9D%E9%83%8E%E5%8D%B3%E5%85%B4%E6%8D%A7%E5%93%8F%E8%83%BD%E5%8A%9B&Refer=top) `243.8K 🔥`
 
-数据更新于 2021-04-11 00:33:42
+数据更新于 2021-04-11 00:54:42
 
 <!-- END -->
 
