@@ -10,7 +10,7 @@
 1. [张馨予 这几天馒头主食吃的太多了](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%A6%A8%E4%BA%88%20%E8%BF%99%E5%87%A0%E5%A4%A9%E9%A6%92%E5%A4%B4%E4%B8%BB%E9%A3%9F%E5%90%83%E7%9A%84%E5%A4%AA%E5%A4%9A%E4%BA%86&Refer=top) `3.8M 🔥`
 1. [4人接种强生疫苗后出现血栓](https://s.weibo.com/weibo?q=%234%E4%BA%BA%E6%8E%A5%E7%A7%8D%E5%BC%BA%E7%94%9F%E7%96%AB%E8%8B%97%E5%90%8E%E5%87%BA%E7%8E%B0%E8%A1%80%E6%A0%93%23&Refer=top) `3.3M 🔥`
 1. [DMX去世](https://s.weibo.com/weibo?q=DMX%E5%8E%BB%E4%B8%96&Refer=top) `3.1M 🔥`
-1. [三甲医院医生自曝收回扣50多万](https://s.weibo.com/weibo?q=%E4%B8%89%E7%94%B2%E5%8C%BB%E9%99%A2%E5%8C%BB%E7%94%9F%E8%87%AA%E6%9B%9D%E6%94%B6%E5%9B%9E%E6%89%A350%E5%A4%9A%E4%B8%87&Refer=top) `2.3M 🔥`
+1. [三甲医院医生自曝收回扣50多万](https://s.weibo.com/weibo?q=%E4%B8%89%E7%94%B2%E5%8C%BB%E9%99%A2%E5%8C%BB%E7%94%9F%E8%87%AA%E6%9B%9D%E6%94%B6%E5%9B%9E%E6%89%A350%E5%A4%9A%E4%B8%87&Refer=top) `2.5M 🔥`
 1. [顺丰董事长王卫因预亏致歉](https://s.weibo.com/weibo?q=%23%E9%A1%BA%E4%B8%B0%E8%91%A3%E4%BA%8B%E9%95%BF%E7%8E%8B%E5%8D%AB%E5%9B%A0%E9%A2%84%E4%BA%8F%E8%87%B4%E6%AD%89%23&Refer=top) `2.2M 🔥`
 1. [丑得刚刚好的鸭子](https://s.weibo.com/weibo?q=%23%E4%B8%91%E5%BE%97%E5%88%9A%E5%88%9A%E5%A5%BD%E7%9A%84%E9%B8%AD%E5%AD%90%23&Refer=top) `2.0M 🔥`
 1. [利路修第十二名](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E7%AC%AC%E5%8D%81%E4%BA%8C%E5%90%8D%23&Refer=top) `2.0M 🔥`
@@ -54,10 +54,10 @@
 1. [为父追凶25年姐妹再发声](https://s.weibo.com/weibo?q=%E4%B8%BA%E7%88%B6%E8%BF%BD%E5%87%B625%E5%B9%B4%E5%A7%90%E5%A6%B9%E5%86%8D%E5%8F%91%E5%A3%B0&Refer=top) `655.2K 🔥`
 1. [陈小纭微博小尾巴是关你peace](https://s.weibo.com/weibo?q=%E9%99%88%E5%B0%8F%E7%BA%AD%E5%BE%AE%E5%8D%9A%E5%B0%8F%E5%B0%BE%E5%B7%B4%E6%98%AF%E5%85%B3%E4%BD%A0peace&Refer=top) `649.1K 🔥`
 1. [恰好是少年](https://s.weibo.com/weibo?q=%E6%81%B0%E5%A5%BD%E6%98%AF%E5%B0%91%E5%B9%B4&Refer=top) `620.6K 🔥`
+1. [大张伟最想模仿的人是窦唯](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%BC%A0%E4%BC%9F%E6%9C%80%E6%83%B3%E6%A8%A1%E4%BB%BF%E7%9A%84%E4%BA%BA%E6%98%AF%E7%AA%A6%E5%94%AF%23&Refer=top) `617.6K 🔥`
 1. [人大通报22名法硕考生复试0分](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E5%A4%A7%E9%80%9A%E6%8A%A522%E5%90%8D%E6%B3%95%E7%A1%95%E8%80%83%E7%94%9F%E5%A4%8D%E8%AF%950%E5%88%86%23&Refer=top) `604.9K 🔥`
-1. [北京取代纽约成全球亿万富翁最多城市](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%8F%96%E4%BB%A3%E7%BA%BD%E7%BA%A6%E6%88%90%E5%85%A8%E7%90%83%E4%BA%BF%E4%B8%87%E5%AF%8C%E7%BF%81%E6%9C%80%E5%A4%9A%E5%9F%8E%E5%B8%82%23&Refer=top) `602.0K 🔥`
 
-数据更新于 2021-04-10 14:20:54
+数据更新于 2021-04-10 14:34:36
 
 <!-- END -->
 
