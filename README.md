@@ -20,6 +20,7 @@
 1. [Angelababy黑玫瑰波边裙](https://s.weibo.com/weibo?q=%23Angelababy%E9%BB%91%E7%8E%AB%E7%91%B0%E6%B3%A2%E8%BE%B9%E8%A3%99%23&Refer=top) `2.0M 🔥`
 1. [龚俊张哲瀚加盟我是女演员](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E5%93%B2%E7%80%9A%E5%8A%A0%E7%9B%9F%E6%88%91%E6%98%AF%E5%A5%B3%E6%BC%94%E5%91%98%23&Refer=top) `1.9M 🔥`
 1. [张彬彬已推钟汉良微信给景甜](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E5%B7%B2%E6%8E%A8%E9%92%9F%E6%B1%89%E8%89%AF%E5%BE%AE%E4%BF%A1%E7%BB%99%E6%99%AF%E7%94%9C%23&Refer=top) `1.8M 🔥`
+1. [你好李焕英票房破54亿](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E7%A0%B454%E4%BA%BF%23&Refer=top) `1.8M 🔥`
 1. [阿里巴巴回应被行政处罚](https://s.weibo.com/weibo?q=%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E5%9B%9E%E5%BA%94%E8%A2%AB%E8%A1%8C%E6%94%BF%E5%A4%84%E7%BD%9A&Refer=top) `1.8M 🔥`
 1. [人间世张丽君](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E9%97%B4%E4%B8%96%E5%BC%A0%E4%B8%BD%E5%90%9B%23&Refer=top) `1.7M 🔥`
 1. [王嘉尔看了都要楞两秒](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E7%9C%8B%E4%BA%86%E9%83%BD%E8%A6%81%E6%A5%9E%E4%B8%A4%E7%A7%92%23&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [王俊凯用卫衣带子模仿甩面](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%BF%8A%E5%87%AF%E7%94%A8%E5%8D%AB%E8%A1%A3%E5%B8%A6%E5%AD%90%E6%A8%A1%E4%BB%BF%E7%94%A9%E9%9D%A2%23&Refer=top) `820.4K 🔥`
 1. [孙燕姿的推特画风](https://s.weibo.com/weibo?q=%23%E5%AD%99%E7%87%95%E5%A7%BF%E7%9A%84%E6%8E%A8%E7%89%B9%E7%94%BB%E9%A3%8E%23&Refer=top) `816.7K 🔥`
 1. [刘雯加盟妈妈你真好看](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%AF%E5%8A%A0%E7%9B%9F%E5%A6%88%E5%A6%88%E4%BD%A0%E7%9C%9F%E5%A5%BD%E7%9C%8B%23&Refer=top) `815.4K 🔥`
-1. [黄树棠去世](https://s.weibo.com/weibo?q=%E9%BB%84%E6%A0%91%E6%A3%A0%E5%8E%BB%E4%B8%96&Refer=top) `811.5K 🔥`
 
-数据更新于 2021-04-10 17:01:13
+数据更新于 2021-04-10 17:09:54
 
 <!-- END -->
 
