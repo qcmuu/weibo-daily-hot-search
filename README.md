@@ -24,6 +24,7 @@
 1. [重庆必胜客](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E5%BF%85%E8%83%9C%E5%AE%A2&Refer=top) `1.6M 🔥`
 1. [瑞丽4月11日起第3轮全员核酸检测](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD4%E6%9C%8811%E6%97%A5%E8%B5%B7%E7%AC%AC3%E8%BD%AE%E5%85%A8%E5%91%98%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%23&Refer=top) `1.5M 🔥`
 1. [南京大屠杀幸存者陈文英逝世](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%9D%80%E5%B9%B8%E5%AD%98%E8%80%85%E9%99%88%E6%96%87%E8%8B%B1%E9%80%9D%E4%B8%96%23&Refer=top) `1.5M 🔥`
+1. [只有10％被蜱虫叮咬的人会发病](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E6%9C%8910%EF%BC%85%E8%A2%AB%E8%9C%B1%E8%99%AB%E5%8F%AE%E5%92%AC%E7%9A%84%E4%BA%BA%E4%BC%9A%E5%8F%91%E7%97%85%23&Refer=top) `1.5M 🔥`
 1. [年轻人也可能得帕金森病](https://s.weibo.com/weibo?q=%23%E5%B9%B4%E8%BD%BB%E4%BA%BA%E4%B9%9F%E5%8F%AF%E8%83%BD%E5%BE%97%E5%B8%95%E9%87%91%E6%A3%AE%E7%97%85%23&Refer=top) `1.5M 🔥`
 1. [谢娜说俏俏想喝糖浆演假咳嗽](https://s.weibo.com/weibo?q=%E8%B0%A2%E5%A8%9C%E8%AF%B4%E4%BF%8F%E4%BF%8F%E6%83%B3%E5%96%9D%E7%B3%96%E6%B5%86%E6%BC%94%E5%81%87%E5%92%B3%E5%97%BD&Refer=top) `1.5M 🔥`
 1. [肯德基 消毒水](https://s.weibo.com/weibo?q=%E8%82%AF%E5%BE%B7%E5%9F%BA%20%E6%B6%88%E6%AF%92%E6%B0%B4&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [小虎偷家](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%99%8E%E5%81%B7%E5%AE%B6&Refer=top) `562.2K 🔥`
 1. [新疆一煤矿发生透水事故21人被困](https://s.weibo.com/weibo?q=%E6%96%B0%E7%96%86%E4%B8%80%E7%85%A4%E7%9F%BF%E5%8F%91%E7%94%9F%E9%80%8F%E6%B0%B4%E4%BA%8B%E6%95%8521%E4%BA%BA%E8%A2%AB%E5%9B%B0&Refer=top) `548.0K 🔥`
 1. [二手手机恢复出厂设置数据仍可恢复](https://s.weibo.com/weibo?q=%23%E4%BA%8C%E6%89%8B%E6%89%8B%E6%9C%BA%E6%81%A2%E5%A4%8D%E5%87%BA%E5%8E%82%E8%AE%BE%E7%BD%AE%E6%95%B0%E6%8D%AE%E4%BB%8D%E5%8F%AF%E6%81%A2%E5%A4%8D%23&Refer=top) `504.3K 🔥`
-1. [人气韩妆防晒被举报造假](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%B0%94%E9%9F%A9%E5%A6%86%E9%98%B2%E6%99%92%E8%A2%AB%E4%B8%BE%E6%8A%A5%E9%80%A0%E5%81%87%23&Refer=top) `495.9K 🔥`
 
-数据更新于 2021-04-11 09:46:25
+数据更新于 2021-04-11 10:14:14
 
 <!-- END -->
 
