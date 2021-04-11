@@ -30,6 +30,7 @@
 1. [解放军喊话台军你们很快就适应了](https://s.weibo.com/weibo?q=%23%E8%A7%A3%E6%94%BE%E5%86%9B%E5%96%8A%E8%AF%9D%E5%8F%B0%E5%86%9B%E4%BD%A0%E4%BB%AC%E5%BE%88%E5%BF%AB%E5%B0%B1%E9%80%82%E5%BA%94%E4%BA%86%23&Refer=top) `1.3M 🔥`
 1. [王琳 方磊](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%90%B3%20%E6%96%B9%E7%A3%8A&Refer=top) `1.3M 🔥`
 1. [白冰拒绝李元韬](https://s.weibo.com/weibo?q=%E7%99%BD%E5%86%B0%E6%8B%92%E7%BB%9D%E6%9D%8E%E5%85%83%E9%9F%AC&Refer=top) `1.3M 🔥`
+1. [瑞丽4月11日起第3轮全员核酸检测](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD4%E6%9C%8811%E6%97%A5%E8%B5%B7%E7%AC%AC3%E8%BD%AE%E5%85%A8%E5%91%98%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%23&Refer=top) `1.2M 🔥`
 1. [老师的朋友圈有多好玩](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B8%88%E7%9A%84%E6%9C%8B%E5%8F%8B%E5%9C%88%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%8E%A9%23&Refer=top) `1.0M 🔥`
 1. [景甜张彬彬仰卧起坐吻](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E4%BB%B0%E5%8D%A7%E8%B5%B7%E5%9D%90%E5%90%BB%23&Refer=top) `919.5K 🔥`
 1. [曾涵江 看不得别人谈恋爱的男2号](https://s.weibo.com/weibo?q=%E6%9B%BE%E6%B6%B5%E6%B1%9F%20%E7%9C%8B%E4%B8%8D%E5%BE%97%E5%88%AB%E4%BA%BA%E8%B0%88%E6%81%8B%E7%88%B1%E7%9A%84%E7%94%B72%E5%8F%B7&Refer=top) `795.7K 🔥`
@@ -50,14 +51,13 @@
 1. [新疆一煤矿发生透水事故21人被困](https://s.weibo.com/weibo?q=%E6%96%B0%E7%96%86%E4%B8%80%E7%85%A4%E7%9F%BF%E5%8F%91%E7%94%9F%E9%80%8F%E6%B0%B4%E4%BA%8B%E6%95%8521%E4%BA%BA%E8%A2%AB%E5%9B%B0&Refer=top) `427.4K 🔥`
 1. [浪浪钉](https://s.weibo.com/weibo?q=%23%E6%B5%AA%E6%B5%AA%E9%92%89%23&Refer=top) `421.2K 🔥`
 1. [退役军人三亚吃海鲜遭遇宰客](https://s.weibo.com/weibo?q=%23%E9%80%80%E5%BD%B9%E5%86%9B%E4%BA%BA%E4%B8%89%E4%BA%9A%E5%90%83%E6%B5%B7%E9%B2%9C%E9%81%AD%E9%81%87%E5%AE%B0%E5%AE%A2%23&Refer=top) `387.6K 🔥`
+1. [张九龄德云九队队长](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E4%B9%9D%E9%BE%84%E5%BE%B7%E4%BA%91%E4%B9%9D%E9%98%9F%E9%98%9F%E9%95%BF%23&Refer=top) `379.7K 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `372.4K 🔥`
 1. [幼儿园不得设学前班](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E4%B8%8D%E5%BE%97%E8%AE%BE%E5%AD%A6%E5%89%8D%E7%8F%AD%23&Refer=top) `367.5K 🔥`
 1. [梁辰陆景终于见面了](https://s.weibo.com/weibo?q=%23%E6%A2%81%E8%BE%B0%E9%99%86%E6%99%AF%E7%BB%88%E4%BA%8E%E8%A7%81%E9%9D%A2%E4%BA%86%23&Refer=top) `363.5K 🔥`
-1. [西安人有多会排队](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%BA%BA%E6%9C%89%E5%A4%9A%E4%BC%9A%E6%8E%92%E9%98%9F%23&Refer=top) `350.4K 🔥`
-1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `313.1K 🔥`
-1. [李易峰号召大家打疫苗](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E5%8F%B7%E5%8F%AC%E5%A4%A7%E5%AE%B6%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `301.8K 🔥`
+1. [多国房价再创新高](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9B%BD%E6%88%BF%E4%BB%B7%E5%86%8D%E5%88%9B%E6%96%B0%E9%AB%98%23&Refer=top) `361.6K 🔥`
 
-数据更新于 2021-04-11 07:59:45
+数据更新于 2021-04-11 08:25:22
 
 <!-- END -->
 
