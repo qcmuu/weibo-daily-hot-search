@@ -21,6 +21,7 @@
 1. [青岛急寻核酸阳性者同车厢密接](https://s.weibo.com/weibo?q=%23%E9%9D%92%E5%B2%9B%E6%80%A5%E5%AF%BB%E6%A0%B8%E9%85%B8%E9%98%B3%E6%80%A7%E8%80%85%E5%90%8C%E8%BD%A6%E5%8E%A2%E5%AF%86%E6%8E%A5%23&Refer=top) `1.0M 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `1.0M 🔥`
 1. [蓝盈莹妈妈身材](https://s.weibo.com/weibo?q=%E8%93%9D%E7%9B%88%E8%8E%B9%E5%A6%88%E5%A6%88%E8%BA%AB%E6%9D%90&Refer=top) `1.0M 🔥`
+1. [军嫂见证兵王丈夫晋升军衔时刻](https://s.weibo.com/weibo?q=%23%E5%86%9B%E5%AB%82%E8%A7%81%E8%AF%81%E5%85%B5%E7%8E%8B%E4%B8%88%E5%A4%AB%E6%99%8B%E5%8D%87%E5%86%9B%E8%A1%94%E6%97%B6%E5%88%BB%23&Refer=top) `980.9K 🔥`
 1. [利路修手链上挂着挖耳勺](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%E6%89%8B%E9%93%BE%E4%B8%8A%E6%8C%82%E7%9D%80%E6%8C%96%E8%80%B3%E5%8B%BA&Refer=top) `943.7K 🔥`
 1. [恰好是少年](https://s.weibo.com/weibo?q=%E6%81%B0%E5%A5%BD%E6%98%AF%E5%B0%91%E5%B9%B4&Refer=top) `883.5K 🔥`
 1. [龚俊不愧演过消防员](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E4%B8%8D%E6%84%A7%E6%BC%94%E8%BF%87%E6%B6%88%E9%98%B2%E5%91%98%23&Refer=top) `849.7K 🔥`
@@ -33,6 +34,7 @@
 1. [周琦呕吐](https://s.weibo.com/weibo?q=%E5%91%A8%E7%90%A6%E5%91%95%E5%90%90&Refer=top) `754.1K 🔥`
 1. [刘雨昕问钱枫是不是结婚了](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%A8%E6%98%95%E9%97%AE%E9%92%B1%E6%9E%AB%E6%98%AF%E4%B8%8D%E6%98%AF%E7%BB%93%E5%A9%9A%E4%BA%86%23&Refer=top) `742.8K 🔥`
 1. [每个寝室都会有个温柔的人](https://s.weibo.com/weibo?q=%23%E6%AF%8F%E4%B8%AA%E5%AF%9D%E5%AE%A4%E9%83%BD%E4%BC%9A%E6%9C%89%E4%B8%AA%E6%B8%A9%E6%9F%94%E7%9A%84%E4%BA%BA%23&Refer=top) `733.0K 🔥`
+1. [张勇回应阿里被处罚](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%8B%87%E5%9B%9E%E5%BA%94%E9%98%BF%E9%87%8C%E8%A2%AB%E5%A4%84%E7%BD%9A&Refer=top) `730.0K 🔥`
 1. [邓伦从九楼高空索降](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E4%BB%8E%E4%B9%9D%E6%A5%BC%E9%AB%98%E7%A9%BA%E7%B4%A2%E9%99%8D%23&Refer=top) `728.6K 🔥`
 1. [专家回应打疫苗可不可以再等等](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E5%9B%9E%E5%BA%94%E6%89%93%E7%96%AB%E8%8B%97%E5%8F%AF%E4%B8%8D%E5%8F%AF%E4%BB%A5%E5%86%8D%E7%AD%89%E7%AD%89%23&Refer=top) `698.2K 🔥`
 1. [公冶小茑怀孕](https://s.weibo.com/weibo?q=%23%E5%85%AC%E5%86%B6%E5%B0%8F%E8%8C%91%E6%80%80%E5%AD%95%23&Refer=top) `626.3K 🔥`
@@ -54,10 +56,8 @@
 1. [上海地铁](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%9C%B0%E9%93%81&Refer=top) `482.9K 🔥`
 1. [吴世勋帮粉丝买单](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%B8%96%E5%8B%8B%E5%B8%AE%E7%B2%89%E4%B8%9D%E4%B9%B0%E5%8D%95%23&Refer=top) `467.1K 🔥`
 1. [日本小伙用鼻子吃面](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%B0%8F%E4%BC%99%E7%94%A8%E9%BC%BB%E5%AD%90%E5%90%83%E9%9D%A2%23&Refer=top) `451.8K 🔥`
-1. [埃及列车相撞当天多名涉案人员吸毒](https://s.weibo.com/weibo?q=%23%E5%9F%83%E5%8F%8A%E5%88%97%E8%BD%A6%E7%9B%B8%E6%92%9E%E5%BD%93%E5%A4%A9%E5%A4%9A%E5%90%8D%E6%B6%89%E6%A1%88%E4%BA%BA%E5%91%98%E5%90%B8%E6%AF%92%23&Refer=top) `424.0K 🔥`
-1. [三星堆考古超过四分之三是90后](https://s.weibo.com/weibo?q=%E4%B8%89%E6%98%9F%E5%A0%86%E8%80%83%E5%8F%A4%E8%B6%85%E8%BF%87%E5%9B%9B%E5%88%86%E4%B9%8B%E4%B8%89%E6%98%AF90%E5%90%8E&Refer=top) `422.3K 🔥`
 
-数据更新于 2021-04-12 09:44:35
+数据更新于 2021-04-12 10:13:16
 
 <!-- END -->
 
