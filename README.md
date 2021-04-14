@@ -50,14 +50,14 @@
 1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `235.2K 🔥`
 1. [广东警方通报医生医院坠亡](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%8C%BB%E7%94%9F%E5%8C%BB%E9%99%A2%E5%9D%A0%E4%BA%A1%23&Refer=top) `229.6K 🔥`
 1. [长歌行超前点播](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C%E8%B6%85%E5%89%8D%E7%82%B9%E6%92%AD&Refer=top) `222.2K 🔥`
-1. [张馨予力挺部队心理医生](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A6%A8%E4%BA%88%E5%8A%9B%E6%8C%BA%E9%83%A8%E9%98%9F%E5%BF%83%E7%90%86%E5%8C%BB%E7%94%9F%23&Refer=top) `181.5K 🔥`
-1. [日本大叔讲核废水排海危害](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%A4%A7%E5%8F%94%E8%AE%B2%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%8E%92%E6%B5%B7%E5%8D%B1%E5%AE%B3%23&Refer=top) `181.1K 🔥`
+1. [张馨予力挺部队心理医生](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A6%A8%E4%BA%88%E5%8A%9B%E6%8C%BA%E9%83%A8%E9%98%9F%E5%BF%83%E7%90%86%E5%8C%BB%E7%94%9F%23&Refer=top) `192.3K 🔥`
+1. [唐九洲扫楼遇见杜华](https://s.weibo.com/weibo?q=%23%E5%94%90%E4%B9%9D%E6%B4%B2%E6%89%AB%E6%A5%BC%E9%81%87%E8%A7%81%E6%9D%9C%E5%8D%8E%23&Refer=top) `190.7K 🔥`
+1. [魏大勋 再也不需要插线板了](https://s.weibo.com/weibo?q=%E9%AD%8F%E5%A4%A7%E5%8B%8B%20%E5%86%8D%E4%B9%9F%E4%B8%8D%E9%9C%80%E8%A6%81%E6%8F%92%E7%BA%BF%E6%9D%BF%E4%BA%86&Refer=top) `189.3K 🔥`
+1. [日本大叔讲核废水排海危害](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%A4%A7%E5%8F%94%E8%AE%B2%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%8E%92%E6%B5%B7%E5%8D%B1%E5%AE%B3%23&Refer=top) `188.6K 🔥`
 1. [吉野家2020年净亏75亿日元](https://s.weibo.com/weibo?q=%23%E5%90%89%E9%87%8E%E5%AE%B62020%E5%B9%B4%E5%87%80%E4%BA%8F75%E4%BA%BF%E6%97%A5%E5%85%83%23&Refer=top) `181.1K 🔥`
 1. [央行工作论文称应全面放开和鼓励生育](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A1%8C%E5%B7%A5%E4%BD%9C%E8%AE%BA%E6%96%87%E7%A7%B0%E5%BA%94%E5%85%A8%E9%9D%A2%E6%94%BE%E5%BC%80%E5%92%8C%E9%BC%93%E5%8A%B1%E7%94%9F%E8%82%B2%23&Refer=top) `175.7K 🔥`
-1. [原来电视剧取名也有套路](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%94%B5%E8%A7%86%E5%89%A7%E5%8F%96%E5%90%8D%E4%B9%9F%E6%9C%89%E5%A5%97%E8%B7%AF%23&Refer=top) `175.2K 🔥`
-1. [吴磊哭戏代入感](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E5%93%AD%E6%88%8F%E4%BB%A3%E5%85%A5%E6%84%9F%23&Refer=top) `155.2K 🔥`
 
-数据更新于 2021-04-15 07:17:40
+数据更新于 2021-04-15 07:29:48
 
 <!-- END -->
 
