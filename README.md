@@ -8,6 +8,7 @@
 
 1. [蒋勤勤 听到是刘涛当团长就不想来了](https://s.weibo.com/weibo?q=%E8%92%8B%E5%8B%A4%E5%8B%A4%20%E5%90%AC%E5%88%B0%E6%98%AF%E5%88%98%E6%B6%9B%E5%BD%93%E5%9B%A2%E9%95%BF%E5%B0%B1%E4%B8%8D%E6%83%B3%E6%9D%A5%E4%BA%86&Refer=top) `4.6M 🔥`
 1. [杨紫眼神](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%E7%9C%BC%E7%A5%9E&Refer=top) `4.4M 🔥`
+1. [任豪](https://s.weibo.com/weibo?q=%E4%BB%BB%E8%B1%AA&Refer=top) `4.2M 🔥`
 1. [美国禁止日本食品进入](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%A6%81%E6%AD%A2%E6%97%A5%E6%9C%AC%E9%A3%9F%E5%93%81%E8%BF%9B%E5%85%A5%23&Refer=top) `3.6M 🔥`
 1. [瑞典环保少女态度含糊回应日本事件](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%85%B8%E7%8E%AF%E4%BF%9D%E5%B0%91%E5%A5%B3%E6%80%81%E5%BA%A6%E5%90%AB%E7%B3%8A%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E4%BA%8B%E4%BB%B6%23&Refer=top) `3.5M 🔥`
 1. [日本副首相称喝处理核废水没事](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%89%AF%E9%A6%96%E7%9B%B8%E7%A7%B0%E5%96%9D%E5%A4%84%E7%90%86%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%B2%A1%E4%BA%8B%23&Refer=top) `3.1M 🔥`
@@ -55,9 +56,8 @@
 1. [周韦彤一个月瘦了25斤](https://s.weibo.com/weibo?q=%23%E5%91%A8%E9%9F%A6%E5%BD%A4%E4%B8%80%E4%B8%AA%E6%9C%88%E7%98%A6%E4%BA%8625%E6%96%A4%23&Refer=top) `953.2K 🔥`
 1. [赵立坚说日本不能将福岛核废水一倒了之](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E6%97%A5%E6%9C%AC%E4%B8%8D%E8%83%BD%E5%B0%86%E7%A6%8F%E5%B2%9B%E6%A0%B8%E5%BA%9F%E6%B0%B4%E4%B8%80%E5%80%92%E4%BA%86%E4%B9%8B%23&Refer=top) `919.3K 🔥`
 1. [美国叫停强生新冠疫苗接种](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8F%AB%E5%81%9C%E5%BC%BA%E7%94%9F%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%23&Refer=top) `902.9K 🔥`
-1. [疫苗接种方舱来了](https://s.weibo.com/weibo?q=%23%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E6%96%B9%E8%88%B1%E6%9D%A5%E4%BA%86%23&Refer=top) `895.5K 🔥`
 
-数据更新于 2021-04-14 18:35:29
+数据更新于 2021-04-14 18:45:05
 
 <!-- END -->
 
