@@ -10,6 +10,7 @@
 1. [任豪回应](https://s.weibo.com/weibo?q=%23%E4%BB%BB%E8%B1%AA%E5%9B%9E%E5%BA%94%23&Refer=top) `5.4M 🔥`
 1. [蒋勤勤 听到是刘涛当团长就不想来了](https://s.weibo.com/weibo?q=%E8%92%8B%E5%8B%A4%E5%8B%A4%20%E5%90%AC%E5%88%B0%E6%98%AF%E5%88%98%E6%B6%9B%E5%BD%93%E5%9B%A2%E9%95%BF%E5%B0%B1%E4%B8%8D%E6%83%B3%E6%9D%A5%E4%BA%86&Refer=top) `4.6M 🔥`
 1. [杨紫眼神](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%E7%9C%BC%E7%A5%9E&Refer=top) `4.4M 🔥`
+1. [邓紫棋 我得先结婚再生小孩](https://s.weibo.com/weibo?q=%23%E9%82%93%E7%B4%AB%E6%A3%8B%20%E6%88%91%E5%BE%97%E5%85%88%E7%BB%93%E5%A9%9A%E5%86%8D%E7%94%9F%E5%B0%8F%E5%AD%A9%23&Refer=top) `3.6M 🔥`
 1. [文在寅欲起诉日本核污水入海](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E6%AC%B2%E8%B5%B7%E8%AF%89%E6%97%A5%E6%9C%AC%E6%A0%B8%E6%B1%A1%E6%B0%B4%E5%85%A5%E6%B5%B7%23&Refer=top) `3.6M 🔥`
 1. [美国禁止日本食品进入](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%A6%81%E6%AD%A2%E6%97%A5%E6%9C%AC%E9%A3%9F%E5%93%81%E8%BF%9B%E5%85%A5%23&Refer=top) `3.6M 🔥`
 1. [瑞典环保少女态度含糊回应日本事件](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%85%B8%E7%8E%AF%E4%BF%9D%E5%B0%91%E5%A5%B3%E6%80%81%E5%BA%A6%E5%90%AB%E7%B3%8A%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E4%BA%8B%E4%BB%B6%23&Refer=top) `3.5M 🔥`
@@ -55,9 +56,8 @@
 1. [日本番茄酱大王停止进口新疆番茄](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%95%AA%E8%8C%84%E9%85%B1%E5%A4%A7%E7%8E%8B%E5%81%9C%E6%AD%A2%E8%BF%9B%E5%8F%A3%E6%96%B0%E7%96%86%E7%95%AA%E8%8C%84%23&Refer=top) `1.4M 🔥`
 1. [周笔畅推荐杨幂参加姐姐3](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%AC%94%E7%95%85%E6%8E%A8%E8%8D%90%E6%9D%A8%E5%B9%82%E5%8F%82%E5%8A%A0%E5%A7%90%E5%A7%903%23&Refer=top) `1.4M 🔥`
 1. [李亨利](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BA%A8%E5%88%A9&Refer=top) `1.4M 🔥`
-1. [印度超两百万人聚集恒河沐浴](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6%E8%B6%85%E4%B8%A4%E7%99%BE%E4%B8%87%E4%BA%BA%E8%81%9A%E9%9B%86%E6%81%92%E6%B2%B3%E6%B2%90%E6%B5%B4&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-04-14 23:28:55
+数据更新于 2021-04-14 23:40:50
 
 <!-- END -->
 
