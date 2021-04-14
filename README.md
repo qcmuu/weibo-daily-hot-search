@@ -22,12 +22,13 @@
 1. [谭警官回应现实版的活着](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E8%AD%A6%E5%AE%98%E5%9B%9E%E5%BA%94%E7%8E%B0%E5%AE%9E%E7%89%88%E7%9A%84%E6%B4%BB%E7%9D%80%23&Refer=top) `615.9K 🔥`
 1. [项思醒](https://s.weibo.com/weibo?q=%E9%A1%B9%E6%80%9D%E9%86%92&Refer=top) `560.7K 🔥`
 1. [Jennie春游照](https://s.weibo.com/weibo?q=Jennie%E6%98%A5%E6%B8%B8%E7%85%A7&Refer=top) `559.1K 🔥`
+1. [交警处罚严禁逐利执法](https://s.weibo.com/weibo?q=%23%E4%BA%A4%E8%AD%A6%E5%A4%84%E7%BD%9A%E4%B8%A5%E7%A6%81%E9%80%90%E5%88%A9%E6%89%A7%E6%B3%95%23&Refer=top) `556.5K 🔥`
 1. [美国史上最大庞氏骗局主犯麦道夫死亡](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%A4%A7%E5%BA%9E%E6%B0%8F%E9%AA%97%E5%B1%80%E4%B8%BB%E7%8A%AF%E9%BA%A6%E9%81%93%E5%A4%AB%E6%AD%BB%E4%BA%A1%23&Refer=top) `544.9K 🔥`
 1. [教资69](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%B5%8469%23&Refer=top) `517.2K 🔥`
 1. [辣目洋子李宏毅新剧开机](https://s.weibo.com/weibo?q=%23%E8%BE%A3%E7%9B%AE%E6%B4%8B%E5%AD%90%E6%9D%8E%E5%AE%8F%E6%AF%85%E6%96%B0%E5%89%A7%E5%BC%80%E6%9C%BA%23&Refer=top) `512.0K 🔥`
 1. [微信群调侃领导彩旗飘飘被开除](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E7%BE%A4%E8%B0%83%E4%BE%83%E9%A2%86%E5%AF%BC%E5%BD%A9%E6%97%97%E9%A3%98%E9%A3%98%E8%A2%AB%E5%BC%80%E9%99%A4%23&Refer=top) `487.7K 🔥`
 1. [这就是小说女主的婚纱吧](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E5%B0%8F%E8%AF%B4%E5%A5%B3%E4%B8%BB%E7%9A%84%E5%A9%9A%E7%BA%B1%E5%90%A7%23&Refer=top) `484.4K 🔥`
-1. [交警处罚严禁逐利执法](https://s.weibo.com/weibo?q=%23%E4%BA%A4%E8%AD%A6%E5%A4%84%E7%BD%9A%E4%B8%A5%E7%A6%81%E9%80%90%E5%88%A9%E6%89%A7%E6%B3%95%23&Refer=top) `410.5K 🔥`
+1. [夫妻吵架父母应不应该插手](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E5%90%B5%E6%9E%B6%E7%88%B6%E6%AF%8D%E5%BA%94%E4%B8%8D%E5%BA%94%E8%AF%A5%E6%8F%92%E6%89%8B%23&Refer=top) `412.1K 🔥`
 1. [女主颜值最能打的国漫](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E4%B8%BB%E9%A2%9C%E5%80%BC%E6%9C%80%E8%83%BD%E6%89%93%E7%9A%84%E5%9B%BD%E6%BC%AB%23&Refer=top) `410.1K 🔥`
 1. [江歌妈妈起诉刘鑫案明日开庭](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E6%AD%8C%E5%A6%88%E5%A6%88%E8%B5%B7%E8%AF%89%E5%88%98%E9%91%AB%E6%A1%88%E6%98%8E%E6%97%A5%E5%BC%80%E5%BA%AD%23&Refer=top) `409.5K 🔥`
 1. [直男是怎么切蛋糕的](https://s.weibo.com/weibo?q=%23%E7%9B%B4%E7%94%B7%E6%98%AF%E6%80%8E%E4%B9%88%E5%88%87%E8%9B%8B%E7%B3%95%E7%9A%84%23&Refer=top) `391.6K 🔥`
@@ -48,14 +49,13 @@
 1. [窥探](https://s.weibo.com/weibo?q=%E7%AA%A5%E6%8E%A2&Refer=top) `243.2K 🔥`
 1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `235.2K 🔥`
 1. [广东警方通报医生医院坠亡](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%8C%BB%E7%94%9F%E5%8C%BB%E9%99%A2%E5%9D%A0%E4%BA%A1%23&Refer=top) `229.6K 🔥`
-1. [夫妻吵架父母应不应该插手](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E5%90%B5%E6%9E%B6%E7%88%B6%E6%AF%8D%E5%BA%94%E4%B8%8D%E5%BA%94%E8%AF%A5%E6%8F%92%E6%89%8B%23&Refer=top) `198.5K 🔥`
-1. [长歌行超前点播](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C%E8%B6%85%E5%89%8D%E7%82%B9%E6%92%AD&Refer=top) `189.0K 🔥`
+1. [长歌行超前点播](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C%E8%B6%85%E5%89%8D%E7%82%B9%E6%92%AD&Refer=top) `222.2K 🔥`
 1. [日本大叔讲核废水排海危害](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%A4%A7%E5%8F%94%E8%AE%B2%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%8E%92%E6%B5%B7%E5%8D%B1%E5%AE%B3%23&Refer=top) `181.1K 🔥`
 1. [吉野家2020年净亏75亿日元](https://s.weibo.com/weibo?q=%23%E5%90%89%E9%87%8E%E5%AE%B62020%E5%B9%B4%E5%87%80%E4%BA%8F75%E4%BA%BF%E6%97%A5%E5%85%83%23&Refer=top) `181.1K 🔥`
 1. [央行工作论文称应全面放开和鼓励生育](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A1%8C%E5%B7%A5%E4%BD%9C%E8%AE%BA%E6%96%87%E7%A7%B0%E5%BA%94%E5%85%A8%E9%9D%A2%E6%94%BE%E5%BC%80%E5%92%8C%E9%BC%93%E5%8A%B1%E7%94%9F%E8%82%B2%23&Refer=top) `175.7K 🔥`
 1. [原来电视剧取名也有套路](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%94%B5%E8%A7%86%E5%89%A7%E5%8F%96%E5%90%8D%E4%B9%9F%E6%9C%89%E5%A5%97%E8%B7%AF%23&Refer=top) `175.2K 🔥`
 
-数据更新于 2021-04-15 00:08:34
+数据更新于 2021-04-15 00:20:33
 
 <!-- END -->
 
