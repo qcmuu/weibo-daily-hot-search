@@ -55,9 +55,9 @@
 1. [女足让看台上的爷们儿哭了](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E8%B6%B3%E8%AE%A9%E7%9C%8B%E5%8F%B0%E4%B8%8A%E7%9A%84%E7%88%B7%E4%BB%AC%E5%84%BF%E5%93%AD%E4%BA%86%23&Refer=top) `129.3K 🔥`
 1. [外交部回应日本催中国实现碳中和](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E5%82%AC%E4%B8%AD%E5%9B%BD%E5%AE%9E%E7%8E%B0%E7%A2%B3%E4%B8%AD%E5%92%8C%23&Refer=top) `125.5K 🔥`
 1. [赵立坚说拿锤子的人看什么都像钉子](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E6%8B%BF%E9%94%A4%E5%AD%90%E7%9A%84%E4%BA%BA%E7%9C%8B%E4%BB%80%E4%B9%88%E9%83%BD%E5%83%8F%E9%92%89%E5%AD%90%23&Refer=top) `120.6K 🔥`
-1. [骊歌行](https://s.weibo.com/weibo?q=%E9%AA%8A%E6%AD%8C%E8%A1%8C&Refer=top) `71.0K 🔥`
+1. [迪丽热巴墨绿色长裙](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%A2%A8%E7%BB%BF%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `79.7K 🔥`
 
-数据更新于 2021-04-16 06:00:54
+数据更新于 2021-04-16 06:09:40
 
 <!-- END -->
 
