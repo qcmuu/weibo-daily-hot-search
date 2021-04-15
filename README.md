@@ -20,10 +20,12 @@
 1. [江歌母亲不同意调解](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E6%AD%8C%E6%AF%8D%E4%BA%B2%E4%B8%8D%E5%90%8C%E6%84%8F%E8%B0%83%E8%A7%A3%23&Refer=top) `2.9M 🔥`
 1. [龚俊张慧雯吻戏](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E6%85%A7%E9%9B%AF%E5%90%BB%E6%88%8F%23&Refer=top) `2.8M 🔥`
 1. [张雨绮李柄熹 娱乐圈姐弟恋甜宠文](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%9F%84%E7%86%B9%20%E5%A8%B1%E4%B9%90%E5%9C%88%E5%A7%90%E5%BC%9F%E6%81%8B%E7%94%9C%E5%AE%A0%E6%96%87&Refer=top) `2.8M 🔥`
+1. [拜登对俄罗斯实施新制裁](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E5%AF%B9%E4%BF%84%E7%BD%97%E6%96%AF%E5%AE%9E%E6%96%BD%E6%96%B0%E5%88%B6%E8%A3%81%23&Refer=top) `2.7M 🔥`
 1. [梁森戴假发](https://s.weibo.com/weibo?q=%E6%A2%81%E6%A3%AE%E6%88%B4%E5%81%87%E5%8F%91&Refer=top) `2.6M 🔥`
 1. [赵文瑄](https://s.weibo.com/weibo?q=%E8%B5%B5%E6%96%87%E7%91%84&Refer=top) `2.5M 🔥`
 1. [娜扎演的貂蝉](https://s.weibo.com/weibo?q=%23%E5%A8%9C%E6%89%8E%E6%BC%94%E7%9A%84%E8%B2%82%E8%9D%89%23&Refer=top) `2.4M 🔥`
 1. [姜素拉产女](https://s.weibo.com/weibo?q=%E5%A7%9C%E7%B4%A0%E6%8B%89%E4%BA%A7%E5%A5%B3&Refer=top) `2.4M 🔥`
+1. [报警电话录下江歌最后一声惨叫](https://s.weibo.com/weibo?q=%23%E6%8A%A5%E8%AD%A6%E7%94%B5%E8%AF%9D%E5%BD%95%E4%B8%8B%E6%B1%9F%E6%AD%8C%E6%9C%80%E5%90%8E%E4%B8%80%E5%A3%B0%E6%83%A8%E5%8F%AB%23&Refer=top) `2.3M 🔥`
 1. [王子文晒吴永恩的画](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E6%96%87%E6%99%92%E5%90%B4%E6%B0%B8%E6%81%A9%E7%9A%84%E7%94%BB&Refer=top) `2.3M 🔥`
 1. [刘鑫方称对江歌遇害不担责](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%91%AB%E6%96%B9%E7%A7%B0%E5%AF%B9%E6%B1%9F%E6%AD%8C%E9%81%87%E5%AE%B3%E4%B8%8D%E6%8B%85%E8%B4%A3%23&Refer=top) `2.2M 🔥`
 1. [普通人接受男艺人造型后的变化](https://s.weibo.com/weibo?q=%23%E6%99%AE%E9%80%9A%E4%BA%BA%E6%8E%A5%E5%8F%97%E7%94%B7%E8%89%BA%E4%BA%BA%E9%80%A0%E5%9E%8B%E5%90%8E%E7%9A%84%E5%8F%98%E5%8C%96%23&Refer=top) `2.2M 🔥`
@@ -42,10 +44,10 @@
 1. [谢楠汪聪主持山河令演唱会](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E6%A5%A0%E6%B1%AA%E8%81%AA%E4%B8%BB%E6%8C%81%E5%B1%B1%E6%B2%B3%E4%BB%A4%E6%BC%94%E5%94%B1%E4%BC%9A%23&Refer=top) `1.6M 🔥`
 1. [BCI官网下架抵制新疆棉花声明](https://s.weibo.com/weibo?q=%23BCI%E5%AE%98%E7%BD%91%E4%B8%8B%E6%9E%B6%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E5%A3%B0%E6%98%8E%23&Refer=top) `1.6M 🔥`
 1. [赵薇秦昊演夫妻](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E8%96%87%E7%A7%A6%E6%98%8A%E6%BC%94%E5%A4%AB%E5%A6%BB%23&Refer=top) `1.6M 🔥`
-1. [报警电话录下江歌最后一声惨叫](https://s.weibo.com/weibo?q=%23%E6%8A%A5%E8%AD%A6%E7%94%B5%E8%AF%9D%E5%BD%95%E4%B8%8B%E6%B1%9F%E6%AD%8C%E6%9C%80%E5%90%8E%E4%B8%80%E5%A3%B0%E6%83%A8%E5%8F%AB%23&Refer=top) `1.5M 🔥`
 1. [王源的刘海好像墨镜](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%9A%84%E5%88%98%E6%B5%B7%E5%A5%BD%E5%83%8F%E5%A2%A8%E9%95%9C%23&Refer=top) `1.5M 🔥`
 1. [北京沙尘暴](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%B2%99%E5%B0%98%E6%9A%B4&Refer=top) `1.5M 🔥`
 1. [胡歌为吕一打call](https://s.weibo.com/weibo?q=%23%E8%83%A1%E6%AD%8C%E4%B8%BA%E5%90%95%E4%B8%80%E6%89%93call%23&Refer=top) `1.4M 🔥`
+1. [小舍得 气死](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97%20%E6%B0%94%E6%AD%BB&Refer=top) `1.4M 🔥`
 1. [上海幼儿园招生不得测试家长和孩子](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%B9%BC%E5%84%BF%E5%9B%AD%E6%8B%9B%E7%94%9F%E4%B8%8D%E5%BE%97%E6%B5%8B%E8%AF%95%E5%AE%B6%E9%95%BF%E5%92%8C%E5%AD%A9%E5%AD%90%23&Refer=top) `1.4M 🔥`
 1. [肿瘤早期五大报警信号](https://s.weibo.com/weibo?q=%23%E8%82%BF%E7%98%A4%E6%97%A9%E6%9C%9F%E4%BA%94%E5%A4%A7%E6%8A%A5%E8%AD%A6%E4%BF%A1%E5%8F%B7%23&Refer=top) `1.4M 🔥`
 1. [刘鑫未出庭](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%91%AB%E6%9C%AA%E5%87%BA%E5%BA%AD%23&Refer=top) `1.4M 🔥`
@@ -54,10 +56,8 @@
 1. [脱粉](https://s.weibo.com/weibo?q=%E8%84%B1%E7%B2%89&Refer=top) `1.3M 🔥`
 1. [刘鑫拒绝回应被诉侵权一案](https://s.weibo.com/weibo?q=%E5%88%98%E9%91%AB%E6%8B%92%E7%BB%9D%E5%9B%9E%E5%BA%94%E8%A2%AB%E8%AF%89%E4%BE%B5%E6%9D%83%E4%B8%80%E6%A1%88&Refer=top) `1.3M 🔥`
 1. [美国将驱逐10名俄罗斯外交官](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%B0%86%E9%A9%B1%E9%80%9010%E5%90%8D%E4%BF%84%E7%BD%97%E6%96%AF%E5%A4%96%E4%BA%A4%E5%AE%98%23&Refer=top) `1.3M 🔥`
-1. [遇到推销化妆品香水的要小心](https://s.weibo.com/weibo?q=%23%E9%81%87%E5%88%B0%E6%8E%A8%E9%94%80%E5%8C%96%E5%A6%86%E5%93%81%E9%A6%99%E6%B0%B4%E7%9A%84%E8%A6%81%E5%B0%8F%E5%BF%83%23&Refer=top) `1.3M 🔥`
-1. [利路修 节目结束我可以多点笑](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%20%E8%8A%82%E7%9B%AE%E7%BB%93%E6%9D%9F%E6%88%91%E5%8F%AF%E4%BB%A5%E5%A4%9A%E7%82%B9%E7%AC%91&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-15 22:26:31
+数据更新于 2021-04-15 22:36:04
 
 <!-- END -->
 
