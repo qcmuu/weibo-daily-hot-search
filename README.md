@@ -57,7 +57,7 @@
 1. [北京拟对涉毒艺人实施自律惩戒](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%8B%9F%E5%AF%B9%E6%B6%89%E6%AF%92%E8%89%BA%E4%BA%BA%E5%AE%9E%E6%96%BD%E8%87%AA%E5%BE%8B%E6%83%A9%E6%88%92%23&Refer=top) `1.2M 🔥`
 1. [外交部回应日本催中国实现碳中和](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E5%82%AC%E4%B8%AD%E5%9B%BD%E5%AE%9E%E7%8E%B0%E7%A2%B3%E4%B8%AD%E5%92%8C%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-15 20:54:36
+数据更新于 2021-04-15 21:06:25
 
 <!-- END -->
 
