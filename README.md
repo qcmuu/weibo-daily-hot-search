@@ -19,16 +19,17 @@
 1. [小舍得 气死](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97%20%E6%B0%94%E6%AD%BB&Refer=top) `1.2M 🔥`
 1. [周扬青呼吁不养折耳猫](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E5%91%BC%E5%90%81%E4%B8%8D%E5%85%BB%E6%8A%98%E8%80%B3%E7%8C%AB%23&Refer=top) `1.2M 🔥`
 1. [乔丹成为科比名人堂引荐人](https://s.weibo.com/weibo?q=%E4%B9%94%E4%B8%B9%E6%88%90%E4%B8%BA%E7%A7%91%E6%AF%94%E5%90%8D%E4%BA%BA%E5%A0%82%E5%BC%95%E8%8D%90%E4%BA%BA&Refer=top) `1.2M 🔥`
-1. [门店回应花17元吃海底捞](https://s.weibo.com/weibo?q=%E9%97%A8%E5%BA%97%E5%9B%9E%E5%BA%94%E8%8A%B117%E5%85%83%E5%90%83%E6%B5%B7%E5%BA%95%E6%8D%9E&Refer=top) `953.8K 🔥`
-1. [任豪 KTV](https://s.weibo.com/weibo?q=%E4%BB%BB%E8%B1%AA%20KTV&Refer=top) `929.0K 🔥`
+1. [门店回应花17元吃海底捞](https://s.weibo.com/weibo?q=%23%E9%97%A8%E5%BA%97%E5%9B%9E%E5%BA%94%E8%8A%B117%E5%85%83%E5%90%83%E6%B5%B7%E5%BA%95%E6%8D%9E%23&Refer=top) `1.0M 🔥`
+1. [任豪 KTV](https://s.weibo.com/weibo?q=%E4%BB%BB%E8%B1%AA%20KTV&Refer=top) `1.0M 🔥`
 1. [子悠快抑郁了吧](https://s.weibo.com/weibo?q=%E5%AD%90%E6%82%A0%E5%BF%AB%E6%8A%91%E9%83%81%E4%BA%86%E5%90%A7&Refer=top) `919.3K 🔥`
+1. [永辉超市就食品安全问题致歉](https://s.weibo.com/weibo?q=%E6%B0%B8%E8%BE%89%E8%B6%85%E5%B8%82%E5%B0%B1%E9%A3%9F%E5%93%81%E5%AE%89%E5%85%A8%E9%97%AE%E9%A2%98%E8%87%B4%E6%AD%89&Refer=top) `883.5K 🔥`
 1. [王子文晒吴永恩的画](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E6%99%92%E5%90%B4%E6%B0%B8%E6%81%A9%E7%9A%84%E7%94%BB%23&Refer=top) `883.0K 🔥`
-1. [永辉超市就食品安全问题致歉](https://s.weibo.com/weibo?q=%23%E6%B0%B8%E8%BE%89%E8%B6%85%E5%B8%82%E5%B0%B1%E9%A3%9F%E5%93%81%E5%AE%89%E5%85%A8%E9%97%AE%E9%A2%98%E8%87%B4%E6%AD%89%23&Refer=top) `882.4K 🔥`
 1. [欢欢每集都哭](https://s.weibo.com/weibo?q=%23%E6%AC%A2%E6%AC%A2%E6%AF%8F%E9%9B%86%E9%83%BD%E5%93%AD%23&Refer=top) `876.5K 🔥`
 1. [云南新增确诊病例1例](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B1%E4%BE%8B%23&Refer=top) `781.9K 🔥`
 1. [国家矿山安监局通报近期三起煤矿事故](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E7%9F%BF%E5%B1%B1%E5%AE%89%E7%9B%91%E5%B1%80%E9%80%9A%E6%8A%A5%E8%BF%91%E6%9C%9F%E4%B8%89%E8%B5%B7%E7%85%A4%E7%9F%BF%E4%BA%8B%E6%95%85%23&Refer=top) `765.9K 🔥`
 1. [普通人接受男艺人造型后的变化](https://s.weibo.com/weibo?q=%23%E6%99%AE%E9%80%9A%E4%BA%BA%E6%8E%A5%E5%8F%97%E7%94%B7%E8%89%BA%E4%BA%BA%E9%80%A0%E5%9E%8B%E5%90%8E%E7%9A%84%E5%8F%98%E5%8C%96%23&Refer=top) `754.7K 🔥`
 1. [梁森戴假发](https://s.weibo.com/weibo?q=%23%E6%A2%81%E6%A3%AE%E6%88%B4%E5%81%87%E5%8F%91%23&Refer=top) `702.4K 🔥`
+1. [自费打工](https://s.weibo.com/weibo?q=%23%E8%87%AA%E8%B4%B9%E6%89%93%E5%B7%A5%23&Refer=top) `680.4K 🔥`
 1. [首尔一大型超市挂抵制日货标语](https://s.weibo.com/weibo?q=%E9%A6%96%E5%B0%94%E4%B8%80%E5%A4%A7%E5%9E%8B%E8%B6%85%E5%B8%82%E6%8C%82%E6%8A%B5%E5%88%B6%E6%97%A5%E8%B4%A7%E6%A0%87%E8%AF%AD&Refer=top) `622.1K 🔥`
 1. [阿尔德里奇退役](https://s.weibo.com/weibo?q=%E9%98%BF%E5%B0%94%E5%BE%B7%E9%87%8C%E5%A5%87%E9%80%80%E5%BD%B9&Refer=top) `606.3K 🔥`
 1. [江歌母亲不同意调解](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E6%AD%8C%E6%AF%8D%E4%BA%B2%E4%B8%8D%E5%90%8C%E6%84%8F%E8%B0%83%E8%A7%A3%23&Refer=top) `605.9K 🔥`
@@ -55,9 +56,8 @@
 1. [黄圣依杨子的暗号是狗叫](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%9C%A3%E4%BE%9D%E6%9D%A8%E5%AD%90%E7%9A%84%E6%9A%97%E5%8F%B7%E6%98%AF%E7%8B%97%E5%8F%AB%23&Refer=top) `412.1K 🔥`
 1. [这就是街舞阵容](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E8%A1%97%E8%88%9E%E9%98%B5%E5%AE%B9%23&Refer=top) `400.5K 🔥`
 1. [雷神山流浪小奶猫一年后成胖橘](https://s.weibo.com/weibo?q=%E9%9B%B7%E7%A5%9E%E5%B1%B1%E6%B5%81%E6%B5%AA%E5%B0%8F%E5%A5%B6%E7%8C%AB%E4%B8%80%E5%B9%B4%E5%90%8E%E6%88%90%E8%83%96%E6%A9%98&Refer=top) `386.1K 🔥`
-1. [山河令](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4&Refer=top) `378.9K 🔥`
 
-数据更新于 2021-04-16 10:28:46
+数据更新于 2021-04-16 10:47:08
 
 <!-- END -->
 
