@@ -19,7 +19,9 @@
 1. [2020年我国每分钟有8人被确诊癌症](https://s.weibo.com/weibo?q=%232020%E5%B9%B4%E6%88%91%E5%9B%BD%E6%AF%8F%E5%88%86%E9%92%9F%E6%9C%898%E4%BA%BA%E8%A2%AB%E7%A1%AE%E8%AF%8A%E7%99%8C%E7%97%87%23&Refer=top) `2.4M 🔥`
 1. [女子离婚朋友拉横幅庆祝](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E7%A6%BB%E5%A9%9A%E6%9C%8B%E5%8F%8B%E6%8B%89%E6%A8%AA%E5%B9%85%E5%BA%86%E7%A5%9D&Refer=top) `2.4M 🔥`
 1. [王牌对王牌](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C&Refer=top) `2.3M 🔥`
+1. [邓伦 我昨天喊很大声吗](https://s.weibo.com/weibo?q=%E9%82%93%E4%BC%A6%20%E6%88%91%E6%98%A8%E5%A4%A9%E5%96%8A%E5%BE%88%E5%A4%A7%E5%A3%B0%E5%90%97&Refer=top) `2.3M 🔥`
 1. [景甜张彬彬牵手合唱下落不明](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E7%89%B5%E6%89%8B%E5%90%88%E5%94%B1%E4%B8%8B%E8%90%BD%E4%B8%8D%E6%98%8E%23&Refer=top) `2.2M 🔥`
+1. [白敬亭录密室大逃脱前后的鞋子对比](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E5%BD%95%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1%E5%89%8D%E5%90%8E%E7%9A%84%E9%9E%8B%E5%AD%90%E5%AF%B9%E6%AF%94%23&Refer=top) `1.9M 🔥`
 1. [容祖儿 我赢了阿sa阿娇](https://s.weibo.com/weibo?q=%E5%AE%B9%E7%A5%96%E5%84%BF%20%E6%88%91%E8%B5%A2%E4%BA%86%E9%98%BFsa%E9%98%BF%E5%A8%87&Refer=top) `1.9M 🔥`
 1. [霍建华王力宏合照](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%BB%BA%E5%8D%8E%E7%8E%8B%E5%8A%9B%E5%AE%8F%E5%90%88%E7%85%A7%23&Refer=top) `1.9M 🔥`
 1. [CEO砍掉自己百万年薪提高员工工资](https://s.weibo.com/weibo?q=%23CEO%E7%A0%8D%E6%8E%89%E8%87%AA%E5%B7%B1%E7%99%BE%E4%B8%87%E5%B9%B4%E8%96%AA%E6%8F%90%E9%AB%98%E5%91%98%E5%B7%A5%E5%B7%A5%E8%B5%84%23&Refer=top) `1.9M 🔥`
@@ -34,8 +36,6 @@
 1. [赵丽颖耳环掉在锁骨上](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E8%80%B3%E7%8E%AF%E6%8E%89%E5%9C%A8%E9%94%81%E9%AA%A8%E4%B8%8A%23&Refer=top) `1.8M 🔥`
 1. [本论文不必参考任何文献](https://s.weibo.com/weibo?q=%E6%9C%AC%E8%AE%BA%E6%96%87%E4%B8%8D%E5%BF%85%E5%8F%82%E8%80%83%E4%BB%BB%E4%BD%95%E6%96%87%E7%8C%AE&Refer=top) `1.8M 🔥`
 1. [陈伟霆问刘维杨迪 是在取笑我吗](https://s.weibo.com/weibo?q=%E9%99%88%E4%BC%9F%E9%9C%86%E9%97%AE%E5%88%98%E7%BB%B4%E6%9D%A8%E8%BF%AA%20%E6%98%AF%E5%9C%A8%E5%8F%96%E7%AC%91%E6%88%91%E5%90%97&Refer=top) `1.8M 🔥`
-1. [白敬亭录密室大逃脱前后的鞋子对比](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E5%BD%95%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1%E5%89%8D%E5%90%8E%E7%9A%84%E9%9E%8B%E5%AD%90%E5%AF%B9%E6%AF%94%23&Refer=top) `1.8M 🔥`
-1. [邓伦 我昨天喊很大声吗](https://s.weibo.com/weibo?q=%E9%82%93%E4%BC%A6%20%E6%88%91%E6%98%A8%E5%A4%A9%E5%96%8A%E5%BE%88%E5%A4%A7%E5%A3%B0%E5%90%97&Refer=top) `1.8M 🔥`
 1. [郭美美被批捕](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E8%A2%AB%E6%89%B9%E6%8D%95%23&Refer=top) `1.6M 🔥`
 1. [美国13岁少年举手被警察一枪毙命](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD13%E5%B2%81%E5%B0%91%E5%B9%B4%E4%B8%BE%E6%89%8B%E8%A2%AB%E8%AD%A6%E5%AF%9F%E4%B8%80%E6%9E%AA%E6%AF%99%E5%91%BD&Refer=top) `1.6M 🔥`
 1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [阿兰 我只是有选择而已不是懒](https://s.weibo.com/weibo?q=%E9%98%BF%E5%85%B0%20%E6%88%91%E5%8F%AA%E6%98%AF%E6%9C%89%E9%80%89%E6%8B%A9%E8%80%8C%E5%B7%B2%E4%B8%8D%E6%98%AF%E6%87%92&Refer=top) `936.4K 🔥`
 1. [张柏芝没成团](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%9F%8F%E8%8A%9D%E6%B2%A1%E6%88%90%E5%9B%A2&Refer=top) `915.0K 🔥`
 
-数据更新于 2021-04-17 16:05:27
+数据更新于 2021-04-17 16:15:58
 
 <!-- END -->
 
