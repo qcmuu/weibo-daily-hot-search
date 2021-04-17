@@ -16,9 +16,10 @@
 1. [迪丽热巴 我一定要演渣男](https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%20%E6%88%91%E4%B8%80%E5%AE%9A%E8%A6%81%E6%BC%94%E6%B8%A3%E7%94%B7&Refer=top) `2.9M 🔥`
 1. [吴磊口型 你故意的](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%E5%8F%A3%E5%9E%8B%20%E4%BD%A0%E6%95%85%E6%84%8F%E7%9A%84&Refer=top) `2.6M 🔥`
 1. [4月30日火车票已发售290万张](https://s.weibo.com/weibo?q=%234%E6%9C%8830%E6%97%A5%E7%81%AB%E8%BD%A6%E7%A5%A8%E5%B7%B2%E5%8F%91%E5%94%AE290%E4%B8%87%E5%BC%A0%23&Refer=top) `2.6M 🔥`
+1. [我国已接种新冠疫苗18736.8万剂次](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E5%B7%B2%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%9718736.8%E4%B8%87%E5%89%82%E6%AC%A1&Refer=top) `2.5M 🔥`
 1. [2020年我国每分钟有8人被确诊癌症](https://s.weibo.com/weibo?q=%232020%E5%B9%B4%E6%88%91%E5%9B%BD%E6%AF%8F%E5%88%86%E9%92%9F%E6%9C%898%E4%BA%BA%E8%A2%AB%E7%A1%AE%E8%AF%8A%E7%99%8C%E7%97%87%23&Refer=top) `2.4M 🔥`
 1. [女子离婚朋友拉横幅庆祝](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E7%A6%BB%E5%A9%9A%E6%9C%8B%E5%8F%8B%E6%8B%89%E6%A8%AA%E5%B9%85%E5%BA%86%E7%A5%9D&Refer=top) `2.4M 🔥`
-1. [邓伦 我昨天喊很大声吗](https://s.weibo.com/weibo?q=%E9%82%93%E4%BC%A6%20%E6%88%91%E6%98%A8%E5%A4%A9%E5%96%8A%E5%BE%88%E5%A4%A7%E5%A3%B0%E5%90%97&Refer=top) `2.3M 🔥`
+1. [邓伦 我昨天喊很大声吗](https://s.weibo.com/weibo?q=%E9%82%93%E4%BC%A6%20%E6%88%91%E6%98%A8%E5%A4%A9%E5%96%8A%E5%BE%88%E5%A4%A7%E5%A3%B0%E5%90%97&Refer=top) `2.4M 🔥`
 1. [王牌对王牌](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C&Refer=top) `2.3M 🔥`
 1. [景甜张彬彬牵手合唱下落不明](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E7%89%B5%E6%89%8B%E5%90%88%E5%94%B1%E4%B8%8B%E8%90%BD%E4%B8%8D%E6%98%8E%23&Refer=top) `2.2M 🔥`
 1. [白敬亭录密室大逃脱前后的鞋子对比](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%E5%BD%95%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1%E5%89%8D%E5%90%8E%E7%9A%84%E9%9E%8B%E5%AD%90%E5%AF%B9%E6%AF%94&Refer=top) `2.0M 🔥`
@@ -55,9 +56,8 @@
 1. [吉克隽逸 爱我恨我照单全收](https://s.weibo.com/weibo?q=%E5%90%89%E5%85%8B%E9%9A%BD%E9%80%B8%20%E7%88%B1%E6%88%91%E6%81%A8%E6%88%91%E7%85%A7%E5%8D%95%E5%85%A8%E6%94%B6&Refer=top) `1.0M 🔥`
 1. [海南离岛免税店已达10家](https://s.weibo.com/weibo?q=%E6%B5%B7%E5%8D%97%E7%A6%BB%E5%B2%9B%E5%85%8D%E7%A8%8E%E5%BA%97%E5%B7%B2%E8%BE%BE10%E5%AE%B6&Refer=top) `1.0M 🔥`
 1. [江苏事业单位](https://s.weibo.com/weibo?q=%E6%B1%9F%E8%8B%8F%E4%BA%8B%E4%B8%9A%E5%8D%95%E4%BD%8D&Refer=top) `978.7K 🔥`
-1. [阿兰 我只是有选择而已不是懒](https://s.weibo.com/weibo?q=%E9%98%BF%E5%85%B0%20%E6%88%91%E5%8F%AA%E6%98%AF%E6%9C%89%E9%80%89%E6%8B%A9%E8%80%8C%E5%B7%B2%E4%B8%8D%E6%98%AF%E6%87%92&Refer=top) `936.4K 🔥`
 
-数据更新于 2021-04-17 16:29:37
+数据更新于 2021-04-17 16:41:27
 
 <!-- END -->
 
