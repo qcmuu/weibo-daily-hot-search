@@ -13,9 +13,9 @@
 1. [杜江念漏了一个人](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B1%9F%E5%BF%B5%E6%BC%8F%E4%BA%86%E4%B8%80%E4%B8%AA%E4%BA%BA%23&Refer=top) `3.3M 🔥`
 1. [郎平说中国女排会踏实做好每一天](https://s.weibo.com/weibo?q=%23%E9%83%8E%E5%B9%B3%E8%AF%B4%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E4%BC%9A%E8%B8%8F%E5%AE%9E%E5%81%9A%E5%A5%BD%E6%AF%8F%E4%B8%80%E5%A4%A9%23&Refer=top) `2.9M 🔥`
 1. [迪丽热巴 我一定要演渣男](https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%20%E6%88%91%E4%B8%80%E5%AE%9A%E8%A6%81%E6%BC%94%E6%B8%A3%E7%94%B7&Refer=top) `2.9M 🔥`
+1. [吴磊口型 你故意的](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%E5%8F%A3%E5%9E%8B%20%E4%BD%A0%E6%95%85%E6%84%8F%E7%9A%84&Refer=top) `2.6M 🔥`
 1. [2020年我国每分钟有8人被确诊癌症](https://s.weibo.com/weibo?q=%232020%E5%B9%B4%E6%88%91%E5%9B%BD%E6%AF%8F%E5%88%86%E9%92%9F%E6%9C%898%E4%BA%BA%E8%A2%AB%E7%A1%AE%E8%AF%8A%E7%99%8C%E7%97%87%23&Refer=top) `2.4M 🔥`
 1. [女子离婚朋友拉横幅庆祝](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E7%A6%BB%E5%A9%9A%E6%9C%8B%E5%8F%8B%E6%8B%89%E6%A8%AA%E5%B9%85%E5%BA%86%E7%A5%9D&Refer=top) `2.4M 🔥`
-1. [吴磊口型 你故意的](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%E5%8F%A3%E5%9E%8B%20%E4%BD%A0%E6%95%85%E6%84%8F%E7%9A%84&Refer=top) `2.4M 🔥`
 1. [王牌对王牌](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C&Refer=top) `2.3M 🔥`
 1. [景甜张彬彬牵手合唱下落不明](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E7%89%B5%E6%89%8B%E5%90%88%E5%94%B1%E4%B8%8B%E8%90%BD%E4%B8%8D%E6%98%8E%23&Refer=top) `2.2M 🔥`
 1. [4月30日火车票已发售290万张](https://s.weibo.com/weibo?q=%234%E6%9C%8830%E6%97%A5%E7%81%AB%E8%BD%A6%E7%A5%A8%E5%B7%B2%E5%8F%91%E5%94%AE290%E4%B8%87%E5%BC%A0%23&Refer=top) `2.0M 🔥`
@@ -39,6 +39,7 @@
 1. [那英说听完杨丞琳的话有点心虚](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E8%AF%B4%E5%90%AC%E5%AE%8C%E6%9D%A8%E4%B8%9E%E7%90%B3%E7%9A%84%E8%AF%9D%E6%9C%89%E7%82%B9%E5%BF%83%E8%99%9A%23&Refer=top) `1.5M 🔥`
 1. [印度发现双重突变新冠病毒](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%91%E7%8E%B0%E5%8F%8C%E9%87%8D%E7%AA%81%E5%8F%98%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%23&Refer=top) `1.4M 🔥`
 1. [全国日均发生2700起电信网络诈骗案](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%97%A5%E5%9D%87%E5%8F%91%E7%94%9F2700%E8%B5%B7%E7%94%B5%E4%BF%A1%E7%BD%91%E7%BB%9C%E8%AF%88%E9%AA%97%E6%A1%88%23&Refer=top) `1.4M 🔥`
+1. [孙坚 这是我母亲生的我](https://s.weibo.com/weibo?q=%E5%AD%99%E5%9D%9A%20%E8%BF%99%E6%98%AF%E6%88%91%E6%AF%8D%E4%BA%B2%E7%94%9F%E7%9A%84%E6%88%91&Refer=top) `1.3M 🔥`
 1. [THE9时代少年团齐舞](https://s.weibo.com/weibo?q=%23THE9%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E9%BD%90%E8%88%9E%23&Refer=top) `1.3M 🔥`
 1. [新兰 柯哀](https://s.weibo.com/weibo?q=%E6%96%B0%E5%85%B0%20%E6%9F%AF%E5%93%80&Refer=top) `1.3M 🔥`
 1. [太原一化工厂爆炸2人遇难](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E5%8E%9F%E4%B8%80%E5%8C%96%E5%B7%A5%E5%8E%82%E7%88%86%E7%82%B82%E4%BA%BA%E9%81%87%E9%9A%BE%23&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [豆瓣崩了](https://s.weibo.com/weibo?q=%E8%B1%86%E7%93%A3%E5%B4%A9%E4%BA%86&Refer=top) `896.6K 🔥`
 1. [全球病毒感染率接近疫情时期的最高](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E7%97%85%E6%AF%92%E6%84%9F%E6%9F%93%E7%8E%87%E6%8E%A5%E8%BF%91%E7%96%AB%E6%83%85%E6%97%B6%E6%9C%9F%E7%9A%84%E6%9C%80%E9%AB%98%23&Refer=top) `874.7K 🔥`
 1. [俄宣布将驱逐10名美国外交人员](https://s.weibo.com/weibo?q=%E4%BF%84%E5%AE%A3%E5%B8%83%E5%B0%86%E9%A9%B1%E9%80%9010%E5%90%8D%E7%BE%8E%E5%9B%BD%E5%A4%96%E4%BA%A4%E4%BA%BA%E5%91%98&Refer=top) `872.5K 🔥`
-1. [那英 假唱](https://s.weibo.com/weibo?q=%E9%82%A3%E8%8B%B1%20%E5%81%87%E5%94%B1&Refer=top) `867.3K 🔥`
 
-数据更新于 2021-04-17 14:15:20
+数据更新于 2021-04-17 14:29:44
 
 <!-- END -->
 
