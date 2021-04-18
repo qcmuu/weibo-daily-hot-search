@@ -54,10 +54,10 @@
 1. [库里高难度投篮](https://s.weibo.com/weibo?q=%E5%BA%93%E9%87%8C%E9%AB%98%E9%9A%BE%E5%BA%A6%E6%8A%95%E7%AF%AE&Refer=top) `901.5K 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `885.1K 🔥`
 1. [农行系统维护](https://s.weibo.com/weibo?q=%23%E5%86%9C%E8%A1%8C%E7%B3%BB%E7%BB%9F%E7%BB%B4%E6%8A%A4%23&Refer=top) `880.2K 🔥`
+1. [美国华盛顿唐人街爆发冲突](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%94%90%E4%BA%BA%E8%A1%97%E7%88%86%E5%8F%91%E5%86%B2%E7%AA%81&Refer=top) `879.3K 🔥`
 1. [库里吃止疼药](https://s.weibo.com/weibo?q=%E5%BA%93%E9%87%8C%E5%90%83%E6%AD%A2%E7%96%BC%E8%8D%AF&Refer=top) `877.0K 🔥`
-1. [张艺兴拿到拖拉机驾照](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E6%8B%BF%E5%88%B0%E6%8B%96%E6%8B%89%E6%9C%BA%E9%A9%BE%E7%85%A7%23&Refer=top) `872.7K 🔥`
 
-数据更新于 2021-04-18 18:07:14
+数据更新于 2021-04-18 18:18:10
 
 <!-- END -->
 
