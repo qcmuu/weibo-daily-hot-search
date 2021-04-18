@@ -7,11 +7,11 @@
 <!-- BEGIN -->
 
 1. [王钟去世](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E9%92%9F%E5%8E%BB%E4%B8%96%23&Refer=top) `3.7M 🔥`
+1. [林志颖 有谁想要我开工动土的铲子](https://s.weibo.com/weibo?q=%E6%9E%97%E5%BF%97%E9%A2%96%20%E6%9C%89%E8%B0%81%E6%83%B3%E8%A6%81%E6%88%91%E5%BC%80%E5%B7%A5%E5%8A%A8%E5%9C%9F%E7%9A%84%E9%93%B2%E5%AD%90&Refer=top) `3.1M 🔥`
 1. [郑恺今年办婚礼](https://s.weibo.com/weibo?q=%E9%83%91%E6%81%BA%E4%BB%8A%E5%B9%B4%E5%8A%9E%E5%A9%9A%E7%A4%BC&Refer=top) `3.0M 🔥`
 1. [张萌 我三四点钟还在给员工发微信](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%90%8C%20%E6%88%91%E4%B8%89%E5%9B%9B%E7%82%B9%E9%92%9F%E8%BF%98%E5%9C%A8%E7%BB%99%E5%91%98%E5%B7%A5%E5%8F%91%E5%BE%AE%E4%BF%A1&Refer=top) `3.0M 🔥`
 1. [偷鸡蛋被拦猝死家属索赔38万被驳](https://s.weibo.com/weibo?q=%23%E5%81%B7%E9%B8%A1%E8%9B%8B%E8%A2%AB%E6%8B%A6%E7%8C%9D%E6%AD%BB%E5%AE%B6%E5%B1%9E%E7%B4%A2%E8%B5%9438%E4%B8%87%E8%A2%AB%E9%A9%B3%23&Refer=top) `2.5M 🔥`
 1. [中国超2亿人单身](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%B6%852%E4%BA%BF%E4%BA%BA%E5%8D%95%E8%BA%AB%23&Refer=top) `2.4M 🔥`
-1. [林志颖 有谁想要我开工动土的铲子](https://s.weibo.com/weibo?q=%E6%9E%97%E5%BF%97%E9%A2%96%20%E6%9C%89%E8%B0%81%E6%83%B3%E8%A6%81%E6%88%91%E5%BC%80%E5%B7%A5%E5%8A%A8%E5%9C%9F%E7%9A%84%E9%93%B2%E5%AD%90&Refer=top) `2.1M 🔥`
 1. [杨幂 鞠躬](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E9%9E%A0%E8%BA%AC&Refer=top) `2.1M 🔥`
 1. [五一国内出游有望达2亿人次](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%9B%BD%E5%86%85%E5%87%BA%E6%B8%B8%E6%9C%89%E6%9C%9B%E8%BE%BE2%E4%BA%BF%E4%BA%BA%E6%AC%A1%23&Refer=top) `1.9M 🔥`
 1. [奥斯卡 有什么事骂我就好了](https://s.weibo.com/weibo?q=%E5%A5%A5%E6%96%AF%E5%8D%A1%20%E6%9C%89%E4%BB%80%E4%B9%88%E4%BA%8B%E9%AA%82%E6%88%91%E5%B0%B1%E5%A5%BD%E4%BA%86&Refer=top) `1.8M 🔥`
@@ -38,6 +38,7 @@
 1. [农行系统维护](https://s.weibo.com/weibo?q=%23%E5%86%9C%E8%A1%8C%E7%B3%BB%E7%BB%9F%E7%BB%B4%E6%8A%A4%23&Refer=top) `880.2K 🔥`
 1. [初中女生得知核废水要排海痛哭](https://s.weibo.com/weibo?q=%E5%88%9D%E4%B8%AD%E5%A5%B3%E7%94%9F%E5%BE%97%E7%9F%A5%E6%A0%B8%E5%BA%9F%E6%B0%B4%E8%A6%81%E6%8E%92%E6%B5%B7%E7%97%9B%E5%93%AD&Refer=top) `863.8K 🔥`
 1. [小兰给新一打电话](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%85%B0%E7%BB%99%E6%96%B0%E4%B8%80%E6%89%93%E7%94%B5%E8%AF%9D%23&Refer=top) `845.7K 🔥`
+1. [比特币跌破52000美元](https://s.weibo.com/weibo?q=%E6%AF%94%E7%89%B9%E5%B8%81%E8%B7%8C%E7%A0%B452000%E7%BE%8E%E5%85%83&Refer=top) `835.3K 🔥`
 1. [物理考5分的钱伟长转物理系的原因](https://s.weibo.com/weibo?q=%23%E7%89%A9%E7%90%86%E8%80%835%E5%88%86%E7%9A%84%E9%92%B1%E4%BC%9F%E9%95%BF%E8%BD%AC%E7%89%A9%E7%90%86%E7%B3%BB%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `719.3K 🔥`
 1. [00后女枪王退伍后加入预备役](https://s.weibo.com/weibo?q=00%E5%90%8E%E5%A5%B3%E6%9E%AA%E7%8E%8B%E9%80%80%E4%BC%8D%E5%90%8E%E5%8A%A0%E5%85%A5%E9%A2%84%E5%A4%87%E5%BD%B9&Refer=top) `714.4K 🔥`
 1. [中国仅三成血友病患者登记病例](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BB%85%E4%B8%89%E6%88%90%E8%A1%80%E5%8F%8B%E7%97%85%E6%82%A3%E8%80%85%E7%99%BB%E8%AE%B0%E7%97%85%E4%BE%8B%23&Refer=top) `694.2K 🔥`
@@ -55,9 +56,8 @@
 1. [妈妈你真好看](https://s.weibo.com/weibo?q=%E5%A6%88%E5%A6%88%E4%BD%A0%E7%9C%9F%E5%A5%BD%E7%9C%8B&Refer=top) `473.3K 🔥`
 1. [刘雯气质](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%AF%E6%B0%94%E8%B4%A8%23&Refer=top) `471.1K 🔥`
 1. [安德森玩命救球](https://s.weibo.com/weibo?q=%E5%AE%89%E5%BE%B7%E6%A3%AE%E7%8E%A9%E5%91%BD%E6%95%91%E7%90%83&Refer=top) `471.0K 🔥`
-1. [吴亦凡银发](https://s.weibo.com/weibo?q=%E5%90%B4%E4%BA%A6%E5%87%A1%E9%93%B6%E5%8F%91&Refer=top) `460.1K 🔥`
 
-数据更新于 2021-04-18 12:05:41
+数据更新于 2021-04-18 12:16:24
 
 <!-- END -->
 
