@@ -15,6 +15,7 @@
 1. [中国超2亿人单身](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%B6%852%E4%BA%BF%E4%BA%BA%E5%8D%95%E8%BA%AB%23&Refer=top) `2.4M 🔥`
 1. [杨幂 鞠躬](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E9%9E%A0%E8%BA%AC&Refer=top) `2.3M 🔥`
 1. [磕糖女孩](https://s.weibo.com/weibo?q=%23%E7%A3%95%E7%B3%96%E5%A5%B3%E5%AD%A9%23&Refer=top) `2.0M 🔥`
+1. [黄小蕾承认追过大张伟](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%B0%8F%E8%95%BE%E6%89%BF%E8%AE%A4%E8%BF%BD%E8%BF%87%E5%A4%A7%E5%BC%A0%E4%BC%9F%23&Refer=top) `1.9M 🔥`
 1. [五一国内出游有望达2亿人次](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%9B%BD%E5%86%85%E5%87%BA%E6%B8%B8%E6%9C%89%E6%9C%9B%E8%BE%BE2%E4%BA%BF%E4%BA%BA%E6%AC%A1%23&Refer=top) `1.9M 🔥`
 1. [奥斯卡 有什么事骂我就好了](https://s.weibo.com/weibo?q=%E5%A5%A5%E6%96%AF%E5%8D%A1%20%E6%9C%89%E4%BB%80%E4%B9%88%E4%BA%8B%E9%AA%82%E6%88%91%E5%B0%B1%E5%A5%BD%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [谭警官已找到现实版福贵](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E8%AD%A6%E5%AE%98%E5%B7%B2%E6%89%BE%E5%88%B0%E7%8E%B0%E5%AE%9E%E7%89%88%E7%A6%8F%E8%B4%B5%23&Refer=top) `1.7M 🔥`
@@ -48,16 +49,15 @@
 1. [第一名重要还是队友重要](https://s.weibo.com/weibo?q=%E7%AC%AC%E4%B8%80%E5%90%8D%E9%87%8D%E8%A6%81%E8%BF%98%E6%98%AF%E9%98%9F%E5%8F%8B%E9%87%8D%E8%A6%81&Refer=top) `855.0K 🔥`
 1. [小兰给新一打电话](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%85%B0%E7%BB%99%E6%96%B0%E4%B8%80%E6%89%93%E7%94%B5%E8%AF%9D%23&Refer=top) `845.7K 🔥`
 1. [00后女枪王退伍后加入预备役](https://s.weibo.com/weibo?q=00%E5%90%8E%E5%A5%B3%E6%9E%AA%E7%8E%8B%E9%80%80%E4%BC%8D%E5%90%8E%E5%8A%A0%E5%85%A5%E9%A2%84%E5%A4%87%E5%BD%B9&Refer=top) `828.6K 🔥`
-1. [尚雯婕亲应采儿](https://s.weibo.com/weibo?q=%23%E5%B0%9A%E9%9B%AF%E5%A9%95%E4%BA%B2%E5%BA%94%E9%87%87%E5%84%BF%23&Refer=top) `794.8K 🔥`
+1. [尚雯婕亲应采儿](https://s.weibo.com/weibo?q=%23%E5%B0%9A%E9%9B%AF%E5%A9%95%E4%BA%B2%E5%BA%94%E9%87%87%E5%84%BF%23&Refer=top) `817.0K 🔥`
+1. [退休干警犯诽谤等罪获刑12年](https://s.weibo.com/weibo?q=%23%E9%80%80%E4%BC%91%E5%B9%B2%E8%AD%A6%E7%8A%AF%E8%AF%BD%E8%B0%A4%E7%AD%89%E7%BD%AA%E8%8E%B7%E5%88%9112%E5%B9%B4%23&Refer=top) `806.2K 🔥`
 1. [爸爸的外套太有安全感了](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E7%9A%84%E5%A4%96%E5%A5%97%E5%A4%AA%E6%9C%89%E5%AE%89%E5%85%A8%E6%84%9F%E4%BA%86%23&Refer=top) `755.8K 🔥`
 1. [女孩画600多朵大理云](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%94%BB600%E5%A4%9A%E6%9C%B5%E5%A4%A7%E7%90%86%E4%BA%91%23&Refer=top) `740.6K 🔥`
 1. [物理考5分的钱伟长转物理系的原因](https://s.weibo.com/weibo?q=%23%E7%89%A9%E7%90%86%E8%80%835%E5%88%86%E7%9A%84%E9%92%B1%E4%BC%9F%E9%95%BF%E8%BD%AC%E7%89%A9%E7%90%86%E7%B3%BB%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `719.3K 🔥`
 1. [中国仅三成血友病患者登记病例](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BB%85%E4%B8%89%E6%88%90%E8%A1%80%E5%8F%8B%E7%97%85%E6%82%A3%E8%80%85%E7%99%BB%E8%AE%B0%E7%97%85%E4%BE%8B%23&Refer=top) `694.2K 🔥`
 1. [迪丽热巴吓吴磊结果吓到自己](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%90%93%E5%90%B4%E7%A3%8A%E7%BB%93%E6%9E%9C%E5%90%93%E5%88%B0%E8%87%AA%E5%B7%B1%23&Refer=top) `692.7K 🔥`
-1. [退休干警犯诽谤等罪获刑12年](https://s.weibo.com/weibo?q=%E9%80%80%E4%BC%91%E5%B9%B2%E8%AD%A6%E7%8A%AF%E8%AF%BD%E8%B0%A4%E7%AD%89%E7%BD%AA%E8%8E%B7%E5%88%9112%E5%B9%B4&Refer=top) `691.2K 🔥`
-1. [库里47分](https://s.weibo.com/weibo?q=%E5%BA%93%E9%87%8C47%E5%88%86&Refer=top) `683.8K 🔥`
 
-数据更新于 2021-04-18 14:02:26
+数据更新于 2021-04-18 14:11:43
 
 <!-- END -->
 
