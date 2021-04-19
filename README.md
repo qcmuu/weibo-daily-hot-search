@@ -37,6 +37,7 @@
 1. [中国学者上BBC暴击罗冠聪](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%AD%A6%E8%80%85%E4%B8%8ABBC%E6%9A%B4%E5%87%BB%E7%BD%97%E5%86%A0%E8%81%AA%23&Refer=top) `1.6M 🔥`
 1. [蒙古国草原大火蔓延至中国境内](https://s.weibo.com/weibo?q=%23%E8%92%99%E5%8F%A4%E5%9B%BD%E8%8D%89%E5%8E%9F%E5%A4%A7%E7%81%AB%E8%94%93%E5%BB%B6%E8%87%B3%E4%B8%AD%E5%9B%BD%E5%A2%83%E5%86%85%23&Refer=top) `1.6M 🔥`
 1. [董子健 有点父慈子孝的意思](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E6%9C%89%E7%82%B9%E7%88%B6%E6%85%88%E5%AD%90%E5%AD%9D%E7%9A%84%E6%84%8F%E6%80%9D&Refer=top) `1.6M 🔥`
+1. [刘昊然 好几个音乐节目找我当导师](https://s.weibo.com/weibo?q=%E5%88%98%E6%98%8A%E7%84%B6%20%E5%A5%BD%E5%87%A0%E4%B8%AA%E9%9F%B3%E4%B9%90%E8%8A%82%E7%9B%AE%E6%89%BE%E6%88%91%E5%BD%93%E5%AF%BC%E5%B8%88&Refer=top) `1.5M 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `1.5M 🔥`
 1. [陈飞宇喂罗云熙吃东西](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E5%96%82%E7%BD%97%E4%BA%91%E7%86%99%E5%90%83%E4%B8%9C%E8%A5%BF%23&Refer=top) `1.5M 🔥`
 1. [8起违反教师职业准则案例](https://s.weibo.com/weibo?q=8%E8%B5%B7%E8%BF%9D%E5%8F%8D%E6%95%99%E5%B8%88%E8%81%8C%E4%B8%9A%E5%87%86%E5%88%99%E6%A1%88%E4%BE%8B&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [甜馨走秀](https://s.weibo.com/weibo?q=%E7%94%9C%E9%A6%A8%E8%B5%B0%E7%A7%80&Refer=top) `1.2M 🔥`
 1. [F1严重事故](https://s.weibo.com/weibo?q=%23F1%E4%B8%A5%E9%87%8D%E4%BA%8B%E6%95%85%23&Refer=top) `1.2M 🔥`
 1. [举报名创优品抄袭设计师回应](https://s.weibo.com/weibo?q=%E4%B8%BE%E6%8A%A5%E5%90%8D%E5%88%9B%E4%BC%98%E5%93%81%E6%8A%84%E8%A2%AD%E8%AE%BE%E8%AE%A1%E5%B8%88%E5%9B%9E%E5%BA%94&Refer=top) `1.2M 🔥`
-1. [上海车展](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E8%BD%A6%E5%B1%95%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-19 21:33:30
+数据更新于 2021-04-19 21:44:34
 
 <!-- END -->
 
