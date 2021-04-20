@@ -37,12 +37,12 @@
 1. [乍得已故总统之子被任命为临时国家元首](https://s.weibo.com/weibo?q=%E4%B9%8D%E5%BE%97%E5%B7%B2%E6%95%85%E6%80%BB%E7%BB%9F%E4%B9%8B%E5%AD%90%E8%A2%AB%E4%BB%BB%E5%91%BD%E4%B8%BA%E4%B8%B4%E6%97%B6%E5%9B%BD%E5%AE%B6%E5%85%83%E9%A6%96&Refer=top) `2.3M 🔥`
 1. [邓超看见孙俪的针灸模型问逃不逃](https://s.weibo.com/weibo?q=%E9%82%93%E8%B6%85%E7%9C%8B%E8%A7%81%E5%AD%99%E4%BF%AA%E7%9A%84%E9%92%88%E7%81%B8%E6%A8%A1%E5%9E%8B%E9%97%AE%E9%80%83%E4%B8%8D%E9%80%83&Refer=top) `2.2M 🔥`
 1. [徐杰垫脚](https://s.weibo.com/weibo?q=%E5%BE%90%E6%9D%B0%E5%9E%AB%E8%84%9A&Refer=top) `2.2M 🔥`
+1. [我国5G套餐用户超3.5亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD5G%E5%A5%97%E9%A4%90%E7%94%A8%E6%88%B7%E8%B6%853.5%E4%BA%BF%23&Refer=top) `2.2M 🔥`
 1. [陕西汉墓现罕见陶仓装满小米](https://s.weibo.com/weibo?q=%E9%99%95%E8%A5%BF%E6%B1%89%E5%A2%93%E7%8E%B0%E7%BD%95%E8%A7%81%E9%99%B6%E4%BB%93%E8%A3%85%E6%BB%A1%E5%B0%8F%E7%B1%B3&Refer=top) `2.1M 🔥`
 1. [郭麒麟放风筝像遛狗](https://s.weibo.com/weibo?q=%23%E9%83%AD%E9%BA%92%E9%BA%9F%E6%94%BE%E9%A3%8E%E7%AD%9D%E5%83%8F%E9%81%9B%E7%8B%97%23&Refer=top) `2.1M 🔥`
 1. [董子健 遇到四川火锅尊严可以不要](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E9%81%87%E5%88%B0%E5%9B%9B%E5%B7%9D%E7%81%AB%E9%94%85%E5%B0%8A%E4%B8%A5%E5%8F%AF%E4%BB%A5%E4%B8%8D%E8%A6%81&Refer=top) `2.0M 🔥`
 1. [金宇彬申敏儿合作新剧](https://s.weibo.com/weibo?q=%23%E9%87%91%E5%AE%87%E5%BD%AC%E7%94%B3%E6%95%8F%E5%84%BF%E5%90%88%E4%BD%9C%E6%96%B0%E5%89%A7%23&Refer=top) `2.0M 🔥`
 1. [官方回应中学要求学生花5800元买平板](https://s.weibo.com/weibo?q=%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E4%B8%AD%E5%AD%A6%E8%A6%81%E6%B1%82%E5%AD%A6%E7%94%9F%E8%8A%B15800%E5%85%83%E4%B9%B0%E5%B9%B3%E6%9D%BF&Refer=top) `1.9M 🔥`
-1. [我国5G套餐用户超3.5亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD5G%E5%A5%97%E9%A4%90%E7%94%A8%E6%88%B7%E8%B6%853.5%E4%BA%BF%23&Refer=top) `1.8M 🔥`
 1. [蚌埠一中学要求学生花5800元买平板](https://s.weibo.com/weibo?q=%23%E8%9A%8C%E5%9F%A0%E4%B8%80%E4%B8%AD%E5%AD%A6%E8%A6%81%E6%B1%82%E5%AD%A6%E7%94%9F%E8%8A%B15800%E5%85%83%E4%B9%B0%E5%B9%B3%E6%9D%BF%23&Refer=top) `1.7M 🔥`
 1. [杜淳王灿得女](https://s.weibo.com/weibo?q=%E6%9D%9C%E6%B7%B3%E7%8E%8B%E7%81%BF%E5%BE%97%E5%A5%B3&Refer=top) `1.7M 🔥`
 1. [中国国画院20套违建别墅被没收](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%9B%BD%E7%94%BB%E9%99%A220%E5%A5%97%E8%BF%9D%E5%BB%BA%E5%88%AB%E5%A2%85%E8%A2%AB%E6%B2%A1%E6%94%B6%23&Refer=top) `1.7M 🔥`
@@ -57,7 +57,7 @@
 1. [阚清子大片背景是投屏出来的](https://s.weibo.com/weibo?q=%23%E9%98%9A%E6%B8%85%E5%AD%90%E5%A4%A7%E7%89%87%E8%83%8C%E6%99%AF%E6%98%AF%E6%8A%95%E5%B1%8F%E5%87%BA%E6%9D%A5%E7%9A%84%23&Refer=top) `1.3M 🔥`
 1. [干细胞注射竟长出牙槽骨](https://s.weibo.com/weibo?q=%E5%B9%B2%E7%BB%86%E8%83%9E%E6%B3%A8%E5%B0%84%E7%AB%9F%E9%95%BF%E5%87%BA%E7%89%99%E6%A7%BD%E9%AA%A8&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-04-20 22:06:30
+数据更新于 2021-04-20 22:17:04
 
 <!-- END -->
 
