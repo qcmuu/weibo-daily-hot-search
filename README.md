@@ -12,7 +12,7 @@
 1. [邓超看见孙俪的针灸模型问逃不逃](https://s.weibo.com/weibo?q=%E9%82%93%E8%B6%85%E7%9C%8B%E8%A7%81%E5%AD%99%E4%BF%AA%E7%9A%84%E9%92%88%E7%81%B8%E6%A8%A1%E5%9E%8B%E9%97%AE%E9%80%83%E4%B8%8D%E9%80%83&Refer=top) `2.2M 🔥`
 1. [陕西汉墓现罕见陶仓装满小米](https://s.weibo.com/weibo?q=%E9%99%95%E8%A5%BF%E6%B1%89%E5%A2%93%E7%8E%B0%E7%BD%95%E8%A7%81%E9%99%B6%E4%BB%93%E8%A3%85%E6%BB%A1%E5%B0%8F%E7%B1%B3&Refer=top) `2.1M 🔥`
 1. [董子健 遇到四川火锅尊严可以不要](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E9%81%87%E5%88%B0%E5%9B%9B%E5%B7%9D%E7%81%AB%E9%94%85%E5%B0%8A%E4%B8%A5%E5%8F%AF%E4%BB%A5%E4%B8%8D%E8%A6%81&Refer=top) `2.0M 🔥`
-1. [周扬青 歌词](https://s.weibo.com/weibo?q=%E5%91%A8%E6%89%AC%E9%9D%92%20%E6%AD%8C%E8%AF%8D&Refer=top) `1.9M 🔥`
+1. [周扬青 歌词](https://s.weibo.com/weibo?q=%E5%91%A8%E6%89%AC%E9%9D%92%20%E6%AD%8C%E8%AF%8D&Refer=top) `2.0M 🔥`
 1. [关晓彤](https://s.weibo.com/weibo?q=%E5%85%B3%E6%99%93%E5%BD%A4&Refer=top) `1.7M 🔥`
 1. [井柏然宋威龙李荣浩合照](https://s.weibo.com/weibo?q=%23%E4%BA%95%E6%9F%8F%E7%84%B6%E5%AE%8B%E5%A8%81%E9%BE%99%E6%9D%8E%E8%8D%A3%E6%B5%A9%E5%90%88%E7%85%A7%23&Refer=top) `1.6M 🔥`
 1. [菲律宾男团颜值](https://s.weibo.com/weibo?q=%23%E8%8F%B2%E5%BE%8B%E5%AE%BE%E7%94%B7%E5%9B%A2%E9%A2%9C%E5%80%BC%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [江苏油田发现6000万岁鱼化石](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%B2%B9%E7%94%B0%E5%8F%91%E7%8E%B06000%E4%B8%87%E5%B2%81%E9%B1%BC%E5%8C%96%E7%9F%B3%23&Refer=top) `382.9K 🔥`
 1. [欧阳娜娜春日街边照](https://s.weibo.com/weibo?q=%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E6%98%A5%E6%97%A5%E8%A1%97%E8%BE%B9%E7%85%A7&Refer=top) `381.5K 🔥`
 
-数据更新于 2021-04-20 10:45:04
+数据更新于 2021-04-20 10:59:56
 
 <!-- END -->
 
