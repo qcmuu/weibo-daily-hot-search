@@ -28,6 +28,7 @@
 1. [蚌埠一中学要求学生花5800元买平板](https://s.weibo.com/weibo?q=%23%E8%9A%8C%E5%9F%A0%E4%B8%80%E4%B8%AD%E5%AD%A6%E8%A6%81%E6%B1%82%E5%AD%A6%E7%94%9F%E8%8A%B15800%E5%85%83%E4%B9%B0%E5%B9%B3%E6%9D%BF%23&Refer=top) `1.7M 🔥`
 1. [杜淳王灿得女](https://s.weibo.com/weibo?q=%E6%9D%9C%E6%B7%B3%E7%8E%8B%E7%81%BF%E5%BE%97%E5%A5%B3&Refer=top) `1.7M 🔥`
 1. [井柏然宋威龙李荣浩合照](https://s.weibo.com/weibo?q=%23%E4%BA%95%E6%9F%8F%E7%84%B6%E5%AE%8B%E5%A8%81%E9%BE%99%E6%9D%8E%E8%8D%A3%E6%B5%A9%E5%90%88%E7%85%A7%23&Refer=top) `1.6M 🔥`
+1. [9名大学生吸网购电子烟后入院](https://s.weibo.com/weibo?q=9%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%90%B8%E7%BD%91%E8%B4%AD%E7%94%B5%E5%AD%90%E7%83%9F%E5%90%8E%E5%85%A5%E9%99%A2&Refer=top) `1.6M 🔥`
 1. [吴磊 热巴是李长歌本歌](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%20%E7%83%AD%E5%B7%B4%E6%98%AF%E6%9D%8E%E9%95%BF%E6%AD%8C%E6%9C%AC%E6%AD%8C&Refer=top) `1.5M 🔥`
 1. [菲律宾男团颜值](https://s.weibo.com/weibo?q=%23%E8%8F%B2%E5%BE%8B%E5%AE%BE%E7%94%B7%E5%9B%A2%E9%A2%9C%E5%80%BC%23&Refer=top) `1.4M 🔥`
 1. [刘昊然 好几个音乐节目找我当导师](https://s.weibo.com/weibo?q=%E5%88%98%E6%98%8A%E7%84%B6%20%E5%A5%BD%E5%87%A0%E4%B8%AA%E9%9F%B3%E4%B9%90%E8%8A%82%E7%9B%AE%E6%89%BE%E6%88%91%E5%BD%93%E5%AF%BC%E5%B8%88&Refer=top) `1.4M 🔥`
@@ -42,7 +43,6 @@
 1. [苹果发布会时间](https://s.weibo.com/weibo?q=%E8%8B%B9%E6%9E%9C%E5%8F%91%E5%B8%83%E4%BC%9A%E6%97%B6%E9%97%B4&Refer=top) `1.2M 🔥`
 1. [谷雨](https://s.weibo.com/weibo?q=%E8%B0%B7%E9%9B%A8&Refer=top) `1.1M 🔥`
 1. [杨洋下车差点摔跤](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E4%B8%8B%E8%BD%A6%E5%B7%AE%E7%82%B9%E6%91%94%E8%B7%A4%23&Refer=top) `1.1M 🔥`
-1. [9名大学生吸网购电子烟后入院](https://s.weibo.com/weibo?q=9%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%90%B8%E7%BD%91%E8%B4%AD%E7%94%B5%E5%AD%90%E7%83%9F%E5%90%8E%E5%85%A5%E9%99%A2&Refer=top) `1.1M 🔥`
 1. [日本考虑韩国参与监督核污染水排海](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E8%80%83%E8%99%91%E9%9F%A9%E5%9B%BD%E5%8F%82%E4%B8%8E%E7%9B%91%E7%9D%A3%E6%A0%B8%E6%B1%A1%E6%9F%93%E6%B0%B4%E6%8E%92%E6%B5%B7%23&Refer=top) `1.1M 🔥`
 1. [连云港800多岁流苏古树开花](https://s.weibo.com/weibo?q=%E8%BF%9E%E4%BA%91%E6%B8%AF800%E5%A4%9A%E5%B2%81%E6%B5%81%E8%8B%8F%E5%8F%A4%E6%A0%91%E5%BC%80%E8%8A%B1&Refer=top) `1.1M 🔥`
 1. [乌鸦小姐与蜥蜴先生定档](https://s.weibo.com/weibo?q=%23%E4%B9%8C%E9%B8%A6%E5%B0%8F%E5%A7%90%E4%B8%8E%E8%9C%A5%E8%9C%B4%E5%85%88%E7%94%9F%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [小羊被救出后瞬间放飞自我](https://s.weibo.com/weibo?q=%E5%B0%8F%E7%BE%8A%E8%A2%AB%E6%95%91%E5%87%BA%E5%90%8E%E7%9E%AC%E9%97%B4%E6%94%BE%E9%A3%9E%E8%87%AA%E6%88%91&Refer=top) `761.9K 🔥`
 1. [皓嫣](https://s.weibo.com/weibo?q=%E7%9A%93%E5%AB%A3&Refer=top) `741.1K 🔥`
 
-数据更新于 2021-04-20 14:40:52
+数据更新于 2021-04-20 14:52:51
 
 <!-- END -->
 
