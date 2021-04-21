@@ -9,6 +9,7 @@
 1. [关晓彤卡点为鹿晗庆生](https://s.weibo.com/weibo?q=%E5%85%B3%E6%99%93%E5%BD%A4%E5%8D%A1%E7%82%B9%E4%B8%BA%E9%B9%BF%E6%99%97%E5%BA%86%E7%94%9F&Refer=top) `5.1M 🔥`
 1. [台媒称许玮甯离婚](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E5%AA%92%E7%A7%B0%E8%AE%B8%E7%8E%AE%E7%94%AF%E7%A6%BB%E5%A9%9A%23&Refer=top) `4.4M 🔥`
 1. [印度飞香港一航班机上53人确诊](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E9%A3%9E%E9%A6%99%E6%B8%AF%E4%B8%80%E8%88%AA%E7%8F%AD%E6%9C%BA%E4%B8%8A53%E4%BA%BA%E7%A1%AE%E8%AF%8A%23&Refer=top) `3.3M 🔥`
+1. [陈乔恩 有没有求婚是我们私人的事](https://s.weibo.com/weibo?q=%E9%99%88%E4%B9%94%E6%81%A9%20%E6%9C%89%E6%B2%A1%E6%9C%89%E6%B1%82%E5%A9%9A%E6%98%AF%E6%88%91%E4%BB%AC%E7%A7%81%E4%BA%BA%E7%9A%84%E4%BA%8B&Refer=top) `3.1M 🔥`
 1. [张翰吴宣仪加盟妻子的浪漫旅行5](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BF%B0%E5%90%B4%E5%AE%A3%E4%BB%AA%E5%8A%A0%E7%9B%9F%E5%A6%BB%E5%AD%90%E7%9A%84%E6%B5%AA%E6%BC%AB%E6%97%85%E8%A1%8C5%23&Refer=top) `3.0M 🔥`
 1. [佟大为发长文谈教育孩子](https://s.weibo.com/weibo?q=%23%E4%BD%9F%E5%A4%A7%E4%B8%BA%E5%8F%91%E9%95%BF%E6%96%87%E8%B0%88%E6%95%99%E8%82%B2%E5%AD%A9%E5%AD%90%23&Refer=top) `3.0M 🔥`
 1. [女生道歉专用头像](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E9%81%93%E6%AD%89%E4%B8%93%E7%94%A8%E5%A4%B4%E5%83%8F%23&Refer=top) `2.5M 🔥`
@@ -24,7 +25,6 @@
 1. [脱粉](https://s.weibo.com/weibo?q=%E8%84%B1%E7%B2%89&Refer=top) `1.6M 🔥`
 1. [董明珠要求食堂给员工降价](https://s.weibo.com/weibo?q=%E8%91%A3%E6%98%8E%E7%8F%A0%E8%A6%81%E6%B1%82%E9%A3%9F%E5%A0%82%E7%BB%99%E5%91%98%E5%B7%A5%E9%99%8D%E4%BB%B7&Refer=top) `1.6M 🔥`
 1. [周柯宇哥哥发长文回应](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9F%AF%E5%AE%87%E5%93%A5%E5%93%A5%E5%8F%91%E9%95%BF%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `1.6M 🔥`
-1. [陈乔恩 有没有求婚是我们私人的事](https://s.weibo.com/weibo?q=%E9%99%88%E4%B9%94%E6%81%A9%20%E6%9C%89%E6%B2%A1%E6%9C%89%E6%B1%82%E5%A9%9A%E6%98%AF%E6%88%91%E4%BB%AC%E7%A7%81%E4%BA%BA%E7%9A%84%E4%BA%8B&Refer=top) `1.3M 🔥`
 1. [肖万获罪美国民众激动流泪](https://s.weibo.com/weibo?q=%23%E8%82%96%E4%B8%87%E8%8E%B7%E7%BD%AA%E7%BE%8E%E5%9B%BD%E6%B0%91%E4%BC%97%E6%BF%80%E5%8A%A8%E6%B5%81%E6%B3%AA%23&Refer=top) `1.3M 🔥`
 1. [团委书记强奸女企业家案二审维持原判](https://s.weibo.com/weibo?q=%23%E5%9B%A2%E5%A7%94%E4%B9%A6%E8%AE%B0%E5%BC%BA%E5%A5%B8%E5%A5%B3%E4%BC%81%E4%B8%9A%E5%AE%B6%E6%A1%88%E4%BA%8C%E5%AE%A1%E7%BB%B4%E6%8C%81%E5%8E%9F%E5%88%A4%23&Refer=top) `1.3M 🔥`
 1. [男子带宝宝推婴儿车跑马拉松](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E5%B8%A6%E5%AE%9D%E5%AE%9D%E6%8E%A8%E5%A9%B4%E5%84%BF%E8%BD%A6%E8%B7%91%E9%A9%AC%E6%8B%89%E6%9D%BE&Refer=top) `1.3M 🔥`
@@ -44,6 +44,7 @@
 1. [小舍得细节](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97%E7%BB%86%E8%8A%82&Refer=top) `800.0K 🔥`
 1. [岳云鹏 请叫我题库](https://s.weibo.com/weibo?q=%E5%B2%B3%E4%BA%91%E9%B9%8F%20%E8%AF%B7%E5%8F%AB%E6%88%91%E9%A2%98%E5%BA%93&Refer=top) `762.1K 🔥`
 1. [陕西大学生为研发锅巴延毕](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%B8%BA%E7%A0%94%E5%8F%91%E9%94%85%E5%B7%B4%E5%BB%B6%E6%AF%95%23&Refer=top) `760.1K 🔥`
+1. [大雄静香婚礼前奏预告](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E9%9B%84%E9%9D%99%E9%A6%99%E5%A9%9A%E7%A4%BC%E5%89%8D%E5%A5%8F%E9%A2%84%E5%91%8A%23&Refer=top) `739.8K 🔥`
 1. [当我看到男友和兄弟的对话](https://s.weibo.com/weibo?q=%23%E5%BD%93%E6%88%91%E7%9C%8B%E5%88%B0%E7%94%B7%E5%8F%8B%E5%92%8C%E5%85%84%E5%BC%9F%E7%9A%84%E5%AF%B9%E8%AF%9D%23&Refer=top) `735.1K 🔥`
 1. [我国5G套餐用户超3.5亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD5G%E5%A5%97%E9%A4%90%E7%94%A8%E6%88%B7%E8%B6%853.5%E4%BA%BF%23&Refer=top) `727.7K 🔥`
 1. [可口可乐将涨价](https://s.weibo.com/weibo?q=%23%E5%8F%AF%E5%8F%A3%E5%8F%AF%E4%B9%90%E5%B0%86%E6%B6%A8%E4%BB%B7%23&Refer=top) `726.6K 🔥`
@@ -55,9 +56,8 @@
 1. [罗永浩回应被股东申请执行](https://s.weibo.com/weibo?q=%E7%BD%97%E6%B0%B8%E6%B5%A9%E5%9B%9E%E5%BA%94%E8%A2%AB%E8%82%A1%E4%B8%9C%E7%94%B3%E8%AF%B7%E6%89%A7%E8%A1%8C&Refer=top) `718.4K 🔥`
 1. [景区回应游客玩威亚受伤近毁容](https://s.weibo.com/weibo?q=%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E6%B8%B8%E5%AE%A2%E7%8E%A9%E5%A8%81%E4%BA%9A%E5%8F%97%E4%BC%A4%E8%BF%91%E6%AF%81%E5%AE%B9&Refer=top) `717.2K 🔥`
 1. [关晓彤父母公司新增行政处罚](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E7%88%B6%E6%AF%8D%E5%85%AC%E5%8F%B8%E6%96%B0%E5%A2%9E%E8%A1%8C%E6%94%BF%E5%A4%84%E7%BD%9A%23&Refer=top) `716.6K 🔥`
-1. [杨丞琳 优秀的人有人爱不是很正常吗](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B8%9E%E7%90%B3%20%E4%BC%98%E7%A7%80%E7%9A%84%E4%BA%BA%E6%9C%89%E4%BA%BA%E7%88%B1%E4%B8%8D%E6%98%AF%E5%BE%88%E6%AD%A3%E5%B8%B8%E5%90%97&Refer=top) `713.6K 🔥`
 
-数据更新于 2021-04-21 14:48:10
+数据更新于 2021-04-21 14:58:55
 
 <!-- END -->
 
