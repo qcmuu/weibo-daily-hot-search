@@ -18,6 +18,7 @@
 1. [佟大为发长文谈教育孩子](https://s.weibo.com/weibo?q=%23%E4%BD%9F%E5%A4%A7%E4%B8%BA%E5%8F%91%E9%95%BF%E6%96%87%E8%B0%88%E6%95%99%E8%82%B2%E5%AD%A9%E5%AD%90%23&Refer=top) `3.0M 🔥`
 1. [确保新冠疫苗第二剂次8周内接种](https://s.weibo.com/weibo?q=%23%E7%A1%AE%E4%BF%9D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E7%AC%AC%E4%BA%8C%E5%89%82%E6%AC%A18%E5%91%A8%E5%86%85%E6%8E%A5%E7%A7%8D%23&Refer=top) `2.9M 🔥`
 1. [特斯拉被责令提供事故前行车数据](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E8%A2%AB%E8%B4%A3%E4%BB%A4%E6%8F%90%E4%BE%9B%E4%BA%8B%E6%95%85%E5%89%8D%E8%A1%8C%E8%BD%A6%E6%95%B0%E6%8D%AE&Refer=top) `2.9M 🔥`
+1. [丁真 不怯场](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%20%E4%B8%8D%E6%80%AF%E5%9C%BA&Refer=top) `2.7M 🔥`
 1. [林峯曾开小号回怼黑张馨月的网友](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E6%9B%BE%E5%BC%80%E5%B0%8F%E5%8F%B7%E5%9B%9E%E6%80%BC%E9%BB%91%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E7%BD%91%E5%8F%8B%23&Refer=top) `2.6M 🔥`
 1. [女生道歉专用头像](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E9%81%93%E6%AD%89%E4%B8%93%E7%94%A8%E5%A4%B4%E5%83%8F%23&Refer=top) `2.5M 🔥`
 1. [吴彤 刚刚上台紧张的我鞋都掉了](https://s.weibo.com/weibo?q=%E5%90%B4%E5%BD%A4%20%E5%88%9A%E5%88%9A%E4%B8%8A%E5%8F%B0%E7%B4%A7%E5%BC%A0%E7%9A%84%E6%88%91%E9%9E%8B%E9%83%BD%E6%8E%89%E4%BA%86&Refer=top) `2.4M 🔥`
@@ -28,7 +29,6 @@
 1. [教育部辟谣今秋小学学制变5年](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E8%BE%9F%E8%B0%A3%E4%BB%8A%E7%A7%8B%E5%B0%8F%E5%AD%A6%E5%AD%A6%E5%88%B6%E5%8F%985%E5%B9%B4%23&Refer=top) `2.1M 🔥`
 1. [董子健写给女儿的话](https://s.weibo.com/weibo?q=%23%E8%91%A3%E5%AD%90%E5%81%A5%E5%86%99%E7%BB%99%E5%A5%B3%E5%84%BF%E7%9A%84%E8%AF%9D%23&Refer=top) `2.1M 🔥`
 1. [乍得总统在前线受重伤死亡](https://s.weibo.com/weibo?q=%23%E4%B9%8D%E5%BE%97%E6%80%BB%E7%BB%9F%E5%9C%A8%E5%89%8D%E7%BA%BF%E5%8F%97%E9%87%8D%E4%BC%A4%E6%AD%BB%E4%BA%A1%23&Refer=top) `2.1M 🔥`
-1. [丁真 不怯场](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%20%E4%B8%8D%E6%80%AF%E5%9C%BA&Refer=top) `2.0M 🔥`
 1. [iPhone12紫色](https://s.weibo.com/weibo?q=iPhone12%E7%B4%AB%E8%89%B2&Refer=top) `2.0M 🔥`
 1. [35岁时的杨丽萍](https://s.weibo.com/weibo?q=%2335%E5%B2%81%E6%97%B6%E7%9A%84%E6%9D%A8%E4%B8%BD%E8%90%8D%23&Refer=top) `1.8M 🔥`
 1. [鹿晗关晓彤 新合照](https://s.weibo.com/weibo?q=%E9%B9%BF%E6%99%97%E5%85%B3%E6%99%93%E5%BD%A4%20%E6%96%B0%E5%90%88%E7%85%A7&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [八零九零](https://s.weibo.com/weibo?q=%E5%85%AB%E9%9B%B6%E4%B9%9D%E9%9B%B6&Refer=top) `885.8K 🔥`
 1. [一鹿彤行](https://s.weibo.com/weibo?q=%E4%B8%80%E9%B9%BF%E5%BD%A4%E8%A1%8C&Refer=top) `839.3K 🔥`
 
-数据更新于 2021-04-21 22:09:34
+数据更新于 2021-04-21 22:21:17
 
 <!-- END -->
 
