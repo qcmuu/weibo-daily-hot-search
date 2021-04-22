@@ -29,6 +29,7 @@
 1. [我国约有70万名发作性睡病患者](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%BA%A6%E6%9C%8970%E4%B8%87%E5%90%8D%E5%8F%91%E4%BD%9C%E6%80%A7%E7%9D%A1%E7%97%85%E6%82%A3%E8%80%85%23&Refer=top) `1.3M 🔥`
 1. [姚策养母起诉姚策妻子索要房产](https://s.weibo.com/weibo?q=%23%E5%A7%9A%E7%AD%96%E5%85%BB%E6%AF%8D%E8%B5%B7%E8%AF%89%E5%A7%9A%E7%AD%96%E5%A6%BB%E5%AD%90%E7%B4%A2%E8%A6%81%E6%88%BF%E4%BA%A7%23&Refer=top) `1.3M 🔥`
 1. [美参院将施压拜登政府对抗中国](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%8F%82%E9%99%A2%E5%B0%86%E6%96%BD%E5%8E%8B%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD&Refer=top) `1.3M 🔥`
+1. [15岁黑人少女被警察枪杀案报警录音](https://s.weibo.com/weibo?q=15%E5%B2%81%E9%BB%91%E4%BA%BA%E5%B0%91%E5%A5%B3%E8%A2%AB%E8%AD%A6%E5%AF%9F%E6%9E%AA%E6%9D%80%E6%A1%88%E6%8A%A5%E8%AD%A6%E5%BD%95%E9%9F%B3&Refer=top) `1.3M 🔥`
 1. [皓都 我赢了不用嫁了](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E6%88%91%E8%B5%A2%E4%BA%86%E4%B8%8D%E7%94%A8%E5%AB%81%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [这不是杨紫是杜华](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%8D%E6%98%AF%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%9D%9C%E5%8D%8E%23&Refer=top) `1.1M 🔥`
 1. [龚俊丁程鑫四川话版山河令](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E4%B8%81%E7%A8%8B%E9%91%AB%E5%9B%9B%E5%B7%9D%E8%AF%9D%E7%89%88%E5%B1%B1%E6%B2%B3%E4%BB%A4%23&Refer=top) `980.3K 🔥`
@@ -55,9 +56,8 @@
 1. [诺言请大家给甘望星撑腰](https://s.weibo.com/weibo?q=%23%E8%AF%BA%E8%A8%80%E8%AF%B7%E5%A4%A7%E5%AE%B6%E7%BB%99%E7%94%98%E6%9C%9B%E6%98%9F%E6%92%91%E8%85%B0%23&Refer=top) `700.0K 🔥`
 1. [8岁孩子给父母报辅导班](https://s.weibo.com/weibo?q=8%E5%B2%81%E5%AD%A9%E5%AD%90%E7%BB%99%E7%88%B6%E6%AF%8D%E6%8A%A5%E8%BE%85%E5%AF%BC%E7%8F%AD&Refer=top) `698.6K 🔥`
 1. [中国刑警主演](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%88%91%E8%AD%A6%E4%B8%BB%E6%BC%94&Refer=top) `697.4K 🔥`
-1. [白敬亭演的过三爽](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E6%BC%94%E7%9A%84%E8%BF%87%E4%B8%89%E7%88%BD%23&Refer=top) `694.7K 🔥`
 
-数据更新于 2021-04-22 14:09:54
+数据更新于 2021-04-22 14:22:12
 
 <!-- END -->
 
