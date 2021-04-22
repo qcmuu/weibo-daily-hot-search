@@ -9,6 +9,7 @@
 1. [烧饼二胎得子](https://s.weibo.com/weibo?q=%23%E7%83%A7%E9%A5%BC%E4%BA%8C%E8%83%8E%E5%BE%97%E5%AD%90%23&Refer=top) `3.3M 🔥`
 1. [不得故意安排学生单独坐最后一排](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E5%BE%97%E6%95%85%E6%84%8F%E5%AE%89%E6%8E%92%E5%AD%A6%E7%94%9F%E5%8D%95%E7%8B%AC%E5%9D%90%E6%9C%80%E5%90%8E%E4%B8%80%E6%8E%92%23&Refer=top) `3.0M 🔥`
 1. [香奈儿诉华为logo侵权败诉](https://s.weibo.com/weibo?q=%23%E9%A6%99%E5%A5%88%E5%84%BF%E8%AF%89%E5%8D%8E%E4%B8%BAlogo%E4%BE%B5%E6%9D%83%E8%B4%A5%E8%AF%89%23&Refer=top) `2.9M 🔥`
+1. [特斯拉提供刹车事故前1分钟数据](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%96%AF%E6%8B%89%E6%8F%90%E4%BE%9B%E5%88%B9%E8%BD%A6%E4%BA%8B%E6%95%85%E5%89%8D1%E5%88%86%E9%92%9F%E6%95%B0%E6%8D%AE%23&Refer=top) `2.9M 🔥`
 1. [余景天回应15岁做中国新歌声评委](https://s.weibo.com/weibo?q=%23%E4%BD%99%E6%99%AF%E5%A4%A9%E5%9B%9E%E5%BA%9415%E5%B2%81%E5%81%9A%E4%B8%AD%E5%9B%BD%E6%96%B0%E6%AD%8C%E5%A3%B0%E8%AF%84%E5%A7%94%23&Refer=top) `2.7M 🔥`
 1. [李佳航 耳濡目染是最好的教育](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E8%88%AA%20%E8%80%B3%E6%BF%A1%E7%9B%AE%E6%9F%93%E6%98%AF%E6%9C%80%E5%A5%BD%E7%9A%84%E6%95%99%E8%82%B2&Refer=top) `2.7M 🔥`
 1. [周杰伦为女儿建粉红色城堡](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E4%B8%BA%E5%A5%B3%E5%84%BF%E5%BB%BA%E7%B2%89%E7%BA%A2%E8%89%B2%E5%9F%8E%E5%A0%A1%23&Refer=top) `2.7M 🔥`
@@ -19,7 +20,6 @@
 1. [刘亦菲做针灸](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E5%81%9A%E9%92%88%E7%81%B8%23&Refer=top) `2.3M 🔥`
 1. [世界地球日](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E5%9C%B0%E7%90%83%E6%97%A5%23&Refer=top) `2.2M 🔥`
 1. [女演员发言可以有多绝](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%BC%94%E5%91%98%E5%8F%91%E8%A8%80%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E7%BB%9D%23&Refer=top) `2.1M 🔥`
-1. [特斯拉提供刹车事故前1分钟数据](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%96%AF%E6%8B%89%E6%8F%90%E4%BE%9B%E5%88%B9%E8%BD%A6%E4%BA%8B%E6%95%85%E5%89%8D1%E5%88%86%E9%92%9F%E6%95%B0%E6%8D%AE%23&Refer=top) `2.1M 🔥`
 1. [孟晚舟引渡案延期到8月初审理](https://s.weibo.com/weibo?q=%E5%AD%9F%E6%99%9A%E8%88%9F%E5%BC%95%E6%B8%A1%E6%A1%88%E5%BB%B6%E6%9C%9F%E5%88%B08%E6%9C%88%E5%88%9D%E5%AE%A1%E7%90%86&Refer=top) `2.0M 🔥`
 1. [刘昊然抢不到痛仰乐队现场票](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E6%8A%A2%E4%B8%8D%E5%88%B0%E7%97%9B%E4%BB%B0%E4%B9%90%E9%98%9F%E7%8E%B0%E5%9C%BA%E7%A5%A8%23&Refer=top) `1.9M 🔥`
 1. [职工医保可支付家庭成员在定点医院费用](https://s.weibo.com/weibo?q=%E8%81%8C%E5%B7%A5%E5%8C%BB%E4%BF%9D%E5%8F%AF%E6%94%AF%E4%BB%98%E5%AE%B6%E5%BA%AD%E6%88%90%E5%91%98%E5%9C%A8%E5%AE%9A%E7%82%B9%E5%8C%BB%E9%99%A2%E8%B4%B9%E7%94%A8&Refer=top) `1.9M 🔥`
@@ -45,6 +45,7 @@
 1. [吴磊为一场戏健身四个月](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E4%B8%BA%E4%B8%80%E5%9C%BA%E6%88%8F%E5%81%A5%E8%BA%AB%E5%9B%9B%E4%B8%AA%E6%9C%88%23&Refer=top) `1.3M 🔥`
 1. [美参院将施压拜登政府对抗中国](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%8F%82%E9%99%A2%E5%B0%86%E6%96%BD%E5%8E%8B%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD&Refer=top) `1.3M 🔥`
 1. [中南大学一硕士生坠楼身亡](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%8D%97%E5%A4%A7%E5%AD%A6%E4%B8%80%E7%A1%95%E5%A3%AB%E7%94%9F%E5%9D%A0%E6%A5%BC%E8%BA%AB%E4%BA%A1%23&Refer=top) `1.3M 🔥`
+1. [妈妈教给我的婚姻观](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E6%95%99%E7%BB%99%E6%88%91%E7%9A%84%E5%A9%9A%E5%A7%BB%E8%A7%82%23&Refer=top) `1.1M 🔥`
 1. [皓都 我赢了不用嫁了](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E6%88%91%E8%B5%A2%E4%BA%86%E4%B8%8D%E7%94%A8%E5%AB%81%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [寻找周杰伦停止再版发行](https://s.weibo.com/weibo?q=%23%E5%AF%BB%E6%89%BE%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%81%9C%E6%AD%A2%E5%86%8D%E7%89%88%E5%8F%91%E8%A1%8C%23&Refer=top) `1.1M 🔥`
 1. [这不是杨紫是杜华](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%8D%E6%98%AF%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%9D%9C%E5%8D%8E%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [星巴克自带杯免费喝咖啡](https://s.weibo.com/weibo?q=%23%E6%98%9F%E5%B7%B4%E5%85%8B%E8%87%AA%E5%B8%A6%E6%9D%AF%E5%85%8D%E8%B4%B9%E5%96%9D%E5%92%96%E5%95%A1%23&Refer=top) `946.9K 🔥`
 1. [B站小电视商标遭驳回](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%B0%8F%E7%94%B5%E8%A7%86%E5%95%86%E6%A0%87%E9%81%AD%E9%A9%B3%E5%9B%9E%23&Refer=top) `942.7K 🔥`
 1. [巴基斯坦酒店遭袭击时中国代表团外出](https://s.weibo.com/weibo?q=%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E9%85%92%E5%BA%97%E9%81%AD%E8%A2%AD%E5%87%BB%E6%97%B6%E4%B8%AD%E5%9B%BD%E4%BB%A3%E8%A1%A8%E5%9B%A2%E5%A4%96%E5%87%BA&Refer=top) `941.4K 🔥`
-1. [美国一麦当劳来面试就送50美元](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E4%B8%80%E9%BA%A6%E5%BD%93%E5%8A%B3%E6%9D%A5%E9%9D%A2%E8%AF%95%E5%B0%B1%E9%80%8150%E7%BE%8E%E5%85%83&Refer=top) `940.8K 🔥`
 
-数据更新于 2021-04-22 21:20:19
+数据更新于 2021-04-22 21:34:11
 
 <!-- END -->
 
