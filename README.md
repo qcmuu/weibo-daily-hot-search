@@ -47,17 +47,17 @@
 1. [吴磊为一场戏健身四个月](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E4%B8%BA%E4%B8%80%E5%9C%BA%E6%88%8F%E5%81%A5%E8%BA%AB%E5%9B%9B%E4%B8%AA%E6%9C%88%23&Refer=top) `1.3M 🔥`
 1. [美参院将施压拜登政府对抗中国](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%8F%82%E9%99%A2%E5%B0%86%E6%96%BD%E5%8E%8B%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E5%AF%B9%E6%8A%97%E4%B8%AD%E5%9B%BD&Refer=top) `1.3M 🔥`
 1. [中南大学一硕士生坠楼身亡](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%8D%97%E5%A4%A7%E5%AD%A6%E4%B8%80%E7%A1%95%E5%A3%AB%E7%94%9F%E5%9D%A0%E6%A5%BC%E8%BA%AB%E4%BA%A1%23&Refer=top) `1.3M 🔥`
+1. [付国豪离职](https://s.weibo.com/weibo?q=%E4%BB%98%E5%9B%BD%E8%B1%AA%E7%A6%BB%E8%81%8C&Refer=top) `1.2M 🔥`
 1. [皓都 我赢了不用嫁了](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E6%88%91%E8%B5%A2%E4%BA%86%E4%B8%8D%E7%94%A8%E5%AB%81%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [寻找周杰伦停止再版发行](https://s.weibo.com/weibo?q=%23%E5%AF%BB%E6%89%BE%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%81%9C%E6%AD%A2%E5%86%8D%E7%89%88%E5%8F%91%E8%A1%8C%23&Refer=top) `1.1M 🔥`
 1. [这不是杨紫是杜华](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%8D%E6%98%AF%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%9D%9C%E5%8D%8E%23&Refer=top) `1.1M 🔥`
-1. [付国豪离职](https://s.weibo.com/weibo?q=%E4%BB%98%E5%9B%BD%E8%B1%AA%E7%A6%BB%E8%81%8C&Refer=top) `1.0M 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `1.0M 🔥`
 1. [龚俊丁程鑫四川话版山河令](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E4%B8%81%E7%A8%8B%E9%91%AB%E5%9B%9B%E5%B7%9D%E8%AF%9D%E7%89%88%E5%B1%B1%E6%B2%B3%E4%BB%A4%23&Refer=top) `980.3K 🔥`
 1. [点餐浪费或被收取厨余垃圾处理费](https://s.weibo.com/weibo?q=%E7%82%B9%E9%A4%90%E6%B5%AA%E8%B4%B9%E6%88%96%E8%A2%AB%E6%94%B6%E5%8F%96%E5%8E%A8%E4%BD%99%E5%9E%83%E5%9C%BE%E5%A4%84%E7%90%86%E8%B4%B9&Refer=top) `967.5K 🔥`
 1. [全球超3.7万物种濒临灭绝](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E8%B6%853.7%E4%B8%87%E7%89%A9%E7%A7%8D%E6%BF%92%E4%B8%B4%E7%81%AD%E7%BB%9D%23&Refer=top) `962.1K 🔥`
 1. [BO道歉](https://s.weibo.com/weibo?q=BO%E9%81%93%E6%AD%89&Refer=top) `954.0K 🔥`
 
-数据更新于 2021-04-22 22:46:57
+数据更新于 2021-04-22 22:52:52
 
 <!-- END -->
 
