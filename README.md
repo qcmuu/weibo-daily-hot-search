@@ -44,6 +44,7 @@
 1. [宝藏歌手](https://s.weibo.com/weibo?q=%E5%AE%9D%E8%97%8F%E6%AD%8C%E6%89%8B&Refer=top) `365.3K 🔥`
 1. [2020年度中国好书](https://s.weibo.com/weibo?q=%232020%E5%B9%B4%E5%BA%A6%E4%B8%AD%E5%9B%BD%E5%A5%BD%E4%B9%A6%23&Refer=top) `363.4K 🔥`
 1. [张艺兴套路导演组](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%A5%97%E8%B7%AF%E5%AF%BC%E6%BC%94%E7%BB%84%23&Refer=top) `351.3K 🔥`
+1. [拜登批准肯塔基州进入重大灾难状态](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E6%89%B9%E5%87%86%E8%82%AF%E5%A1%94%E5%9F%BA%E5%B7%9E%E8%BF%9B%E5%85%A5%E9%87%8D%E5%A4%A7%E7%81%BE%E9%9A%BE%E7%8A%B6%E6%80%81&Refer=top) `349.7K 🔥`
 1. [朱旭航爆粗口](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E6%97%AD%E8%88%AA%E7%88%86%E7%B2%97%E5%8F%A3%23&Refer=top) `345.8K 🔥`
 1. [韩外长提醒美国莫忘当初援助之情](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%A4%96%E9%95%BF%E6%8F%90%E9%86%92%E7%BE%8E%E5%9B%BD%E8%8E%AB%E5%BF%98%E5%BD%93%E5%88%9D%E6%8F%B4%E5%8A%A9%E4%B9%8B%E6%83%85&Refer=top) `341.8K 🔥`
 1. [龚俊张哲瀚同框](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E5%93%B2%E7%80%9A%E5%90%8C%E6%A1%86%23&Refer=top) `317.3K 🔥`
@@ -55,9 +56,8 @@
 1. [杨国福员工辞职讨薪被打](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%9B%BD%E7%A6%8F%E5%91%98%E5%B7%A5%E8%BE%9E%E8%81%8C%E8%AE%A8%E8%96%AA%E8%A2%AB%E6%89%93&Refer=top) `282.2K 🔥`
 1. [王源童年照](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%AB%A5%E5%B9%B4%E7%85%A7%23&Refer=top) `271.1K 🔥`
 1. [刘宇宁新歌天判](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%AE%81%E6%96%B0%E6%AD%8C%E5%A4%A9%E5%88%A4%23&Refer=top) `267.2K 🔥`
-1. [中国航天起名有多浪漫](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%88%AA%E5%A4%A9%E8%B5%B7%E5%90%8D%E6%9C%89%E5%A4%9A%E6%B5%AA%E6%BC%AB%23&Refer=top) `250.0K 🔥`
 
-数据更新于 2021-04-24 08:23:33
+数据更新于 2021-04-24 08:43:06
 
 <!-- END -->
 
