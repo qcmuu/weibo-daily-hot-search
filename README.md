@@ -57,7 +57,7 @@
 1. [世卫称中高收入国家垄断了疫苗接种](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%A7%B0%E4%B8%AD%E9%AB%98%E6%94%B6%E5%85%A5%E5%9B%BD%E5%AE%B6%E5%9E%84%E6%96%AD%E4%BA%86%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%23&Refer=top) `686.9K 🔥`
 1. [任嘉伦不会在大众面前掉眼泪](https://s.weibo.com/weibo?q=%23%E4%BB%BB%E5%98%89%E4%BC%A6%E4%B8%8D%E4%BC%9A%E5%9C%A8%E5%A4%A7%E4%BC%97%E9%9D%A2%E5%89%8D%E6%8E%89%E7%9C%BC%E6%B3%AA%23&Refer=top) `685.3K 🔥`
 
-数据更新于 2021-04-24 15:52:17
+数据更新于 2021-04-24 15:58:02
 
 <!-- END -->
 
