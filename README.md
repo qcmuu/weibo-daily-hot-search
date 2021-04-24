@@ -30,6 +30,8 @@
 1. [薛八一 美女车祸现场](https://s.weibo.com/weibo?q=%E8%96%9B%E5%85%AB%E4%B8%80%20%E7%BE%8E%E5%A5%B3%E8%BD%A6%E7%A5%B8%E7%8E%B0%E5%9C%BA&Refer=top) `3.0M 🔥`
 1. [定义 难听](https://s.weibo.com/weibo?q=%E5%AE%9A%E4%B9%89%20%E9%9A%BE%E5%90%AC&Refer=top) `3.0M 🔥`
 1. [被田雨岚气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%94%B0%E9%9B%A8%E5%B2%9A%E6%B0%94%E6%AD%BB%23&Refer=top) `2.6M 🔥`
+1. [台湾菠萝收购价格几近崩盘](https://s.weibo.com/weibo?q=%E5%8F%B0%E6%B9%BE%E8%8F%A0%E8%90%9D%E6%94%B6%E8%B4%AD%E4%BB%B7%E6%A0%BC%E5%87%A0%E8%BF%91%E5%B4%A9%E7%9B%98&Refer=top) `2.5M 🔥`
+1. [刘宇是在诗朗诵吗](https://s.weibo.com/weibo?q=%E5%88%98%E5%AE%87%E6%98%AF%E5%9C%A8%E8%AF%97%E6%9C%97%E8%AF%B5%E5%90%97&Refer=top) `2.5M 🔥`
 1. [节目组给黄磊设规则设了个寂寞](https://s.weibo.com/weibo?q=%23%E8%8A%82%E7%9B%AE%E7%BB%84%E7%BB%99%E9%BB%84%E7%A3%8A%E8%AE%BE%E8%A7%84%E5%88%99%E8%AE%BE%E4%BA%86%E4%B8%AA%E5%AF%82%E5%AF%9E%23&Refer=top) `2.4M 🔥`
 1. [感谢周深 耳朵好了](https://s.weibo.com/weibo?q=%E6%84%9F%E8%B0%A2%E5%91%A8%E6%B7%B1%20%E8%80%B3%E6%9C%B5%E5%A5%BD%E4%BA%86&Refer=top) `2.4M 🔥`
 1. [五一小长假的真实面目](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%B0%8F%E9%95%BF%E5%81%87%E7%9A%84%E7%9C%9F%E5%AE%9E%E9%9D%A2%E7%9B%AE%23&Refer=top) `2.3M 🔥`
@@ -38,7 +40,6 @@
 1. [银行回应押钞员中枪身亡](https://s.weibo.com/weibo?q=%23%E9%93%B6%E8%A1%8C%E5%9B%9E%E5%BA%94%E6%8A%BC%E9%92%9E%E5%91%98%E4%B8%AD%E6%9E%AA%E8%BA%AB%E4%BA%A1%23&Refer=top) `2.2M 🔥`
 1. [创造营决赛撑腰数据丢失](https://s.weibo.com/weibo?q=%23%E5%88%9B%E9%80%A0%E8%90%A5%E5%86%B3%E8%B5%9B%E6%92%91%E8%85%B0%E6%95%B0%E6%8D%AE%E4%B8%A2%E5%A4%B1%23&Refer=top) `2.2M 🔥`
 1. [邓伦凌晨三点开工拍日出封面](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E5%87%8C%E6%99%A8%E4%B8%89%E7%82%B9%E5%BC%80%E5%B7%A5%E6%8B%8D%E6%97%A5%E5%87%BA%E5%B0%81%E9%9D%A2%23&Refer=top) `2.2M 🔥`
-1. [台湾菠萝收购价格几近崩盘](https://s.weibo.com/weibo?q=%E5%8F%B0%E6%B9%BE%E8%8F%A0%E8%90%9D%E6%94%B6%E8%B4%AD%E4%BB%B7%E6%A0%BC%E5%87%A0%E8%BF%91%E5%B4%A9%E7%9B%98&Refer=top) `2.2M 🔥`
 1. [创造营开场舞谁的鞋掉了](https://s.weibo.com/weibo?q=%23%E5%88%9B%E9%80%A0%E8%90%A5%E5%BC%80%E5%9C%BA%E8%88%9E%E8%B0%81%E7%9A%84%E9%9E%8B%E6%8E%89%E4%BA%86%23&Refer=top) `2.1M 🔥`
 1. [这是利路修最开心的舞台吧](https://s.weibo.com/weibo?q=%E8%BF%99%E6%98%AF%E5%88%A9%E8%B7%AF%E4%BF%AE%E6%9C%80%E5%BC%80%E5%BF%83%E7%9A%84%E8%88%9E%E5%8F%B0%E5%90%A7&Refer=top) `2.1M 🔥`
 1. [甘望星的刘海都在抖](https://s.weibo.com/weibo?q=%E7%94%98%E6%9C%9B%E6%98%9F%E7%9A%84%E5%88%98%E6%B5%B7%E9%83%BD%E5%9C%A8%E6%8A%96&Refer=top) `2.1M 🔥`
@@ -55,9 +56,8 @@
 1. [钟南山称正全力研发针对变异毒株疫苗](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E7%A7%B0%E6%AD%A3%E5%85%A8%E5%8A%9B%E7%A0%94%E5%8F%91%E9%92%88%E5%AF%B9%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E7%96%AB%E8%8B%97%23&Refer=top) `1.8M 🔥`
 1. [蔡徐坤 没说不能拿电脑啊](https://s.weibo.com/weibo?q=%E8%94%A1%E5%BE%90%E5%9D%A4%20%E6%B2%A1%E8%AF%B4%E4%B8%8D%E8%83%BD%E6%8B%BF%E7%94%B5%E8%84%91%E5%95%8A&Refer=top) `1.8M 🔥`
 1. [长期不运动的人会怎样](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%9C%9F%E4%B8%8D%E8%BF%90%E5%8A%A8%E7%9A%84%E4%BA%BA%E4%BC%9A%E6%80%8E%E6%A0%B7%23&Refer=top) `1.7M 🔥`
-1. [海军三型主战舰艇交接入列](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%86%9B%E4%B8%89%E5%9E%8B%E4%B8%BB%E6%88%98%E8%88%B0%E8%89%87%E4%BA%A4%E6%8E%A5%E5%85%A5%E5%88%97%23&Refer=top) `1.7M 🔥`
 
-数据更新于 2021-04-24 23:46:28
+数据更新于 2021-04-24 23:57:08
 
 <!-- END -->
 
