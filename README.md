@@ -11,6 +11,7 @@
 1. [张伟丽被KO](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E4%BC%9F%E4%B8%BD%E8%A2%ABKO%23&Refer=top) `5.1M 🔥`
 1. [沈梦辰斑秃](https://s.weibo.com/weibo?q=%E6%B2%88%E6%A2%A6%E8%BE%B0%E6%96%91%E7%A7%83&Refer=top) `5.1M 🔥`
 1. [中国国学院大学被取缔](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%9B%BD%E5%AD%A6%E9%99%A2%E5%A4%A7%E5%AD%A6%E8%A2%AB%E5%8F%96%E7%BC%94%23&Refer=top) `5.0M 🔥`
+1. [贾乃亮打掉节目组摄像头](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E4%B9%83%E4%BA%AE%E6%89%93%E6%8E%89%E8%8A%82%E7%9B%AE%E7%BB%84%E6%91%84%E5%83%8F%E5%A4%B4%23&Refer=top) `4.9M 🔥`
 1. [庆怜没出道](https://s.weibo.com/weibo?q=%23%E5%BA%86%E6%80%9C%E6%B2%A1%E5%87%BA%E9%81%93%23&Refer=top) `4.8M 🔥`
 1. [徐璐漫画腿](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%92%90%E6%BC%AB%E7%94%BB%E8%85%BF%23&Refer=top) `4.6M 🔥`
 1. [印度疫情](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6%E7%96%AB%E6%83%85&Refer=top) `3.8M 🔥`
@@ -55,9 +56,8 @@
 1. [任豪 创造营](https://s.weibo.com/weibo?q=%E4%BB%BB%E8%B1%AA%20%E5%88%9B%E9%80%A0%E8%90%A5&Refer=top) `1.6M 🔥`
 1. [近视患者最尴尬的社死瞬间](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E6%82%A3%E8%80%85%E6%9C%80%E5%B0%B4%E5%B0%AC%E7%9A%84%E7%A4%BE%E6%AD%BB%E7%9E%AC%E9%97%B4%23&Refer=top) `1.6M 🔥`
 1. [北大为清华送生日祝福](https://s.weibo.com/weibo?q=%E5%8C%97%E5%A4%A7%E4%B8%BA%E6%B8%85%E5%8D%8E%E9%80%81%E7%94%9F%E6%97%A5%E7%A5%9D%E7%A6%8F&Refer=top) `1.6M 🔥`
-1. [薛八一 美女车祸现场](https://s.weibo.com/weibo?q=%E8%96%9B%E5%85%AB%E4%B8%80%20%E7%BE%8E%E5%A5%B3%E8%BD%A6%E7%A5%B8%E7%8E%B0%E5%9C%BA&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-04-25 19:56:55
+数据更新于 2021-04-25 20:05:15
 
 <!-- END -->
 
