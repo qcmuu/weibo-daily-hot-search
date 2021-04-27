@@ -20,6 +20,7 @@
 1. [佟大为 陆涛终成夏君山](https://s.weibo.com/weibo?q=%E4%BD%9F%E5%A4%A7%E4%B8%BA%20%E9%99%86%E6%B6%9B%E7%BB%88%E6%88%90%E5%A4%8F%E5%90%9B%E5%B1%B1&Refer=top) `1.7M 🔥`
 1. [我国恶性肿瘤5年生存率达40%](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%81%B6%E6%80%A7%E8%82%BF%E7%98%A45%E5%B9%B4%E7%94%9F%E5%AD%98%E7%8E%87%E8%BE%BE40%25%23&Refer=top) `1.7M 🔥`
 1. [螺蛳粉爆红的背后](https://s.weibo.com/weibo?q=%23%E8%9E%BA%E8%9B%B3%E7%B2%89%E7%88%86%E7%BA%A2%E7%9A%84%E8%83%8C%E5%90%8E%23&Refer=top) `1.6M 🔥`
+1. [张翰一天拍戏23个小时](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BF%B0%E4%B8%80%E5%A4%A9%E6%8B%8D%E6%88%8F23%E4%B8%AA%E5%B0%8F%E6%97%B6%23&Refer=top) `1.6M 🔥`
 1. [央视主播说熟蛋孵小鸡侮辱极强伤害更大](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E8%AF%B4%E7%86%9F%E8%9B%8B%E5%AD%B5%E5%B0%8F%E9%B8%A1%E4%BE%AE%E8%BE%B1%E6%9E%81%E5%BC%BA%E4%BC%A4%E5%AE%B3%E6%9B%B4%E5%A4%A7%23&Refer=top) `1.5M 🔥`
 1. [中科院回应熟蛋返生课程](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%A7%91%E9%99%A2%E5%9B%9E%E5%BA%94%E7%86%9F%E8%9B%8B%E8%BF%94%E7%94%9F%E8%AF%BE%E7%A8%8B%23&Refer=top) `1.5M 🔥`
 1. [盒马回应用昨日奶做冰淇淋](https://s.weibo.com/weibo?q=%E7%9B%92%E9%A9%AC%E5%9B%9E%E5%BA%94%E7%94%A8%E6%98%A8%E6%97%A5%E5%A5%B6%E5%81%9A%E5%86%B0%E6%B7%87%E6%B7%8B&Refer=top) `1.5M 🔥`
@@ -50,14 +51,13 @@
 1. [中国女排在日本开始训练](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E5%9C%A8%E6%97%A5%E6%9C%AC%E5%BC%80%E5%A7%8B%E8%AE%AD%E7%BB%83&Refer=top) `766.3K 🔥`
 1. [见过最离谱的相亲经历](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E7%A6%BB%E8%B0%B1%E7%9A%84%E7%9B%B8%E4%BA%B2%E7%BB%8F%E5%8E%86%23&Refer=top) `749.6K 🔥`
 1. [蔚来总裁回应卷入特斯拉维权事件](https://s.weibo.com/weibo?q=%E8%94%9A%E6%9D%A5%E6%80%BB%E8%A3%81%E5%9B%9E%E5%BA%94%E5%8D%B7%E5%85%A5%E7%89%B9%E6%96%AF%E6%8B%89%E7%BB%B4%E6%9D%83%E4%BA%8B%E4%BB%B6&Refer=top) `743.2K 🔥`
+1. [江苏一特斯拉冲进包子店](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E4%B8%80%E7%89%B9%E6%96%AF%E6%8B%89%E5%86%B2%E8%BF%9B%E5%8C%85%E5%AD%90%E5%BA%97%23&Refer=top) `742.7K 🔥`
 1. [中国留学生讲述印度生活现状](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%95%99%E5%AD%A6%E7%94%9F%E8%AE%B2%E8%BF%B0%E5%8D%B0%E5%BA%A6%E7%94%9F%E6%B4%BB%E7%8E%B0%E7%8A%B6%23&Refer=top) `742.1K 🔥`
 1. [皓都 以后我要作为夫君保护你](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E4%BB%A5%E5%90%8E%E6%88%91%E8%A6%81%E4%BD%9C%E4%B8%BA%E5%A4%AB%E5%90%9B%E4%BF%9D%E6%8A%A4%E4%BD%A0&Refer=top) `731.6K 🔥`
 1. [怀疑生活在虚拟世界的证据](https://s.weibo.com/weibo?q=%23%E6%80%80%E7%96%91%E7%94%9F%E6%B4%BB%E5%9C%A8%E8%99%9A%E6%8B%9F%E4%B8%96%E7%95%8C%E7%9A%84%E8%AF%81%E6%8D%AE%23&Refer=top) `730.3K 🔥`
 1. [陕西公布脱贫摘帽掺假初步调查结果](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E5%85%AC%E5%B8%83%E8%84%B1%E8%B4%AB%E6%91%98%E5%B8%BD%E6%8E%BA%E5%81%87%E5%88%9D%E6%AD%A5%E8%B0%83%E6%9F%A5%E7%BB%93%E6%9E%9C%23&Refer=top) `725.2K 🔥`
-1. [徐冬冬看了李焕英后和妈妈和解](https://s.weibo.com/weibo?q=%E5%BE%90%E5%86%AC%E5%86%AC%E7%9C%8B%E4%BA%86%E6%9D%8E%E7%84%95%E8%8B%B1%E5%90%8E%E5%92%8C%E5%A6%88%E5%A6%88%E5%92%8C%E8%A7%A3&Refer=top) `712.9K 🔥`
-1. [江苏一特斯拉冲进包子店](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E4%B8%80%E7%89%B9%E6%96%AF%E6%8B%89%E5%86%B2%E8%BF%9B%E5%8C%85%E5%AD%90%E5%BA%97%23&Refer=top) `711.4K 🔥`
 
-数据更新于 2021-04-27 14:08:20
+数据更新于 2021-04-27 14:19:59
 
 <!-- END -->
 
