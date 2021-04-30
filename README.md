@@ -15,6 +15,7 @@
 1. [INTO1否认刘宇学历造假](https://s.weibo.com/weibo?q=%23INTO1%E5%90%A6%E8%AE%A4%E5%88%98%E5%AE%87%E5%AD%A6%E5%8E%86%E9%80%A0%E5%81%87%23&Refer=top) `2.1M 🔥`
 1. [中国视协回应郑爽被查](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%A7%86%E5%8D%8F%E5%9B%9E%E5%BA%94%E9%83%91%E7%88%BD%E8%A2%AB%E6%9F%A5%23&Refer=top) `2.0M 🔥`
 1. [吴尊友说不必对印度变异毒株过于恐慌](https://s.weibo.com/weibo?q=%E5%90%B4%E5%B0%8A%E5%8F%8B%E8%AF%B4%E4%B8%8D%E5%BF%85%E5%AF%B9%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E8%BF%87%E4%BA%8E%E6%81%90%E6%85%8C&Refer=top) `2.0M 🔥`
+1. [新冠疫苗接种不得按户籍一刀切](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E4%B8%8D%E5%BE%97%E6%8C%89%E6%88%B7%E7%B1%8D%E4%B8%80%E5%88%80%E5%88%87%23&Refer=top) `1.9M 🔥`
 1. [余景天妈妈回应](https://s.weibo.com/weibo?q=%E4%BD%99%E6%99%AF%E5%A4%A9%E5%A6%88%E5%A6%88%E5%9B%9E%E5%BA%94&Refer=top) `1.8M 🔥`
 1. [余景天经纪公司辟谣](https://s.weibo.com/weibo?q=%23%E4%BD%99%E6%99%AF%E5%A4%A9%E7%BB%8F%E7%BA%AA%E5%85%AC%E5%8F%B8%E8%BE%9F%E8%B0%A3%23&Refer=top) `1.8M 🔥`
 1. [德云社门票](https://s.weibo.com/weibo?q=%E5%BE%B7%E4%BA%91%E7%A4%BE%E9%97%A8%E7%A5%A8&Refer=top) `1.6M 🔥`
@@ -37,8 +38,8 @@
 1. [警方通报16岁少女跳江身亡](https://s.weibo.com/weibo?q=%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A516%E5%B2%81%E5%B0%91%E5%A5%B3%E8%B7%B3%E6%B1%9F%E8%BA%AB%E4%BA%A1&Refer=top) `1.1M 🔥`
 1. [女子取快递被造谣案一审开庭](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%8F%96%E5%BF%AB%E9%80%92%E8%A2%AB%E9%80%A0%E8%B0%A3%E6%A1%88%E4%B8%80%E5%AE%A1%E5%BC%80%E5%BA%AD%23&Refer=top) `1.1M 🔥`
 1. [吴镇宇的川普有多烫嘴](https://s.weibo.com/weibo?q=%23%E5%90%B4%E9%95%87%E5%AE%87%E7%9A%84%E5%B7%9D%E6%99%AE%E6%9C%89%E5%A4%9A%E7%83%AB%E5%98%B4%23&Refer=top) `1.0M 🔥`
+1. [日晕](https://s.weibo.com/weibo?q=%E6%97%A5%E6%99%95&Refer=top) `976.7K 🔥`
 1. [男子治前列腺炎4个月花9万](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E6%B2%BB%E5%89%8D%E5%88%97%E8%85%BA%E7%82%8E4%E4%B8%AA%E6%9C%88%E8%8A%B19%E4%B8%87&Refer=top) `956.9K 🔥`
-1. [日晕](https://s.weibo.com/weibo?q=%E6%97%A5%E6%99%95&Refer=top) `908.6K 🔥`
 1. [75位一线艺人注销200家关联公司](https://s.weibo.com/weibo?q=%2375%E4%BD%8D%E4%B8%80%E7%BA%BF%E8%89%BA%E4%BA%BA%E6%B3%A8%E9%94%80200%E5%AE%B6%E5%85%B3%E8%81%94%E5%85%AC%E5%8F%B8%23&Refer=top) `865.8K 🔥`
 1. [哈尔滨有条街以他的名字命名](https://s.weibo.com/weibo?q=%23%E5%93%88%E5%B0%94%E6%BB%A8%E6%9C%89%E6%9D%A1%E8%A1%97%E4%BB%A5%E4%BB%96%E7%9A%84%E5%90%8D%E5%AD%97%E5%91%BD%E5%90%8D%23&Refer=top) `847.8K 🔥`
 1. [张恩华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%81%A9%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `815.7K 🔥`
@@ -55,9 +56,8 @@
 1. [特斯拉维权女主称为自保谎称怀孕](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E7%BB%B4%E6%9D%83%E5%A5%B3%E4%B8%BB%E7%A7%B0%E4%B8%BA%E8%87%AA%E4%BF%9D%E8%B0%8E%E7%A7%B0%E6%80%80%E5%AD%95&Refer=top) `735.1K 🔥`
 1. [韩国总统将于5月21日到访白宫](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%80%BB%E7%BB%9F%E5%B0%86%E4%BA%8E5%E6%9C%8821%E6%97%A5%E5%88%B0%E8%AE%BF%E7%99%BD%E5%AE%AB%23&Refer=top) `732.9K 🔥`
 1. [称孩子没死就得购物导游被处罚](https://s.weibo.com/weibo?q=%E7%A7%B0%E5%AD%A9%E5%AD%90%E6%B2%A1%E6%AD%BB%E5%B0%B1%E5%BE%97%E8%B4%AD%E7%89%A9%E5%AF%BC%E6%B8%B8%E8%A2%AB%E5%A4%84%E7%BD%9A&Refer=top) `721.0K 🔥`
-1. [全国新冠疫苗接种超2.4亿剂次](https://s.weibo.com/weibo?q=%E5%85%A8%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E8%B6%852.4%E4%BA%BF%E5%89%82%E6%AC%A1&Refer=top) `714.0K 🔥`
 
-数据更新于 2021-04-30 13:00:32
+数据更新于 2021-04-30 13:34:20
 
 <!-- END -->
 
