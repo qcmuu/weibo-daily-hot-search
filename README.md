@@ -17,6 +17,7 @@
 1. [台湾发生新冠肺炎群聚感染](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E5%8F%91%E7%94%9F%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%BE%A4%E8%81%9A%E6%84%9F%E6%9F%93%23&Refer=top) `2.8M 🔥`
 1. [特朗普确认将再次参选总统](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E7%A1%AE%E8%AE%A4%E5%B0%86%E5%86%8D%E6%AC%A1%E5%8F%82%E9%80%89%E6%80%BB%E7%BB%9F%23&Refer=top) `2.7M 🔥`
 1. [阿Sa称阿娇长胖是因荷尔蒙失调](https://s.weibo.com/weibo?q=%23%E9%98%BFSa%E7%A7%B0%E9%98%BF%E5%A8%87%E9%95%BF%E8%83%96%E6%98%AF%E5%9B%A0%E8%8D%B7%E5%B0%94%E8%92%99%E5%A4%B1%E8%B0%83%23&Refer=top) `2.6M 🔥`
+1. [良品铺子就鸡肉肠事件致歉](https://s.weibo.com/weibo?q=%23%E8%89%AF%E5%93%81%E9%93%BA%E5%AD%90%E5%B0%B1%E9%B8%A1%E8%82%89%E8%82%A0%E4%BA%8B%E4%BB%B6%E8%87%B4%E6%AD%89%23&Refer=top) `2.5M 🔥`
 1. [鹿晗工作室发文回应](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `2.4M 🔥`
 1. [刘浩存演技](https://s.weibo.com/weibo?q=%E5%88%98%E6%B5%A9%E5%AD%98%E6%BC%94%E6%8A%80&Refer=top) `2.3M 🔥`
 1. [印度拒绝联合国物资驰援](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6%E6%8B%92%E7%BB%9D%E8%81%94%E5%90%88%E5%9B%BD%E7%89%A9%E8%B5%84%E9%A9%B0%E6%8F%B4&Refer=top) `2.3M 🔥`
@@ -55,9 +56,8 @@
 1. [吴镇宇的川普有多烫嘴](https://s.weibo.com/weibo?q=%23%E5%90%B4%E9%95%87%E5%AE%87%E7%9A%84%E5%B7%9D%E6%99%AE%E6%9C%89%E5%A4%9A%E7%83%AB%E5%98%B4%23&Refer=top) `1.2M 🔥`
 1. [苹果中国官网上线官方翻新产品](https://s.weibo.com/weibo?q=%E8%8B%B9%E6%9E%9C%E4%B8%AD%E5%9B%BD%E5%AE%98%E7%BD%91%E4%B8%8A%E7%BA%BF%E5%AE%98%E6%96%B9%E7%BF%BB%E6%96%B0%E4%BA%A7%E5%93%81&Refer=top) `1.2M 🔥`
 1. [下雪](https://s.weibo.com/weibo?q=%E4%B8%8B%E9%9B%AA&Refer=top) `1.2M 🔥`
-1. [四川航空短信](https://s.weibo.com/weibo?q=%E5%9B%9B%E5%B7%9D%E8%88%AA%E7%A9%BA%E7%9F%AD%E4%BF%A1&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-30 22:54:14
+数据更新于 2021-04-30 23:25:28
 
 <!-- END -->
 
