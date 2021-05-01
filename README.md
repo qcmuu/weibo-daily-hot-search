@@ -12,6 +12,7 @@
 1. [西湖断桥五一假期变人桥](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E6%B9%96%E6%96%AD%E6%A1%A5%E4%BA%94%E4%B8%80%E5%81%87%E6%9C%9F%E5%8F%98%E4%BA%BA%E6%A1%A5%23&Refer=top) `3.3M 🔥`
 1. [4省份上调最低工资标准](https://s.weibo.com/weibo?q=%234%E7%9C%81%E4%BB%BD%E4%B8%8A%E8%B0%83%E6%9C%80%E4%BD%8E%E5%B7%A5%E8%B5%84%E6%A0%87%E5%87%86%23&Refer=top) `2.6M 🔥`
 1. [章若楠颜值](https://s.weibo.com/weibo?q=%23%E7%AB%A0%E8%8B%A5%E6%A5%A0%E9%A2%9C%E5%80%BC%23&Refer=top) `2.5M 🔥`
+1. [文具盲盒校园热销](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%85%B7%E7%9B%B2%E7%9B%92%E6%A0%A1%E5%9B%AD%E7%83%AD%E9%94%80%23&Refer=top) `2.4M 🔥`
 1. [BBC记者在中国街采被三连怼](https://s.weibo.com/weibo?q=%23BBC%E8%AE%B0%E8%80%85%E5%9C%A8%E4%B8%AD%E5%9B%BD%E8%A1%97%E9%87%87%E8%A2%AB%E4%B8%89%E8%BF%9E%E6%80%BC%23&Refer=top) `2.2M 🔥`
 1. [江苏南通大风致11死102伤](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%8D%97%E9%80%9A%E5%A4%A7%E9%A3%8E%E8%87%B411%E6%AD%BB102%E4%BC%A4%23&Refer=top) `2.1M 🔥`
 1. [许光汉 从来没有得到会更痛苦](https://s.weibo.com/weibo?q=%E8%AE%B8%E5%85%89%E6%B1%89%20%E4%BB%8E%E6%9D%A5%E6%B2%A1%E6%9C%89%E5%BE%97%E5%88%B0%E4%BC%9A%E6%9B%B4%E7%97%9B%E8%8B%A6&Refer=top) `2.0M 🔥`
@@ -55,9 +56,8 @@
 1. [鹿晗工作室发文回应](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `905.3K 🔥`
 1. [赵丽颖录制拜托了冰箱](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E5%BD%95%E5%88%B6%E6%8B%9C%E6%89%98%E4%BA%86%E5%86%B0%E7%AE%B1%23&Refer=top) `904.3K 🔥`
 1. [青春有你](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0&Refer=top) `898.4K 🔥`
-1. [有酒店浴室挂钩暗藏摄像头](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%85%92%E5%BA%97%E6%B5%B4%E5%AE%A4%E6%8C%82%E9%92%A9%E6%9A%97%E8%97%8F%E6%91%84%E5%83%8F%E5%A4%B4%23&Refer=top) `857.3K 🔥`
 
-数据更新于 2021-05-01 19:53:58
+数据更新于 2021-05-01 20:32:10
 
 <!-- END -->
 
