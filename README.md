@@ -57,7 +57,7 @@
 1. [中国将与阿根廷合作生产国药新冠疫苗](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%B0%86%E4%B8%8E%E9%98%BF%E6%A0%B9%E5%BB%B7%E5%90%88%E4%BD%9C%E7%94%9F%E4%BA%A7%E5%9B%BD%E8%8D%AF%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `1.1M 🔥`
 1. [广东通报汕尾4人死亡事故原因](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E9%80%9A%E6%8A%A5%E6%B1%95%E5%B0%BE4%E4%BA%BA%E6%AD%BB%E4%BA%A1%E4%BA%8B%E6%95%85%E5%8E%9F%E5%9B%A0%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-05-05 22:54:06
+数据更新于 2021-05-05 23:24:01
 
 <!-- END -->
 
