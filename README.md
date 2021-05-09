@@ -54,10 +54,10 @@
 1. [shib](https://s.weibo.com/weibo?q=shib&Refer=top) `1.1M 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `1.1M 🔥`
 1. [印度23名新冠患者逃离医院](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A623%E5%90%8D%E6%96%B0%E5%86%A0%E6%82%A3%E8%80%85%E9%80%83%E7%A6%BB%E5%8C%BB%E9%99%A2&Refer=top) `1.1M 🔥`
+1. [光光退出厂牌](https://s.weibo.com/weibo?q=%23%E5%85%89%E5%85%89%E9%80%80%E5%87%BA%E5%8E%82%E7%89%8C%23&Refer=top) `1.1M 🔥`
 1. [贾母才是cp头子](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E6%AF%8D%E6%89%8D%E6%98%AFcp%E5%A4%B4%E5%AD%90%23&Refer=top) `1.1M 🔥`
-1. [韶关特斯拉事故逝者为退休民警](https://s.weibo.com/weibo?q=%E9%9F%B6%E5%85%B3%E7%89%B9%E6%96%AF%E6%8B%89%E4%BA%8B%E6%95%85%E9%80%9D%E8%80%85%E4%B8%BA%E9%80%80%E4%BC%91%E6%B0%91%E8%AD%A6&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-05-09 22:53:59
+数据更新于 2021-05-09 23:23:18
 
 <!-- END -->
 
