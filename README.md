@@ -7,8 +7,8 @@
 <!-- BEGIN -->
 
 1. [刘芸 如果我骂你妈你开心吗](https://s.weibo.com/weibo?q=%E5%88%98%E8%8A%B8%20%E5%A6%82%E6%9E%9C%E6%88%91%E9%AA%82%E4%BD%A0%E5%A6%88%E4%BD%A0%E5%BC%80%E5%BF%83%E5%90%97&Refer=top) `5.3M 🔥`
+1. [成都四十九中回应学生在校高坠离世](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%9B%9E%E5%BA%94%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E9%AB%98%E5%9D%A0%E7%A6%BB%E4%B8%96%23&Refer=top) `5.2M 🔥`
 1. [自动挡科目二考试减少为4项](https://s.weibo.com/weibo?q=%23%E8%87%AA%E5%8A%A8%E6%8C%A1%E7%A7%91%E7%9B%AE%E4%BA%8C%E8%80%83%E8%AF%95%E5%87%8F%E5%B0%91%E4%B8%BA4%E9%A1%B9%23&Refer=top) `4.7M 🔥`
-1. [成都四十九中回应学生在校高坠离世](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%9B%9E%E5%BA%94%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E9%AB%98%E5%9D%A0%E7%A6%BB%E4%B8%96%23&Refer=top) `4.4M 🔥`
 1. [窦骁亲吻何超莲](https://s.weibo.com/weibo?q=%23%E7%AA%A6%E9%AA%81%E4%BA%B2%E5%90%BB%E4%BD%95%E8%B6%85%E8%8E%B2%23&Refer=top) `3.7M 🔥`
 1. [林雪演戏被喂烂提子](https://s.weibo.com/weibo?q=%23%E6%9E%97%E9%9B%AA%E6%BC%94%E6%88%8F%E8%A2%AB%E5%96%82%E7%83%82%E6%8F%90%E5%AD%90%23&Refer=top) `2.8M 🔥`
 1. [李佳琦成立人间唢呐公司](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E7%90%A6%E6%88%90%E7%AB%8B%E4%BA%BA%E9%97%B4%E5%94%A2%E5%91%90%E5%85%AC%E5%8F%B8%23&Refer=top) `2.5M 🔥`
@@ -46,6 +46,7 @@
 1. [丈夫脑梗飞机多次延误女子大哭](https://s.weibo.com/weibo?q=%E4%B8%88%E5%A4%AB%E8%84%91%E6%A2%97%E9%A3%9E%E6%9C%BA%E5%A4%9A%E6%AC%A1%E5%BB%B6%E8%AF%AF%E5%A5%B3%E5%AD%90%E5%A4%A7%E5%93%AD&Refer=top) `1.4M 🔥`
 1. [西安一大学生因不当言论被退学](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%B8%80%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%9B%A0%E4%B8%8D%E5%BD%93%E8%A8%80%E8%AE%BA%E8%A2%AB%E9%80%80%E5%AD%A6%23&Refer=top) `1.3M 🔥`
 1. [三星耳机疑似引发耳部炎症](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E8%80%B3%E6%9C%BA%E7%96%91%E4%BC%BC%E5%BC%95%E5%8F%91%E8%80%B3%E9%83%A8%E7%82%8E%E7%97%87%23&Refer=top) `1.3M 🔥`
+1. [都市丽人被强制执行22万](https://s.weibo.com/weibo?q=%E9%83%BD%E5%B8%82%E4%B8%BD%E4%BA%BA%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C22%E4%B8%87&Refer=top) `1.3M 🔥`
 1. [Capper道歉](https://s.weibo.com/weibo?q=%23Capper%E9%81%93%E6%AD%89%23&Refer=top) `1.3M 🔥`
 1. [杨紫问董子健怎么减肥](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E9%97%AE%E8%91%A3%E5%AD%90%E5%81%A5%E6%80%8E%E4%B9%88%E5%87%8F%E8%82%A5%23&Refer=top) `1.3M 🔥`
 1. [柳岩 我从未降低自己的择偶标准](https://s.weibo.com/weibo?q=%E6%9F%B3%E5%B2%A9%20%E6%88%91%E4%BB%8E%E6%9C%AA%E9%99%8D%E4%BD%8E%E8%87%AA%E5%B7%B1%E7%9A%84%E6%8B%A9%E5%81%B6%E6%A0%87%E5%87%86&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [印度医护人员将遗体扔进河](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8C%BB%E6%8A%A4%E4%BA%BA%E5%91%98%E5%B0%86%E9%81%97%E4%BD%93%E6%89%94%E8%BF%9B%E6%B2%B3%23&Refer=top) `1.1M 🔥`
 1. [杨超越看Sunnee演唱会的样子](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E8%B6%85%E8%B6%8A%E7%9C%8BSunnee%E6%BC%94%E5%94%B1%E4%BC%9A%E7%9A%84%E6%A0%B7%E5%AD%90%23&Refer=top) `1.0M 🔥`
 1. [印度暴发罕见病菌致死率达50%](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E6%9A%B4%E5%8F%91%E7%BD%95%E8%A7%81%E7%97%85%E8%8F%8C%E8%87%B4%E6%AD%BB%E7%8E%87%E8%BE%BE50%25%23&Refer=top) `999.4K 🔥`
-1. [凤凰传奇唱歌稳的就跟假唱似的](https://s.weibo.com/weibo?q=%23%E5%87%A4%E5%87%B0%E4%BC%A0%E5%A5%87%E5%94%B1%E6%AD%8C%E7%A8%B3%E7%9A%84%E5%B0%B1%E8%B7%9F%E5%81%87%E5%94%B1%E4%BC%BC%E7%9A%84%23&Refer=top) `978.4K 🔥`
 
-数据更新于 2021-05-10 17:58:26
+数据更新于 2021-05-10 18:28:46
 
 <!-- END -->
 
