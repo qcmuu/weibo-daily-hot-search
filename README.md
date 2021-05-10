@@ -27,10 +27,11 @@
 1. [言承旭状态](https://s.weibo.com/weibo?q=%23%E8%A8%80%E6%89%BF%E6%97%AD%E7%8A%B6%E6%80%81%23&Refer=top) `2.2M 🔥`
 1. [美国宣布进入国家紧急状态](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%AE%A3%E5%B8%83%E8%BF%9B%E5%85%A5%E5%9B%BD%E5%AE%B6%E7%B4%A7%E6%80%A5%E7%8A%B6%E6%80%81%23&Refer=top) `2.1M 🔥`
 1. [金希澈说韩庚以前经常做炒饭给他吃](https://s.weibo.com/weibo?q=%23%E9%87%91%E5%B8%8C%E6%BE%88%E8%AF%B4%E9%9F%A9%E5%BA%9A%E4%BB%A5%E5%89%8D%E7%BB%8F%E5%B8%B8%E5%81%9A%E7%82%92%E9%A5%AD%E7%BB%99%E4%BB%96%E5%90%83%23&Refer=top) `2.1M 🔥`
+1. [赵丽颖直播状态](https://s.weibo.com/weibo?q=%E8%B5%B5%E4%B8%BD%E9%A2%96%E7%9B%B4%E6%92%AD%E7%8A%B6%E6%80%81&Refer=top) `1.9M 🔥`
 1. [猪坚强已入弥留](https://s.weibo.com/weibo?q=%E7%8C%AA%E5%9D%9A%E5%BC%BA%E5%B7%B2%E5%85%A5%E5%BC%A5%E7%95%99&Refer=top) `1.8M 🔥`
+1. [快乐大本营户外录制](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E6%88%B7%E5%A4%96%E5%BD%95%E5%88%B6%23&Refer=top) `1.8M 🔥`
 1. [高卿尘 这个房子太土了](https://s.weibo.com/weibo?q=%E9%AB%98%E5%8D%BF%E5%B0%98%20%E8%BF%99%E4%B8%AA%E6%88%BF%E5%AD%90%E5%A4%AA%E5%9C%9F%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [上海海关截获人体细胞247支](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%B5%B7%E5%85%B3%E6%88%AA%E8%8E%B7%E4%BA%BA%E4%BD%93%E7%BB%86%E8%83%9E247%E6%94%AF%23&Refer=top) `1.8M 🔥`
-1. [快乐大本营户外录制](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E6%88%B7%E5%A4%96%E5%BD%95%E5%88%B6%23&Refer=top) `1.7M 🔥`
 1. [宁夏一新冠感染者流调报告遭外泄](https://s.weibo.com/weibo?q=%E5%AE%81%E5%A4%8F%E4%B8%80%E6%96%B0%E5%86%A0%E6%84%9F%E6%9F%93%E8%80%85%E6%B5%81%E8%B0%83%E6%8A%A5%E5%91%8A%E9%81%AD%E5%A4%96%E6%B3%84&Refer=top) `1.7M 🔥`
 1. [INTO1分宿舍](https://s.weibo.com/weibo?q=%23INTO1%E5%88%86%E5%AE%BF%E8%88%8D%23&Refer=top) `1.7M 🔥`
 1. [作业帮猿辅导分别被处250万顶格罚款](https://s.weibo.com/weibo?q=%23%E4%BD%9C%E4%B8%9A%E5%B8%AE%E7%8C%BF%E8%BE%85%E5%AF%BC%E5%88%86%E5%88%AB%E8%A2%AB%E5%A4%84250%E4%B8%87%E9%A1%B6%E6%A0%BC%E7%BD%9A%E6%AC%BE%23&Refer=top) `1.6M 🔥`
@@ -55,9 +56,8 @@
 1. [Capper道歉](https://s.weibo.com/weibo?q=%23Capper%E9%81%93%E6%AD%89%23&Refer=top) `1.3M 🔥`
 1. [杨紫问董子健怎么减肥](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E9%97%AE%E8%91%A3%E5%AD%90%E5%81%A5%E6%80%8E%E4%B9%88%E5%87%8F%E8%82%A5%23&Refer=top) `1.3M 🔥`
 1. [柳岩 我从未降低自己的择偶标准](https://s.weibo.com/weibo?q=%E6%9F%B3%E5%B2%A9%20%E6%88%91%E4%BB%8E%E6%9C%AA%E9%99%8D%E4%BD%8E%E8%87%AA%E5%B7%B1%E7%9A%84%E6%8B%A9%E5%81%B6%E6%A0%87%E5%87%86&Refer=top) `1.3M 🔥`
-1. [大理一直升机坠入洱海](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%90%86%E4%B8%80%E7%9B%B4%E5%8D%87%E6%9C%BA%E5%9D%A0%E5%85%A5%E6%B4%B1%E6%B5%B7%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-05-10 21:37:33
+数据更新于 2021-05-10 21:51:53
 
 <!-- END -->
 
