@@ -6,8 +6,8 @@
 
 <!-- BEGIN -->
 
+1. [遇龙](https://s.weibo.com/weibo?q=%E9%81%87%E9%BE%99&Refer=top) `1.7M 🔥`
 1. [阿迪达斯被罚](https://s.weibo.com/weibo?q=%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E8%A2%AB%E7%BD%9A&Refer=top) `1.5M 🔥`
-1. [遇龙](https://s.weibo.com/weibo?q=%E9%81%87%E9%BE%99&Refer=top) `1.0M 🔥`
 1. [印度变异毒株已传至40多国和地区](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E5%B7%B2%E4%BC%A0%E8%87%B340%E5%A4%9A%E5%9B%BD%E5%92%8C%E5%9C%B0%E5%8C%BA%23&Refer=top) `876.3K 🔥`
 1. [利路修登上Pitchfork首页](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E7%99%BB%E4%B8%8APitchfork%E9%A6%96%E9%A1%B5%23&Refer=top) `847.7K 🔥`
 1. [杜海涛沈梦辰](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E6%B2%88%E6%A2%A6%E8%BE%B0%23&Refer=top) `830.2K 🔥`
@@ -55,9 +55,9 @@
 1. [艺人向粉丝商业集资将受惩戒](https://s.weibo.com/weibo?q=%23%E8%89%BA%E4%BA%BA%E5%90%91%E7%B2%89%E4%B8%9D%E5%95%86%E4%B8%9A%E9%9B%86%E8%B5%84%E5%B0%86%E5%8F%97%E6%83%A9%E6%88%92%23&Refer=top) `129.5K 🔥`
 1. [悬崖之上](https://s.weibo.com/weibo?q=%E6%82%AC%E5%B4%96%E4%B9%8B%E4%B8%8A&Refer=top) `123.3K 🔥`
 1. [实时监测消耗卡路里的智慧跑道](https://s.weibo.com/weibo?q=%E5%AE%9E%E6%97%B6%E7%9B%91%E6%B5%8B%E6%B6%88%E8%80%97%E5%8D%A1%E8%B7%AF%E9%87%8C%E7%9A%84%E6%99%BA%E6%85%A7%E8%B7%91%E9%81%93&Refer=top) `111.4K 🔥`
-1. [教授让太行山140万亩荒山由秃变绿](https://s.weibo.com/weibo?q=%23%E6%95%99%E6%8E%88%E8%AE%A9%E5%A4%AA%E8%A1%8C%E5%B1%B1140%E4%B8%87%E4%BA%A9%E8%8D%92%E5%B1%B1%E7%94%B1%E7%A7%83%E5%8F%98%E7%BB%BF%23&Refer=top) `100.2K 🔥`
+1. [警方通报成都四十九中学生坠亡](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%AD%A6%E7%94%9F%E5%9D%A0%E4%BA%A1%23&Refer=top) `108.4K 🔥`
 
-数据更新于 2021-05-13 06:56:59
+数据更新于 2021-05-13 07:28:09
 
 <!-- END -->
 
