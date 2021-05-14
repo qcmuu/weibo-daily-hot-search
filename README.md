@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [杨紫不知道开关游戏但都蒙对了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E4%B8%8D%E7%9F%A5%E9%81%93%E5%BC%80%E5%85%B3%E6%B8%B8%E6%88%8F%E4%BD%86%E9%83%BD%E8%92%99%E5%AF%B9%E4%BA%86%23&Refer=top) `1.6M 🔥`
+1. [张艺兴杨紫撞睡衣](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E6%9D%A8%E7%B4%AB%E6%92%9E%E7%9D%A1%E8%A1%A3%23&Refer=top) `1.4M 🔥`
 1. [张子枫遇到杨紫变话痨](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E9%81%87%E5%88%B0%E6%9D%A8%E7%B4%AB%E5%8F%98%E8%AF%9D%E7%97%A8%23&Refer=top) `1.1M 🔥`
 1. [齐齐哈尔咬死羊的动物不是狼是狗](https://s.weibo.com/weibo?q=%23%E9%BD%90%E9%BD%90%E5%93%88%E5%B0%94%E5%92%AC%E6%AD%BB%E7%BE%8A%E7%9A%84%E5%8A%A8%E7%89%A9%E4%B8%8D%E6%98%AF%E7%8B%BC%E6%98%AF%E7%8B%97%23&Refer=top) `1.1M 🔥`
-1. [张艺兴杨紫撞睡衣](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E6%9D%A8%E7%B4%AB%E6%92%9E%E7%9D%A1%E8%A1%A3%23&Refer=top) `894.8K 🔥`
 1. [驰援武汉送菜司机车祸离世](https://s.weibo.com/weibo?q=%23%E9%A9%B0%E6%8F%B4%E6%AD%A6%E6%B1%89%E9%80%81%E8%8F%9C%E5%8F%B8%E6%9C%BA%E8%BD%A6%E7%A5%B8%E7%A6%BB%E4%B8%96%23&Refer=top) `764.3K 🔥`
 1. [张艺兴叫杨紫姐姐](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%8F%AB%E6%9D%A8%E7%B4%AB%E5%A7%90%E5%A7%90%23&Refer=top) `746.2K 🔥`
 1. [苏州龙卷风](https://s.weibo.com/weibo?q=%E8%8B%8F%E5%B7%9E%E9%BE%99%E5%8D%B7%E9%A3%8E&Refer=top) `732.7K 🔥`
@@ -33,14 +33,15 @@
 1. [蔡徐坤社会摇](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E7%A4%BE%E4%BC%9A%E6%91%87%23&Refer=top) `371.1K 🔥`
 1. [如何看待男色经济](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E7%9C%8B%E5%BE%85%E7%94%B7%E8%89%B2%E7%BB%8F%E6%B5%8E%23&Refer=top) `370.0K 🔥`
 1. [韩国女团因广告手势被指厌男](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E5%A5%B3%E5%9B%A2%E5%9B%A0%E5%B9%BF%E5%91%8A%E6%89%8B%E5%8A%BF%E8%A2%AB%E6%8C%87%E5%8E%8C%E7%94%B7%23&Refer=top) `330.1K 🔥`
+1. [安徽新冠肺炎确诊病例增至5例](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E5%A2%9E%E8%87%B35%E4%BE%8B%23&Refer=top) `329.6K 🔥`
 1. [RNG C9](https://s.weibo.com/weibo?q=RNG%20C9&Refer=top) `313.5K 🔥`
 1. [高卿尘带快乐汉语书录拜冰](https://s.weibo.com/weibo?q=%23%E9%AB%98%E5%8D%BF%E5%B0%98%E5%B8%A6%E5%BF%AB%E4%B9%90%E6%B1%89%E8%AF%AD%E4%B9%A6%E5%BD%95%E6%8B%9C%E5%86%B0%23&Refer=top) `290.3K 🔥`
 1. [天问一号着陆火星前发来家书](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E9%97%AE%E4%B8%80%E5%8F%B7%E7%9D%80%E9%99%86%E7%81%AB%E6%98%9F%E5%89%8D%E5%8F%91%E6%9D%A5%E5%AE%B6%E4%B9%A6%23&Refer=top) `273.1K 🔥`
 1. [江西金色健康码](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%A5%BF%E9%87%91%E8%89%B2%E5%81%A5%E5%BA%B7%E7%A0%81%23&Refer=top) `263.8K 🔥`
 1. [山东健康码上线金色2.0版](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%81%A5%E5%BA%B7%E7%A0%81%E4%B8%8A%E7%BA%BF%E9%87%91%E8%89%B22.0%E7%89%88%23&Refer=top) `262.7K 🔥`
 1. [龚俊生图](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E7%94%9F%E5%9B%BE%23&Refer=top) `262.3K 🔥`
+1. [王霏霏对刘涛说我想亲你哦](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E9%9C%8F%E9%9C%8F%E5%AF%B9%E5%88%98%E6%B6%9B%E8%AF%B4%E6%88%91%E6%83%B3%E4%BA%B2%E4%BD%A0%E5%93%A6%23&Refer=top) `248.4K 🔥`
 1. [小女孩10秒攀爬12米岩壁](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%A5%B3%E5%AD%A910%E7%A7%92%E6%94%80%E7%88%AC12%E7%B1%B3%E5%B2%A9%E5%A3%81%23&Refer=top) `240.3K 🔥`
-1. [王霏霏对刘涛说我想亲你哦](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E9%9C%8F%E9%9C%8F%E5%AF%B9%E5%88%98%E6%B6%9B%E8%AF%B4%E6%88%91%E6%83%B3%E4%BA%B2%E4%BD%A0%E5%93%A6%23&Refer=top) `222.0K 🔥`
 1. [奔跑吧](https://s.weibo.com/weibo?q=%E5%A5%94%E8%B7%91%E5%90%A7&Refer=top) `220.1K 🔥`
 1. [杭州杀妻案被告当庭3次落泪](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%9D%80%E5%A6%BB%E6%A1%88%E8%A2%AB%E5%91%8A%E5%BD%93%E5%BA%AD3%E6%AC%A1%E8%90%BD%E6%B3%AA%23&Refer=top) `217.3K 🔥`
 1. [姐叫那英](https://s.weibo.com/weibo?q=%23%E5%A7%90%E5%8F%AB%E9%82%A3%E8%8B%B1%23&Refer=top) `210.6K 🔥`
@@ -51,13 +52,12 @@
 1. [宝藏歌手](https://s.weibo.com/weibo?q=%E5%AE%9D%E8%97%8F%E6%AD%8C%E6%89%8B&Refer=top) `180.9K 🔥`
 1. [写同人文被妈妈转到家族群](https://s.weibo.com/weibo?q=%23%E5%86%99%E5%90%8C%E4%BA%BA%E6%96%87%E8%A2%AB%E5%A6%88%E5%A6%88%E8%BD%AC%E5%88%B0%E5%AE%B6%E6%97%8F%E7%BE%A4%23&Refer=top) `170.7K 🔥`
 1. [西湖音乐节](https://s.weibo.com/weibo?q=%E8%A5%BF%E6%B9%96%E9%9F%B3%E4%B9%90%E8%8A%82&Refer=top) `168.9K 🔥`
+1. [武汉9级龙卷风多人受伤](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%899%E7%BA%A7%E9%BE%99%E5%8D%B7%E9%A3%8E%E5%A4%9A%E4%BA%BA%E5%8F%97%E4%BC%A4%23&Refer=top) `164.7K 🔥`
 1. [南京暴雨](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BA%AC%E6%9A%B4%E9%9B%A8&Refer=top) `162.6K 🔥`
 1. [GALA卡莎](https://s.weibo.com/weibo?q=GALA%E5%8D%A1%E8%8E%8E&Refer=top) `144.1K 🔥`
 1. [高校宿舍风扇大赏](https://s.weibo.com/weibo?q=%23%E9%AB%98%E6%A0%A1%E5%AE%BF%E8%88%8D%E9%A3%8E%E6%89%87%E5%A4%A7%E8%B5%8F%23&Refer=top) `140.5K 🔥`
-1. [MSI](https://s.weibo.com/weibo?q=MSI&Refer=top) `139.3K 🔥`
-1. [北京体育大学百米女飞人](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%BD%93%E8%82%B2%E5%A4%A7%E5%AD%A6%E7%99%BE%E7%B1%B3%E5%A5%B3%E9%A3%9E%E4%BA%BA%23&Refer=top) `103.7K 🔥`
 
-数据更新于 2021-05-15 06:58:18
+数据更新于 2021-05-15 07:30:14
 
 <!-- END -->
 
