@@ -38,11 +38,13 @@
 1. [这就是男人至死是少年吗](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E7%94%B7%E4%BA%BA%E8%87%B3%E6%AD%BB%E6%98%AF%E5%B0%91%E5%B9%B4%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [游戏主播酒店热水壶中撒尿](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E6%88%8F%E4%B8%BB%E6%92%AD%E9%85%92%E5%BA%97%E7%83%AD%E6%B0%B4%E5%A3%B6%E4%B8%AD%E6%92%92%E5%B0%BF%23&Refer=top) `1.1M 🔥`
 1. [美国网红怒斥马斯克打压比特币](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%BD%91%E7%BA%A2%E6%80%92%E6%96%A5%E9%A9%AC%E6%96%AF%E5%85%8B%E6%89%93%E5%8E%8B%E6%AF%94%E7%89%B9%E5%B8%81%23&Refer=top) `1.1M 🔥`
+1. [合肥确诊病例吕某行程轨迹公布](https://s.weibo.com/weibo?q=%23%E5%90%88%E8%82%A5%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E5%90%95%E6%9F%90%E8%A1%8C%E7%A8%8B%E8%BD%A8%E8%BF%B9%E5%85%AC%E5%B8%83%23&Refer=top) `1.1M 🔥`
 1. [刘丽千确诊粘液样脂肪肉瘤](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%B8%BD%E5%8D%83%E7%A1%AE%E8%AF%8A%E7%B2%98%E6%B6%B2%E6%A0%B7%E8%84%82%E8%82%AA%E8%82%89%E7%98%A4%23&Refer=top) `1.0M 🔥`
 1. [李若彤张丰毅健身合照](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8B%A5%E5%BD%A4%E5%BC%A0%E4%B8%B0%E6%AF%85%E5%81%A5%E8%BA%AB%E5%90%88%E7%85%A7%23&Refer=top) `998.8K 🔥`
 1. [钟南山称全球通过疫苗免疫需二到三年](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E7%A7%B0%E5%85%A8%E7%90%83%E9%80%9A%E8%BF%87%E7%96%AB%E8%8B%97%E5%85%8D%E7%96%AB%E9%9C%80%E4%BA%8C%E5%88%B0%E4%B8%89%E5%B9%B4%23&Refer=top) `980.6K 🔥`
 1. [新疆姑娘遵父愿坚持治沙16年](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E5%A7%91%E5%A8%98%E9%81%B5%E7%88%B6%E6%84%BF%E5%9D%9A%E6%8C%81%E6%B2%BB%E6%B2%9916%E5%B9%B4%23&Refer=top) `955.1K 🔥`
 1. [不要觉得单休和双休只差了一天](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E8%A7%89%E5%BE%97%E5%8D%95%E4%BC%91%E5%92%8C%E5%8F%8C%E4%BC%91%E5%8F%AA%E5%B7%AE%E4%BA%86%E4%B8%80%E5%A4%A9%23&Refer=top) `912.4K 🔥`
+1. [山东禹城虐妻致死案宣判](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E7%A6%B9%E5%9F%8E%E8%99%90%E5%A6%BB%E8%87%B4%E6%AD%BB%E6%A1%88%E5%AE%A3%E5%88%A4%23&Refer=top) `909.7K 🔥`
 1. [全国多地民警送反诈蛋](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E5%A4%9A%E5%9C%B0%E6%B0%91%E8%AD%A6%E9%80%81%E5%8F%8D%E8%AF%88%E8%9B%8B%23&Refer=top) `890.0K 🔥`
 1. [德云社门票](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E4%BA%91%E7%A4%BE%E9%97%A8%E7%A5%A8%23&Refer=top) `889.7K 🔥`
 1. [金莎 对不起耽误鲸鲨赚钱了](https://s.weibo.com/weibo?q=%E9%87%91%E8%8E%8E%20%E5%AF%B9%E4%B8%8D%E8%B5%B7%E8%80%BD%E8%AF%AF%E9%B2%B8%E9%B2%A8%E8%B5%9A%E9%92%B1%E4%BA%86&Refer=top) `881.6K 🔥`
@@ -54,10 +56,8 @@
 1. [成都将下架虚高价格房源](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%B0%86%E4%B8%8B%E6%9E%B6%E8%99%9A%E9%AB%98%E4%BB%B7%E6%A0%BC%E6%88%BF%E6%BA%90%23&Refer=top) `802.9K 🔥`
 1. [夏季防晒的正确打开方式](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E5%AD%A3%E9%98%B2%E6%99%92%E7%9A%84%E6%AD%A3%E7%A1%AE%E6%89%93%E5%BC%80%E6%96%B9%E5%BC%8F%23&Refer=top) `791.8K 🔥`
 1. [杭州杀妻碎尸案受害人家属发声](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%9D%80%E5%A6%BB%E7%A2%8E%E5%B0%B8%E6%A1%88%E5%8F%97%E5%AE%B3%E4%BA%BA%E5%AE%B6%E5%B1%9E%E5%8F%91%E5%A3%B0%23&Refer=top) `786.1K 🔥`
-1. [金韩彬开通微博](https://s.weibo.com/weibo?q=%23%E9%87%91%E9%9F%A9%E5%BD%AC%E5%BC%80%E9%80%9A%E5%BE%AE%E5%8D%9A%23&Refer=top) `786.0K 🔥`
-1. [山东禹城虐妻致死案宣判](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E7%A6%B9%E5%9F%8E%E8%99%90%E5%A6%BB%E8%87%B4%E6%AD%BB%E6%A1%88%E5%AE%A3%E5%88%A4%23&Refer=top) `782.7K 🔥`
 
-数据更新于 2021-05-14 16:28:42
+数据更新于 2021-05-14 16:54:19
 
 <!-- END -->
 
