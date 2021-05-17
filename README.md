@@ -55,9 +55,9 @@
 1. [RNG战胜PSG](https://s.weibo.com/weibo?q=%23RNG%E6%88%98%E8%83%9CPSG%23&Refer=top) `44.2K 🔥`
 1. [安徽特岗](https://s.weibo.com/weibo?q=%E5%AE%89%E5%BE%BD%E7%89%B9%E5%B2%97&Refer=top) `43.6K 🔥`
 1. [薇娅直播](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E7%9B%B4%E6%92%AD%23&Refer=top) `41.9K 🔥`
-1. [中国科学家观测到迄今最高能量光子](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B6%E8%A7%82%E6%B5%8B%E5%88%B0%E8%BF%84%E4%BB%8A%E6%9C%80%E9%AB%98%E8%83%BD%E9%87%8F%E5%85%89%E5%AD%90%23&Refer=top) `17.4K 🔥`
+1. [中国科学家观测到迄今最高能量光子](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E5%AE%B6%E8%A7%82%E6%B5%8B%E5%88%B0%E8%BF%84%E4%BB%8A%E6%9C%80%E9%AB%98%E8%83%BD%E9%87%8F%E5%85%89%E5%AD%90%23&Refer=top) `20.8K 🔥`
 
-数据更新于 2021-05-18 05:21:44
+数据更新于 2021-05-18 05:47:11
 
 <!-- END -->
 
