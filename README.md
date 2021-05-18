@@ -48,16 +48,16 @@
 1. [最有文化表情包](https://s.weibo.com/weibo?q=%23%E6%9C%80%E6%9C%89%E6%96%87%E5%8C%96%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `149.1K 🔥`
 1. [速度与激情中国发布会收到威胁取消](https://s.weibo.com/weibo?q=%23%E9%80%9F%E5%BA%A6%E4%B8%8E%E6%BF%80%E6%83%85%E4%B8%AD%E5%9B%BD%E5%8F%91%E5%B8%83%E4%BC%9A%E6%94%B6%E5%88%B0%E5%A8%81%E8%83%81%E5%8F%96%E6%B6%88%23&Refer=top) `148.8K 🔥`
 1. [五月的青春](https://s.weibo.com/weibo?q=%E4%BA%94%E6%9C%88%E7%9A%84%E9%9D%92%E6%98%A5&Refer=top) `147.7K 🔥`
+1. [网友为张艺兴掏鸡蛋打call](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E4%B8%BA%E5%BC%A0%E8%89%BA%E5%85%B4%E6%8E%8F%E9%B8%A1%E8%9B%8B%E6%89%93call%23&Refer=top) `144.2K 🔥`
+1. [张新成背头](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%B0%E6%88%90%E8%83%8C%E5%A4%B4%23&Refer=top) `143.8K 🔥`
 1. [小腿肌肉阻断术](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%85%BF%E8%82%8C%E8%82%89%E9%98%BB%E6%96%AD%E6%9C%AF%23&Refer=top) `138.5K 🔥`
 1. [求姻缘应该去什么寺](https://s.weibo.com/weibo?q=%E6%B1%82%E5%A7%BB%E7%BC%98%E5%BA%94%E8%AF%A5%E5%8E%BB%E4%BB%80%E4%B9%88%E5%AF%BA&Refer=top) `118.8K 🔥`
 1. [深圳应急管理回应赛格大厦摇晃](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E5%BA%94%E6%80%A5%E7%AE%A1%E7%90%86%E5%9B%9E%E5%BA%94%E8%B5%9B%E6%A0%BC%E5%A4%A7%E5%8E%A6%E6%91%87%E6%99%83%23&Refer=top) `97.9K 🔥`
 1. [XYG进总决赛](https://s.weibo.com/weibo?q=%23XYG%E8%BF%9B%E6%80%BB%E5%86%B3%E8%B5%9B%23&Refer=top) `94.8K 🔥`
 1. [小虎一拍四](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%99%8E%E4%B8%80%E6%8B%8D%E5%9B%9B&Refer=top) `91.7K 🔥`
 1. [张彬彬机场被安保架着走](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%9C%BA%E5%9C%BA%E8%A2%AB%E5%AE%89%E4%BF%9D%E6%9E%B6%E7%9D%80%E8%B5%B0%23&Refer=top) `79.3K 🔥`
-1. [深圳华强北赛格大楼](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E5%8D%8E%E5%BC%BA%E5%8C%97%E8%B5%9B%E6%A0%BC%E5%A4%A7%E6%A5%BC%23&Refer=top) `78.7K 🔥`
-1. [全国医保电子凭证用户突破6亿](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E5%8C%BB%E4%BF%9D%E7%94%B5%E5%AD%90%E5%87%AD%E8%AF%81%E7%94%A8%E6%88%B7%E7%AA%81%E7%A0%B46%E4%BA%BF%23&Refer=top) `76.2K 🔥`
 
-数据更新于 2021-05-19 00:42:47
+数据更新于 2021-05-19 01:33:52
 
 <!-- END -->
 
