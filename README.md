@@ -44,20 +44,20 @@
 1. [奥巴马谈UFO和外星人](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E5%B7%B4%E9%A9%AC%E8%B0%88UFO%E5%92%8C%E5%A4%96%E6%98%9F%E4%BA%BA%23&Refer=top) `1.1M 🔥`
 1. [陈建斌带着两个行李箱向蒋勤勤求婚](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%BB%BA%E6%96%8C%E5%B8%A6%E7%9D%80%E4%B8%A4%E4%B8%AA%E8%A1%8C%E6%9D%8E%E7%AE%B1%E5%90%91%E8%92%8B%E5%8B%A4%E5%8B%A4%E6%B1%82%E5%A9%9A%23&Refer=top) `1.0M 🔥`
 1. [邓紫棋爸爸熬过隔离期来见女儿](https://s.weibo.com/weibo?q=%23%E9%82%93%E7%B4%AB%E6%A3%8B%E7%88%B8%E7%88%B8%E7%86%AC%E8%BF%87%E9%9A%94%E7%A6%BB%E6%9C%9F%E6%9D%A5%E8%A7%81%E5%A5%B3%E5%84%BF%23&Refer=top) `1.0M 🔥`
+1. [中方对美国严重强迫劳动现象深表关切](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%AF%B9%E7%BE%8E%E5%9B%BD%E4%B8%A5%E9%87%8D%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E7%8E%B0%E8%B1%A1%E6%B7%B1%E8%A1%A8%E5%85%B3%E5%88%87%23&Refer=top) `1.0M 🔥`
 1. [只需打1针的新冠疫苗](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E9%9C%80%E6%89%931%E9%92%88%E7%9A%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `995.6K 🔥`
-1. [中方对美国严重强迫劳动现象深表关切](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%AF%B9%E7%BE%8E%E5%9B%BD%E4%B8%A5%E9%87%8D%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E7%8E%B0%E8%B1%A1%E6%B7%B1%E8%A1%A8%E5%85%B3%E5%88%87%23&Refer=top) `988.1K 🔥`
 1. [警方通报内蒙古文旅厅副厅长自杀](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%86%85%E8%92%99%E5%8F%A4%E6%96%87%E6%97%85%E5%8E%85%E5%89%AF%E5%8E%85%E9%95%BF%E8%87%AA%E6%9D%80%23&Refer=top) `957.4K 🔥`
 1. [爱奇艺CEO称会费涨价是行业必然趋势](https://s.weibo.com/weibo?q=%23%E7%88%B1%E5%A5%87%E8%89%BACEO%E7%A7%B0%E4%BC%9A%E8%B4%B9%E6%B6%A8%E4%BB%B7%E6%98%AF%E8%A1%8C%E4%B8%9A%E5%BF%85%E7%84%B6%E8%B6%8B%E5%8A%BF%23&Refer=top) `943.5K 🔥`
 1. [捷克总统就轰炸南联盟道歉](https://s.weibo.com/weibo?q=%23%E6%8D%B7%E5%85%8B%E6%80%BB%E7%BB%9F%E5%B0%B1%E8%BD%B0%E7%82%B8%E5%8D%97%E8%81%94%E7%9B%9F%E9%81%93%E6%AD%89%23&Refer=top) `937.2K 🔥`
+1. [全国现有22个中风险地区](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E7%8E%B0%E6%9C%8922%E4%B8%AA%E4%B8%AD%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA%23&Refer=top) `923.8K 🔥`
+1. [印度近千名医生在疫情中殉职](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E8%BF%91%E5%8D%83%E5%90%8D%E5%8C%BB%E7%94%9F%E5%9C%A8%E7%96%AB%E6%83%85%E4%B8%AD%E6%AE%89%E8%81%8C%23&Refer=top) `921.5K 🔥`
+1. [原来武林外传是反内卷前辈](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%AD%A6%E6%9E%97%E5%A4%96%E4%BC%A0%E6%98%AF%E5%8F%8D%E5%86%85%E5%8D%B7%E5%89%8D%E8%BE%88%23&Refer=top) `920.1K 🔥`
+1. [陆柯燃丸子头中国风造型](https://s.weibo.com/weibo?q=%23%E9%99%86%E6%9F%AF%E7%87%83%E4%B8%B8%E5%AD%90%E5%A4%B4%E4%B8%AD%E5%9B%BD%E9%A3%8E%E9%80%A0%E5%9E%8B%23&Refer=top) `918.5K 🔥`
 1. [林书豪不解为何无法重返NBA](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%B9%A6%E8%B1%AA%E4%B8%8D%E8%A7%A3%E4%B8%BA%E4%BD%95%E6%97%A0%E6%B3%95%E9%87%8D%E8%BF%94NBA%23&Refer=top) `892.9K 🔥`
 1. [清华附中辟谣双国籍可直通清华](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E9%99%84%E4%B8%AD%E8%BE%9F%E8%B0%A3%E5%8F%8C%E5%9B%BD%E7%B1%8D%E5%8F%AF%E7%9B%B4%E9%80%9A%E6%B8%85%E5%8D%8E%23&Refer=top) `889.7K 🔥`
 1. [文淇让刘敏涛长点心](https://s.weibo.com/weibo?q=%23%E6%96%87%E6%B7%87%E8%AE%A9%E5%88%98%E6%95%8F%E6%B6%9B%E9%95%BF%E7%82%B9%E5%BF%83%23&Refer=top) `864.9K 🔥`
-1. [宁艺卓在镜头前抖腿](https://s.weibo.com/weibo?q=%23%E5%AE%81%E8%89%BA%E5%8D%93%E5%9C%A8%E9%95%9C%E5%A4%B4%E5%89%8D%E6%8A%96%E8%85%BF%23&Refer=top) `838.4K 🔥`
-1. [内蒙古文旅厅副厅长李晓秋自杀身亡](https://s.weibo.com/weibo?q=%23%E5%86%85%E8%92%99%E5%8F%A4%E6%96%87%E6%97%85%E5%8E%85%E5%89%AF%E5%8E%85%E9%95%BF%E6%9D%8E%E6%99%93%E7%A7%8B%E8%87%AA%E6%9D%80%E8%BA%AB%E4%BA%A1%23&Refer=top) `816.3K 🔥`
-1. [郎平惠若琪进入国际排联](https://s.weibo.com/weibo?q=%23%E9%83%8E%E5%B9%B3%E6%83%A0%E8%8B%A5%E7%90%AA%E8%BF%9B%E5%85%A5%E5%9B%BD%E9%99%85%E6%8E%92%E8%81%94%23&Refer=top) `803.1K 🔥`
-1. [伊能静跟家人吵架会秒道歉](https://s.weibo.com/weibo?q=%23%E4%BC%8A%E8%83%BD%E9%9D%99%E8%B7%9F%E5%AE%B6%E4%BA%BA%E5%90%B5%E6%9E%B6%E4%BC%9A%E7%A7%92%E9%81%93%E6%AD%89%23&Refer=top) `796.5K 🔥`
 
-数据更新于 2021-05-19 19:37:16
+数据更新于 2021-05-19 19:49:18
 
 <!-- END -->
 
