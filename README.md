@@ -17,6 +17,7 @@
 1. [比特币大跌](https://s.weibo.com/weibo?q=%23%E6%AF%94%E7%89%B9%E5%B8%81%E5%A4%A7%E8%B7%8C%23&Refer=top) `730.5K 🔥`
 1. [泰国一县打疫苗抽奖送牛](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9B%BD%E4%B8%80%E5%8E%BF%E6%89%93%E7%96%AB%E8%8B%97%E6%8A%BD%E5%A5%96%E9%80%81%E7%89%9B%23&Refer=top) `728.9K 🔥`
 1. [刘烨助理](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%8A%A9%E7%90%86%23&Refer=top) `728.8K 🔥`
+1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `707.0K 🔥`
 1. [杨紫算命全靠编](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E7%AE%97%E5%91%BD%E5%85%A8%E9%9D%A0%E7%BC%96%23&Refer=top) `695.5K 🔥`
 1. [山东大姐回应收养流浪狗负债30万](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%A4%A7%E5%A7%90%E5%9B%9E%E5%BA%94%E6%94%B6%E5%85%BB%E6%B5%81%E6%B5%AA%E7%8B%97%E8%B4%9F%E5%80%BA30%E4%B8%87%23&Refer=top) `695.2K 🔥`
 1. [INTO1抱着力丸人形立牌入场](https://s.weibo.com/weibo?q=%23INTO1%E6%8A%B1%E7%9D%80%E5%8A%9B%E4%B8%B8%E4%BA%BA%E5%BD%A2%E7%AB%8B%E7%89%8C%E5%85%A5%E5%9C%BA%23&Refer=top) `693.3K 🔥`
@@ -55,9 +56,8 @@
 1. [深圳盐田新增1例无症状感染者](https://s.weibo.com/weibo?q=%E6%B7%B1%E5%9C%B3%E7%9B%90%E7%94%B0%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85&Refer=top) `182.0K 🔥`
 1. [迪丽热巴旧照](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E6%97%A7%E7%85%A7%23&Refer=top) `181.1K 🔥`
 1. [RNG PSG](https://s.weibo.com/weibo?q=%23RNG%20PSG%23&Refer=top) `180.2K 🔥`
-1. [夏天西瓜的正确打开方式](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E5%A4%A9%E8%A5%BF%E7%93%9C%E7%9A%84%E6%AD%A3%E7%A1%AE%E6%89%93%E5%BC%80%E6%96%B9%E5%BC%8F%23&Refer=top) `143.2K 🔥`
 
-数据更新于 2021-05-22 01:55:30
+数据更新于 2021-05-22 02:44:55
 
 <!-- END -->
 
