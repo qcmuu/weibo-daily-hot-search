@@ -46,18 +46,18 @@
 1. [中年危机到底可怕在哪里](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B9%B4%E5%8D%B1%E6%9C%BA%E5%88%B0%E5%BA%95%E5%8F%AF%E6%80%95%E5%9C%A8%E5%93%AA%E9%87%8C%23&Refer=top) `297.7K 🔥`
 1. [小虎的酒桶](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%99%8E%E7%9A%84%E9%85%92%E6%A1%B6&Refer=top) `248.3K 🔥`
 1. [顶楼第三季路透](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E7%AC%AC%E4%B8%89%E5%AD%A3%E8%B7%AF%E9%80%8F%23&Refer=top) `243.7K 🔥`
+1. [全球最大铜生产商近40%产量面临风险](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E6%9C%80%E5%A4%A7%E9%93%9C%E7%94%9F%E4%BA%A7%E5%95%86%E8%BF%9140%25%E4%BA%A7%E9%87%8F%E9%9D%A2%E4%B8%B4%E9%A3%8E%E9%99%A9%23&Refer=top) `231.4K 🔥`
 1. [MSI](https://s.weibo.com/weibo?q=MSI&Refer=top) `226.2K 🔥`
 1. [哈里斯和文在寅握手后在裤子上擦手](https://s.weibo.com/weibo?q=%23%E5%93%88%E9%87%8C%E6%96%AF%E5%92%8C%E6%96%87%E5%9C%A8%E5%AF%85%E6%8F%A1%E6%89%8B%E5%90%8E%E5%9C%A8%E8%A3%A4%E5%AD%90%E4%B8%8A%E6%93%A6%E6%89%8B%23&Refer=top) `216.3K 🔥`
 1. [绿色的雨](https://s.weibo.com/weibo?q=%E7%BB%BF%E8%89%B2%E7%9A%84%E9%9B%A8&Refer=top) `213.4K 🔥`
 1. [漫威总裁承认古一法师选角错误](https://s.weibo.com/weibo?q=%23%E6%BC%AB%E5%A8%81%E6%80%BB%E8%A3%81%E6%89%BF%E8%AE%A4%E5%8F%A4%E4%B8%80%E6%B3%95%E5%B8%88%E9%80%89%E8%A7%92%E9%94%99%E8%AF%AF%23&Refer=top) `206.5K 🔥`
-1. [全球最大铜生产商近40%产量面临风险](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E6%9C%80%E5%A4%A7%E9%93%9C%E7%94%9F%E4%BA%A7%E5%95%86%E8%BF%9140%25%E4%BA%A7%E9%87%8F%E9%9D%A2%E4%B8%B4%E9%A3%8E%E9%99%A9%23&Refer=top) `206.2K 🔥`
 1. [恰好是少年延播](https://s.weibo.com/weibo?q=%23%E6%81%B0%E5%A5%BD%E6%98%AF%E5%B0%91%E5%B9%B4%E5%BB%B6%E6%92%AD%23&Refer=top) `205.8K 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `180.3K 🔥`
 1. [吊脖子健身恐致高位截瘫](https://s.weibo.com/weibo?q=%23%E5%90%8A%E8%84%96%E5%AD%90%E5%81%A5%E8%BA%AB%E6%81%90%E8%87%B4%E9%AB%98%E4%BD%8D%E6%88%AA%E7%98%AB%23&Refer=top) `179.2K 🔥`
 1. [峨眉山万佛顶5月27日起重新开放](https://s.weibo.com/weibo?q=%23%E5%B3%A8%E7%9C%89%E5%B1%B1%E4%B8%87%E4%BD%9B%E9%A1%B65%E6%9C%8827%E6%97%A5%E8%B5%B7%E9%87%8D%E6%96%B0%E5%BC%80%E6%94%BE%23&Refer=top) `177.8K 🔥`
 1. [窦骁 温柔](https://s.weibo.com/weibo?q=%E7%AA%A6%E9%AA%81%20%E6%B8%A9%E6%9F%94&Refer=top) `169.0K 🔥`
 
-数据更新于 2021-05-24 06:50:12
+数据更新于 2021-05-24 06:58:57
 
 <!-- END -->
 
