@@ -57,7 +57,7 @@
 1. [中国盲人张洪登顶珠峰](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%9B%B2%E4%BA%BA%E5%BC%A0%E6%B4%AA%E7%99%BB%E9%A1%B6%E7%8F%A0%E5%B3%B0%23&Refer=top) `1.2M 🔥`
 1. [银川马拉松赛将建立赛事熔断机制](https://s.weibo.com/weibo?q=%23%E9%93%B6%E5%B7%9D%E9%A9%AC%E6%8B%89%E6%9D%BE%E8%B5%9B%E5%B0%86%E5%BB%BA%E7%AB%8B%E8%B5%9B%E4%BA%8B%E7%86%94%E6%96%AD%E6%9C%BA%E5%88%B6%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-05-24 23:27:12
+数据更新于 2021-05-24 23:58:58
 
 <!-- END -->
 
