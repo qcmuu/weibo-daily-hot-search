@@ -57,7 +57,7 @@
 1. [建议免费为中学女生接种HPV疫苗](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%85%8D%E8%B4%B9%E4%B8%BA%E4%B8%AD%E5%AD%A6%E5%A5%B3%E7%94%9F%E6%8E%A5%E7%A7%8DHPV%E7%96%AB%E8%8B%97%23&Refer=top) `194.2K 🔥`
 1. [疲劳驾驶引发惨烈车祸](https://s.weibo.com/weibo?q=%23%E7%96%B2%E5%8A%B3%E9%A9%BE%E9%A9%B6%E5%BC%95%E5%8F%91%E6%83%A8%E7%83%88%E8%BD%A6%E7%A5%B8%23&Refer=top) `180.0K 🔥`
 
-数据更新于 2021-06-03 04:58:48
+数据更新于 2021-06-03 06:14:40
 
 <!-- END -->
 
