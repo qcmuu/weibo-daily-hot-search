@@ -13,6 +13,7 @@
 1. [女子超市偷4000元巧克力只嚼不咽](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%B6%85%E5%B8%82%E5%81%B74000%E5%85%83%E5%B7%A7%E5%85%8B%E5%8A%9B%E5%8F%AA%E5%9A%BC%E4%B8%8D%E5%92%BD%23&Refer=top) `765.6K 🔥`
 1. [被公司要求转发朋友圈](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%85%AC%E5%8F%B8%E8%A6%81%E6%B1%82%E8%BD%AC%E5%8F%91%E6%9C%8B%E5%8F%8B%E5%9C%88%23&Refer=top) `680.2K 🔥`
 1. [明天都给我好好考](https://s.weibo.com/weibo?q=%23%E6%98%8E%E5%A4%A9%E9%83%BD%E7%BB%99%E6%88%91%E5%A5%BD%E5%A5%BD%E8%80%83%23&Refer=top) `599.9K 🔥`
+1. [面具男孩要高考啦](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E5%85%B7%E7%94%B7%E5%AD%A9%E8%A6%81%E9%AB%98%E8%80%83%E5%95%A6%23&Refer=top) `542.0K 🔥`
 1. [高三老师入住学生宿舍全程伴考](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E8%80%81%E5%B8%88%E5%85%A5%E4%BD%8F%E5%AD%A6%E7%94%9F%E5%AE%BF%E8%88%8D%E5%85%A8%E7%A8%8B%E4%BC%B4%E8%80%83%23&Refer=top) `510.1K 🔥`
 1. [看把小象给摔的](https://s.weibo.com/weibo?q=%23%E7%9C%8B%E6%8A%8A%E5%B0%8F%E8%B1%A1%E7%BB%99%E6%91%94%E7%9A%84%23&Refer=top) `491.2K 🔥`
 1. [黑龙江鸡西煤矿事故失联8人全部幸存](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E9%B8%A1%E8%A5%BF%E7%85%A4%E7%9F%BF%E4%BA%8B%E6%95%85%E5%A4%B1%E8%81%948%E4%BA%BA%E5%85%A8%E9%83%A8%E5%B9%B8%E5%AD%98%23&Refer=top) `467.4K 🔥`
@@ -45,19 +46,18 @@
 1. [觉醒年代](https://s.weibo.com/weibo?q=%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3&Refer=top) `332.8K 🔥`
 1. [二十岁就参透生死是啥体验](https://s.weibo.com/weibo?q=%23%E4%BA%8C%E5%8D%81%E5%B2%81%E5%B0%B1%E5%8F%82%E9%80%8F%E7%94%9F%E6%AD%BB%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `330.7K 🔥`
 1. [论文人在导师面前有多卑微](https://s.weibo.com/weibo?q=%23%E8%AE%BA%E6%96%87%E4%BA%BA%E5%9C%A8%E5%AF%BC%E5%B8%88%E9%9D%A2%E5%89%8D%E6%9C%89%E5%A4%9A%E5%8D%91%E5%BE%AE%23&Refer=top) `319.8K 🔥`
+1. [加好友是想看你们越过越好](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%A5%BD%E5%8F%8B%E6%98%AF%E6%83%B3%E7%9C%8B%E4%BD%A0%E4%BB%AC%E8%B6%8A%E8%BF%87%E8%B6%8A%E5%A5%BD%23&Refer=top) `309.3K 🔥`
 1. [恰好是少年](https://s.weibo.com/weibo?q=%E6%81%B0%E5%A5%BD%E6%98%AF%E5%B0%91%E5%B9%B4&Refer=top) `279.2K 🔥`
 1. [张哲瀚ins更新](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9Ains%E6%9B%B4%E6%96%B0%23&Refer=top) `263.0K 🔥`
 1. [3个动作消除富贵包](https://s.weibo.com/weibo?q=%233%E4%B8%AA%E5%8A%A8%E4%BD%9C%E6%B6%88%E9%99%A4%E5%AF%8C%E8%B4%B5%E5%8C%85%23&Refer=top) `258.7K 🔥`
 1. [宁夏女生教室戏腔清唱自如](https://s.weibo.com/weibo?q=%23%E5%AE%81%E5%A4%8F%E5%A5%B3%E7%94%9F%E6%95%99%E5%AE%A4%E6%88%8F%E8%85%94%E6%B8%85%E5%94%B1%E8%87%AA%E5%A6%82%23&Refer=top) `254.7K 🔥`
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `254.6K 🔥`
-1. [加好友是想看你们越过越好](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%A5%BD%E5%8F%8B%E6%98%AF%E6%83%B3%E7%9C%8B%E4%BD%A0%E4%BB%AC%E8%B6%8A%E8%BF%87%E8%B6%8A%E5%A5%BD%23&Refer=top) `241.5K 🔥`
+1. [袁咏琳小时候曾被霸凌](https://s.weibo.com/weibo?q=%E8%A2%81%E5%92%8F%E7%90%B3%E5%B0%8F%E6%97%B6%E5%80%99%E6%9B%BE%E8%A2%AB%E9%9C%B8%E5%87%8C&Refer=top) `251.5K 🔥`
 1. [与君初相识剧组杀青](https://s.weibo.com/weibo?q=%23%E4%B8%8E%E5%90%9B%E5%88%9D%E7%9B%B8%E8%AF%86%E5%89%A7%E7%BB%84%E6%9D%80%E9%9D%92%23&Refer=top) `237.1K 🔥`
 1. [女孩高考前坐末班车给司机留纸条](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E9%AB%98%E8%80%83%E5%89%8D%E5%9D%90%E6%9C%AB%E7%8F%AD%E8%BD%A6%E7%BB%99%E5%8F%B8%E6%9C%BA%E7%95%99%E7%BA%B8%E6%9D%A1%23&Refer=top) `196.7K 🔥`
 1. [nv夺冠](https://s.weibo.com/weibo?q=%23nv%E5%A4%BA%E5%86%A0%23&Refer=top) `182.0K 🔥`
-1. [迪丽热巴驭鲛记路透](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E9%A9%AD%E9%B2%9B%E8%AE%B0%E8%B7%AF%E9%80%8F%23&Refer=top) `181.2K 🔥`
-1. [近视和老花不能相互抵消](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E5%92%8C%E8%80%81%E8%8A%B1%E4%B8%8D%E8%83%BD%E7%9B%B8%E4%BA%92%E6%8A%B5%E6%B6%88%23&Refer=top) `177.1K 🔥`
 
-数据更新于 2021-06-07 00:17:44
+数据更新于 2021-06-07 01:52:29
 
 <!-- END -->
 
