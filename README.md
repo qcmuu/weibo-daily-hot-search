@@ -7,6 +7,7 @@
 <!-- BEGIN -->
 
 1. [弟弟藏了姐姐高考准考证](https://s.weibo.com/weibo?q=%23%E5%BC%9F%E5%BC%9F%E8%97%8F%E4%BA%86%E5%A7%90%E5%A7%90%E9%AB%98%E8%80%83%E5%87%86%E8%80%83%E8%AF%81%23&Refer=top) `7.1M 🔥`
+1. [高考平均680分的婚礼](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%B9%B3%E5%9D%87680%E5%88%86%E7%9A%84%E5%A9%9A%E7%A4%BC%23&Refer=top) `5.8M 🔥`
 1. [汪小菲 不要再占着公共资源了](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%20%E4%B8%8D%E8%A6%81%E5%86%8D%E5%8D%A0%E7%9D%80%E5%85%AC%E5%85%B1%E8%B5%84%E6%BA%90%E4%BA%86%23&Refer=top) `5.8M 🔥`
 1. [武汉作弊考生同考场学生发声](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%BD%9C%E5%BC%8A%E8%80%83%E7%94%9F%E5%90%8C%E8%80%83%E5%9C%BA%E5%AD%A6%E7%94%9F%E5%8F%91%E5%A3%B0%23&Refer=top) `5.7M 🔥`
 1. [刘涛 我哪有时间对所有人好](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B6%9B%20%E6%88%91%E5%93%AA%E6%9C%89%E6%97%B6%E9%97%B4%E5%AF%B9%E6%89%80%E6%9C%89%E4%BA%BA%E5%A5%BD%23&Refer=top) `4.8M 🔥`
@@ -48,16 +49,15 @@
 1. [王一博回归街舞4](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%9B%9E%E5%BD%92%E8%A1%97%E8%88%9E4%23&Refer=top) `1.2M 🔥`
 1. [毛不易 不说一句送我走](https://s.weibo.com/weibo?q=%E6%AF%9B%E4%B8%8D%E6%98%93%20%E4%B8%8D%E8%AF%B4%E4%B8%80%E5%8F%A5%E9%80%81%E6%88%91%E8%B5%B0&Refer=top) `1.2M 🔥`
 1. [周冬雨演技](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E6%BC%94%E6%8A%80%23&Refer=top) `1.1M 🔥`
+1. [外交部回应日本资助中国个人赴日考察](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E8%B5%84%E5%8A%A9%E4%B8%AD%E5%9B%BD%E4%B8%AA%E4%BA%BA%E8%B5%B4%E6%97%A5%E8%80%83%E5%AF%9F&Refer=top) `1.1M 🔥`
 1. [高考结束](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%23&Refer=top) `1.1M 🔥`
 1. [美国10岁男童在家中被窗外子弹射死](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD10%E5%B2%81%E7%94%B7%E7%AB%A5%E5%9C%A8%E5%AE%B6%E4%B8%AD%E8%A2%AB%E7%AA%97%E5%A4%96%E5%AD%90%E5%BC%B9%E5%B0%84%E6%AD%BB%23&Refer=top) `1.1M 🔥`
 1. [上海查处21家假CoCo奶茶店](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%9F%A5%E5%A4%8421%E5%AE%B6%E5%81%87CoCo%E5%A5%B6%E8%8C%B6%E5%BA%97%23&Refer=top) `1.1M 🔥`
 1. [清华毕业生教育孩子的方式](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E6%AF%95%E4%B8%9A%E7%94%9F%E6%95%99%E8%82%B2%E5%AD%A9%E5%AD%90%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `1.1M 🔥`
 1. [元气森林称中国消费行业和芯片一样落后](https://s.weibo.com/weibo?q=%23%E5%85%83%E6%B0%94%E6%A3%AE%E6%9E%97%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%B6%88%E8%B4%B9%E8%A1%8C%E4%B8%9A%E5%92%8C%E8%8A%AF%E7%89%87%E4%B8%80%E6%A0%B7%E8%90%BD%E5%90%8E%23&Refer=top) `1.0M 🔥`
 1. [艾福杰尼写高考英语作文](https://s.weibo.com/weibo?q=%23%E8%89%BE%E7%A6%8F%E6%9D%B0%E5%B0%BC%E5%86%99%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD%E4%BD%9C%E6%96%87%23&Refer=top) `986.5K 🔥`
-1. [朱珠演的蓝心洁](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E7%8F%A0%E6%BC%94%E7%9A%84%E8%93%9D%E5%BF%83%E6%B4%81%23&Refer=top) `970.5K 🔥`
-1. [小象挤在大象中间睡觉](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%B1%A1%E6%8C%A4%E5%9C%A8%E5%A4%A7%E8%B1%A1%E4%B8%AD%E9%97%B4%E7%9D%A1%E8%A7%89%23&Refer=top) `960.2K 🔥`
 
-数据更新于 2021-06-09 17:21:02
+数据更新于 2021-06-09 17:48:57
 
 <!-- END -->
 
