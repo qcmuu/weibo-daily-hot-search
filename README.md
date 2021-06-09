@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [弟弟藏了姐姐高考准考证](https://s.weibo.com/weibo?q=%23%E5%BC%9F%E5%BC%9F%E8%97%8F%E4%BA%86%E5%A7%90%E5%A7%90%E9%AB%98%E8%80%83%E5%87%86%E8%80%83%E8%AF%81%23&Refer=top) `7.1M 🔥`
-1. [高考平均680分的婚礼](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%B9%B3%E5%9D%87680%E5%88%86%E7%9A%84%E5%A9%9A%E7%A4%BC%23&Refer=top) `5.8M 🔥`
+1. [高考平均680分的婚礼](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%B9%B3%E5%9D%87680%E5%88%86%E7%9A%84%E5%A9%9A%E7%A4%BC%23&Refer=top) `5.9M 🔥`
 1. [汪小菲 不要再占着公共资源了](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%20%E4%B8%8D%E8%A6%81%E5%86%8D%E5%8D%A0%E7%9D%80%E5%85%AC%E5%85%B1%E8%B5%84%E6%BA%90%E4%BA%86%23&Refer=top) `5.8M 🔥`
 1. [武汉作弊考生同考场学生发声](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%BD%9C%E5%BC%8A%E8%80%83%E7%94%9F%E5%90%8C%E8%80%83%E5%9C%BA%E5%AD%A6%E7%94%9F%E5%8F%91%E5%A3%B0%23&Refer=top) `5.7M 🔥`
 1. [刘涛 我哪有时间对所有人好](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B6%9B%20%E6%88%91%E5%93%AA%E6%9C%89%E6%97%B6%E9%97%B4%E5%AF%B9%E6%89%80%E6%9C%89%E4%BA%BA%E5%A5%BD%23&Refer=top) `4.8M 🔥`
@@ -38,6 +38,7 @@
 1. [大S妈妈否认女儿与张兰不合](https://s.weibo.com/weibo?q=%23%E5%A4%A7S%E5%A6%88%E5%A6%88%E5%90%A6%E8%AE%A4%E5%A5%B3%E5%84%BF%E4%B8%8E%E5%BC%A0%E5%85%B0%E4%B8%8D%E5%90%88%23&Refer=top) `1.6M 🔥`
 1. [掌掴马克龙男子身份曝光](https://s.weibo.com/weibo?q=%23%E6%8E%8C%E6%8E%B4%E9%A9%AC%E5%85%8B%E9%BE%99%E7%94%B7%E5%AD%90%E8%BA%AB%E4%BB%BD%E6%9B%9D%E5%85%89%23&Refer=top) `1.5M 🔥`
 1. [已婚男社死现场](https://s.weibo.com/weibo?q=%23%E5%B7%B2%E5%A9%9A%E7%94%B7%E7%A4%BE%E6%AD%BB%E7%8E%B0%E5%9C%BA%23&Refer=top) `1.5M 🔥`
+1. [姐姐辟谣弟弟藏自己准考证](https://s.weibo.com/weibo?q=%23%E5%A7%90%E5%A7%90%E8%BE%9F%E8%B0%A3%E5%BC%9F%E5%BC%9F%E8%97%8F%E8%87%AA%E5%B7%B1%E5%87%86%E8%80%83%E8%AF%81%23&Refer=top) `1.5M 🔥`
 1. [钱学森的入党申请只有寥寥数句](https://s.weibo.com/weibo?q=%23%E9%92%B1%E5%AD%A6%E6%A3%AE%E7%9A%84%E5%85%A5%E5%85%9A%E7%94%B3%E8%AF%B7%E5%8F%AA%E6%9C%89%E5%AF%A5%E5%AF%A5%E6%95%B0%E5%8F%A5%23&Refer=top) `1.4M 🔥`
 1. [中央财经大学通报男生女厕内偷拍](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E8%B4%A2%E7%BB%8F%E5%A4%A7%E5%AD%A6%E9%80%9A%E6%8A%A5%E7%94%B7%E7%94%9F%E5%A5%B3%E5%8E%95%E5%86%85%E5%81%B7%E6%8B%8D%23&Refer=top) `1.4M 🔥`
 1. [考生凌晨手术早上参加高考](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E5%87%8C%E6%99%A8%E6%89%8B%E6%9C%AF%E6%97%A9%E4%B8%8A%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%23&Refer=top) `1.4M 🔥`
@@ -51,13 +52,12 @@
 1. [周冬雨演技](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E6%BC%94%E6%8A%80%23&Refer=top) `1.1M 🔥`
 1. [外交部回应日本资助中国个人赴日考察](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E8%B5%84%E5%8A%A9%E4%B8%AD%E5%9B%BD%E4%B8%AA%E4%BA%BA%E8%B5%B4%E6%97%A5%E8%80%83%E5%AF%9F&Refer=top) `1.1M 🔥`
 1. [高考结束](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%23&Refer=top) `1.1M 🔥`
+1. [这生日突然就不想过了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E7%94%9F%E6%97%A5%E7%AA%81%E7%84%B6%E5%B0%B1%E4%B8%8D%E6%83%B3%E8%BF%87%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [美国10岁男童在家中被窗外子弹射死](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD10%E5%B2%81%E7%94%B7%E7%AB%A5%E5%9C%A8%E5%AE%B6%E4%B8%AD%E8%A2%AB%E7%AA%97%E5%A4%96%E5%AD%90%E5%BC%B9%E5%B0%84%E6%AD%BB%23&Refer=top) `1.1M 🔥`
 1. [上海查处21家假CoCo奶茶店](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%9F%A5%E5%A4%8421%E5%AE%B6%E5%81%87CoCo%E5%A5%B6%E8%8C%B6%E5%BA%97%23&Refer=top) `1.1M 🔥`
 1. [清华毕业生教育孩子的方式](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E6%AF%95%E4%B8%9A%E7%94%9F%E6%95%99%E8%82%B2%E5%AD%A9%E5%AD%90%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `1.1M 🔥`
-1. [元气森林称中国消费行业和芯片一样落后](https://s.weibo.com/weibo?q=%23%E5%85%83%E6%B0%94%E6%A3%AE%E6%9E%97%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%B6%88%E8%B4%B9%E8%A1%8C%E4%B8%9A%E5%92%8C%E8%8A%AF%E7%89%87%E4%B8%80%E6%A0%B7%E8%90%BD%E5%90%8E%23&Refer=top) `1.0M 🔥`
-1. [艾福杰尼写高考英语作文](https://s.weibo.com/weibo?q=%23%E8%89%BE%E7%A6%8F%E6%9D%B0%E5%B0%BC%E5%86%99%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD%E4%BD%9C%E6%96%87%23&Refer=top) `986.5K 🔥`
 
-数据更新于 2021-06-09 17:48:57
+数据更新于 2021-06-09 17:59:12
 
 <!-- END -->
 
