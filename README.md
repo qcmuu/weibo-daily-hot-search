@@ -55,9 +55,9 @@
 1. [苏炳添在短跑界是什么水平](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E5%9C%A8%E7%9F%AD%E8%B7%91%E7%95%8C%E6%98%AF%E4%BB%80%E4%B9%88%E6%B0%B4%E5%B9%B3%23&Refer=top) `200.2K 🔥`
 1. [用HR的方式拒绝HR](https://s.weibo.com/weibo?q=%23%E7%94%A8HR%E7%9A%84%E6%96%B9%E5%BC%8F%E6%8B%92%E7%BB%9DHR%23&Refer=top) `199.1K 🔥`
 1. [BOSS直聘登陆纳斯达克](https://s.weibo.com/weibo?q=%23BOSS%E7%9B%B4%E8%81%98%E7%99%BB%E9%99%86%E7%BA%B3%E6%96%AF%E8%BE%BE%E5%85%8B%23&Refer=top) `194.9K 🔥`
-1. [小伙做品虾师一年吃掉3吨小龙虾](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E5%81%9A%E5%93%81%E8%99%BE%E5%B8%88%E4%B8%80%E5%B9%B4%E5%90%83%E6%8E%893%E5%90%A8%E5%B0%8F%E9%BE%99%E8%99%BE%23&Refer=top) `183.7K 🔥`
+1. [国足5比0马尔代夫](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B35%E6%AF%940%E9%A9%AC%E5%B0%94%E4%BB%A3%E5%A4%AB&Refer=top) `190.7K 🔥`
 
-数据更新于 2021-06-12 05:35:53
+数据更新于 2021-06-12 05:49:24
 
 <!-- END -->
 
