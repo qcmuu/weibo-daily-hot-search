@@ -15,16 +15,17 @@
 1. [温州疫情](https://s.weibo.com/weibo?q=%E6%B8%A9%E5%B7%9E%E7%96%AB%E6%83%85&Refer=top) `1.0M 🔥`
 1. [英语四级](https://s.weibo.com/weibo?q=%E8%8B%B1%E8%AF%AD%E5%9B%9B%E7%BA%A7&Refer=top) `1.0M 🔥`
 1. [磊枫](https://s.weibo.com/weibo?q=%E7%A3%8A%E6%9E%AB&Refer=top) `960.8K 🔥`
+1. [刘昊然敲车窗](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E6%95%B2%E8%BD%A6%E7%AA%97%23&Refer=top) `934.7K 🔥`
 1. [一套139平房子用60万能装修成什么样](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%A5%97139%E5%B9%B3%E6%88%BF%E5%AD%90%E7%94%A860%E4%B8%87%E8%83%BD%E8%A3%85%E4%BF%AE%E6%88%90%E4%BB%80%E4%B9%88%E6%A0%B7%23&Refer=top) `895.6K 🔥`
-1. [刘昊然敲车窗](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E6%95%B2%E8%BD%A6%E7%AA%97%23&Refer=top) `813.1K 🔥`
+1. [有需要打疫苗的喵喵喵吗](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%9C%80%E8%A6%81%E6%89%93%E7%96%AB%E8%8B%97%E7%9A%84%E5%96%B5%E5%96%B5%E5%96%B5%E5%90%97%23&Refer=top) `839.0K 🔥`
 1. [作业帮前员工自曝造假套路](https://s.weibo.com/weibo?q=%23%E4%BD%9C%E4%B8%9A%E5%B8%AE%E5%89%8D%E5%91%98%E5%B7%A5%E8%87%AA%E6%9B%9D%E9%80%A0%E5%81%87%E5%A5%97%E8%B7%AF%23&Refer=top) `809.2K 🔥`
+1. [新疆天空一半乳状云一半蓝天](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E5%A4%A9%E7%A9%BA%E4%B8%80%E5%8D%8A%E4%B9%B3%E7%8A%B6%E4%BA%91%E4%B8%80%E5%8D%8A%E8%93%9D%E5%A4%A9%23&Refer=top) `808.5K 🔥`
 1. [那英回应把宋亚轩关注成萧亚轩](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E5%9B%9E%E5%BA%94%E6%8A%8A%E5%AE%8B%E4%BA%9A%E8%BD%A9%E5%85%B3%E6%B3%A8%E6%88%90%E8%90%A7%E4%BA%9A%E8%BD%A9%23&Refer=top) `786.6K 🔥`
 1. [狗狗咬破白酒桶把自己灌醉](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E5%92%AC%E7%A0%B4%E7%99%BD%E9%85%92%E6%A1%B6%E6%8A%8A%E8%87%AA%E5%B7%B1%E7%81%8C%E9%86%89%23&Refer=top) `698.4K 🔥`
 1. [新生女婴望着防疫医护笑盈盈](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%94%9F%E5%A5%B3%E5%A9%B4%E6%9C%9B%E7%9D%80%E9%98%B2%E7%96%AB%E5%8C%BB%E6%8A%A4%E7%AC%91%E7%9B%88%E7%9B%88%23&Refer=top) `692.6K 🔥`
 1. [杀人犯潜逃26年因4个打火机落网](https://s.weibo.com/weibo?q=%23%E6%9D%80%E4%BA%BA%E7%8A%AF%E6%BD%9C%E9%80%8326%E5%B9%B4%E5%9B%A04%E4%B8%AA%E6%89%93%E7%81%AB%E6%9C%BA%E8%90%BD%E7%BD%91%23&Refer=top) `667.9K 🔥`
 1. [摩尔庄园鲨鱼](https://s.weibo.com/weibo?q=%23%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E9%B2%A8%E9%B1%BC%23&Refer=top) `662.5K 🔥`
 1. [引起广州疫情变异株传播力比老毒株高1倍](https://s.weibo.com/weibo?q=%23%E5%BC%95%E8%B5%B7%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%E5%8F%98%E5%BC%82%E6%A0%AA%E4%BC%A0%E6%92%AD%E5%8A%9B%E6%AF%94%E8%80%81%E6%AF%92%E6%A0%AA%E9%AB%981%E5%80%8D%23&Refer=top) `636.9K 🔥`
-1. [有需要打疫苗的喵喵喵吗](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%9C%80%E8%A6%81%E6%89%93%E7%96%AB%E8%8B%97%E7%9A%84%E5%96%B5%E5%96%B5%E5%96%B5%E5%90%97%23&Refer=top) `630.4K 🔥`
 1. [张艺兴翻窗练舞](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E7%BF%BB%E7%AA%97%E7%BB%83%E8%88%9E%23&Refer=top) `593.1K 🔥`
 1. [美国计划销毁约千万剂强生新冠疫苗](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%AE%A1%E5%88%92%E9%94%80%E6%AF%81%E7%BA%A6%E5%8D%83%E4%B8%87%E5%89%82%E5%BC%BA%E7%94%9F%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `556.3K 🔥`
 1. [向往的生活吹牛皮之歌](https://s.weibo.com/weibo?q=%23%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB%E5%90%B9%E7%89%9B%E7%9A%AE%E4%B9%8B%E6%AD%8C%23&Refer=top) `545.7K 🔥`
@@ -42,7 +43,6 @@
 1. [任嘉伦不知道YYDS的意思](https://s.weibo.com/weibo?q=%23%E4%BB%BB%E5%98%89%E4%BC%A6%E4%B8%8D%E7%9F%A5%E9%81%93YYDS%E7%9A%84%E6%84%8F%E6%80%9D%23&Refer=top) `486.8K 🔥`
 1. [杨洁篪就涉疆涉港问题表明严正立场](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%81%E7%AF%AA%E5%B0%B1%E6%B6%89%E7%96%86%E6%B6%89%E6%B8%AF%E9%97%AE%E9%A2%98%E8%A1%A8%E6%98%8E%E4%B8%A5%E6%AD%A3%E7%AB%8B%E5%9C%BA%23&Refer=top) `478.2K 🔥`
 1. [广东新增8例本土确诊](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E6%96%B0%E5%A2%9E8%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `477.3K 🔥`
-1. [新疆天空一半乳状云一半蓝天](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E5%A4%A9%E7%A9%BA%E4%B8%80%E5%8D%8A%E4%B9%B3%E7%8A%B6%E4%BA%91%E4%B8%80%E5%8D%8A%E8%93%9D%E5%A4%A9%23&Refer=top) `472.7K 🔥`
 1. [周琦团队 调解申请](https://s.weibo.com/weibo?q=%E5%91%A8%E7%90%A6%E5%9B%A2%E9%98%9F%20%E8%B0%83%E8%A7%A3%E7%94%B3%E8%AF%B7&Refer=top) `467.9K 🔥`
 1. [向往的生活](https://s.weibo.com/weibo?q=%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB&Refer=top) `453.5K 🔥`
 1. [年轻人的崩溃来的有多快](https://s.weibo.com/weibo?q=%23%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%9A%84%E5%B4%A9%E6%BA%83%E6%9D%A5%E7%9A%84%E6%9C%89%E5%A4%9A%E5%BF%AB%23&Refer=top) `450.6K 🔥`
@@ -57,7 +57,7 @@
 1. [上海电影节](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E7%94%B5%E5%BD%B1%E8%8A%82&Refer=top) `395.6K 🔥`
 1. [顶楼3](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC3&Refer=top) `392.5K 🔥`
 
-数据更新于 2021-06-12 10:06:30
+数据更新于 2021-06-12 10:44:47
 
 <!-- END -->
 
