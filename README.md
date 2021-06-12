@@ -32,8 +32,9 @@
 1. [广西发现首例印度变异株](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E5%8F%91%E7%8E%B0%E9%A6%96%E4%BE%8B%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `981.9K 🔥`
 1. [磊枫](https://s.weibo.com/weibo?q=%E7%A3%8A%E6%9E%AB&Refer=top) `960.8K 🔥`
 1. [广东核酸检测收费标准调整](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E6%94%B6%E8%B4%B9%E6%A0%87%E5%87%86%E8%B0%83%E6%95%B4%23&Refer=top) `908.7K 🔥`
+1. [网红私自进校园拍摄被警告](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E7%A7%81%E8%87%AA%E8%BF%9B%E6%A0%A1%E5%9B%AD%E6%8B%8D%E6%91%84%E8%A2%AB%E8%AD%A6%E5%91%8A%23&Refer=top) `898.5K 🔥`
 1. [一套139平房子用60万能装修成什么样](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%A5%97139%E5%B9%B3%E6%88%BF%E5%AD%90%E7%94%A860%E4%B8%87%E8%83%BD%E8%A3%85%E4%BF%AE%E6%88%90%E4%BB%80%E4%B9%88%E6%A0%B7%23&Refer=top) `895.6K 🔥`
-1. [网红私自进校园拍摄被警告](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E7%A7%81%E8%87%AA%E8%BF%9B%E6%A0%A1%E5%9B%AD%E6%8B%8D%E6%91%84%E8%A2%AB%E8%AD%A6%E5%91%8A%23&Refer=top) `812.0K 🔥`
+1. [一个苹果就能换国宝的仔](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E8%8B%B9%E6%9E%9C%E5%B0%B1%E8%83%BD%E6%8D%A2%E5%9B%BD%E5%AE%9D%E7%9A%84%E4%BB%94%23&Refer=top) `825.0K 🔥`
 1. [作业帮前员工自曝造假套路](https://s.weibo.com/weibo?q=%23%E4%BD%9C%E4%B8%9A%E5%B8%AE%E5%89%8D%E5%91%98%E5%B7%A5%E8%87%AA%E6%9B%9D%E9%80%A0%E5%81%87%E5%A5%97%E8%B7%AF%23&Refer=top) `809.2K 🔥`
 1. [那英回应把宋亚轩关注成萧亚轩](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E5%9B%9E%E5%BA%94%E6%8A%8A%E5%AE%8B%E4%BA%9A%E8%BD%A9%E5%85%B3%E6%B3%A8%E6%88%90%E8%90%A7%E4%BA%9A%E8%BD%A9%23&Refer=top) `786.6K 🔥`
 1. [救护车鸣笛遭教练车阻挡4公里](https://s.weibo.com/weibo?q=%23%E6%95%91%E6%8A%A4%E8%BD%A6%E9%B8%A3%E7%AC%9B%E9%81%AD%E6%95%99%E7%BB%83%E8%BD%A6%E9%98%BB%E6%8C%A14%E5%85%AC%E9%87%8C%23&Refer=top) `759.7K 🔥`
@@ -55,9 +56,8 @@
 1. [边工作边考研是什么感受](https://s.weibo.com/weibo?q=%23%E8%BE%B9%E5%B7%A5%E4%BD%9C%E8%BE%B9%E8%80%83%E7%A0%94%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%9F%E5%8F%97%23&Refer=top) `605.3K 🔥`
 1. [四级听力](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E7%BA%A7%E5%90%AC%E5%8A%9B%23&Refer=top) `602.2K 🔥`
 1. [大S ins](https://s.weibo.com/weibo?q=%E5%A4%A7S%20ins&Refer=top) `599.5K 🔥`
-1. [张艺兴翻窗练舞](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E7%BF%BB%E7%AA%97%E7%BB%83%E8%88%9E%23&Refer=top) `593.1K 🔥`
 
-数据更新于 2021-06-12 14:23:52
+数据更新于 2021-06-12 14:54:37
 
 <!-- END -->
 
