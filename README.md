@@ -8,6 +8,7 @@
 
 1. [河南卫视杀疯了](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E5%8D%AB%E8%A7%86%E6%9D%80%E7%96%AF%E4%BA%86&Refer=top) `7.3M 🔥`
 1. [那英 杨紫](https://s.weibo.com/weibo?q=%E9%82%A3%E8%8B%B1%20%E6%9D%A8%E7%B4%AB&Refer=top) `4.6M 🔥`
+1. [那英杨紫回应不和](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E6%9D%A8%E7%B4%AB%E5%9B%9E%E5%BA%94%E4%B8%8D%E5%92%8C%23&Refer=top) `4.4M 🔥`
 1. [外籍船舶在中国海域违法排污](https://s.weibo.com/weibo?q=%E5%A4%96%E7%B1%8D%E8%88%B9%E8%88%B6%E5%9C%A8%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%9F%9F%E8%BF%9D%E6%B3%95%E6%8E%92%E6%B1%A1&Refer=top) `4.0M 🔥`
 1. [杜海涛沈梦辰隔空秀恩爱](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E6%B2%88%E6%A2%A6%E8%BE%B0%E9%9A%94%E7%A9%BA%E7%A7%80%E6%81%A9%E7%88%B1%23&Refer=top) `4.0M 🔥`
 1. [十堰爆炸事故已致11人死亡](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E7%88%86%E7%82%B8%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B411%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `3.4M 🔥`
@@ -50,14 +51,13 @@
 1. [宋妍霏不回弟弟微信](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E4%B8%8D%E5%9B%9E%E5%BC%9F%E5%BC%9F%E5%BE%AE%E4%BF%A1%23&Refer=top) `942.7K 🔥`
 1. [罗昊 周扬青](https://s.weibo.com/weibo?q=%E7%BD%97%E6%98%8A%20%E5%91%A8%E6%89%AC%E9%9D%92&Refer=top) `917.4K 🔥`
 1. [陈立农孟美岐用奖杯碰杯](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%AB%8B%E5%86%9C%E5%AD%9F%E7%BE%8E%E5%B2%90%E7%94%A8%E5%A5%96%E6%9D%AF%E7%A2%B0%E6%9D%AF%23&Refer=top) `888.3K 🔥`
+1. [95后核酸检测员通宵单手拧管2000余次](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%91%98%E9%80%9A%E5%AE%B5%E5%8D%95%E6%89%8B%E6%8B%A7%E7%AE%A12000%E4%BD%99%E6%AC%A1%23&Refer=top) `881.5K 🔥`
 1. [夫妻摆摊养活脑瘫3胞胎](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E6%91%86%E6%91%8A%E5%85%BB%E6%B4%BB%E8%84%91%E7%98%AB3%E8%83%9E%E8%83%8E%23&Refer=top) `863.7K 🔥`
 1. [最后一批90后毕业了](https://s.weibo.com/weibo?q=%23%E6%9C%80%E5%90%8E%E4%B8%80%E6%89%B990%E5%90%8E%E6%AF%95%E4%B8%9A%E4%BA%86%23&Refer=top) `859.8K 🔥`
 1. [朱婷回来了](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E5%9B%9E%E6%9D%A5%E4%BA%86%23&Refer=top) `853.9K 🔥`
 1. [十堰燃气爆炸 血站呼吁错峰献血](https://s.weibo.com/weibo?q=%E5%8D%81%E5%A0%B0%E7%87%83%E6%B0%94%E7%88%86%E7%82%B8%20%E8%A1%80%E7%AB%99%E5%91%BC%E5%90%81%E9%94%99%E5%B3%B0%E7%8C%AE%E8%A1%80&Refer=top) `837.6K 🔥`
-1. [95后核酸检测员通宵单手拧管2000余次](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%91%98%E9%80%9A%E5%AE%B5%E5%8D%95%E6%89%8B%E6%8B%A7%E7%AE%A12000%E4%BD%99%E6%AC%A1%23&Refer=top) `833.9K 🔥`
-1. [王副站长升职](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%89%AF%E7%AB%99%E9%95%BF%E5%8D%87%E8%81%8C%23&Refer=top) `829.0K 🔥`
 
-数据更新于 2021-06-13 16:20:57
+数据更新于 2021-06-13 16:45:20
 
 <!-- END -->
 
