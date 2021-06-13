@@ -33,6 +33,7 @@
 1. [爷爷 快看镜头有人在拍你](https://s.weibo.com/weibo?q=%E7%88%B7%E7%88%B7%20%E5%BF%AB%E7%9C%8B%E9%95%9C%E5%A4%B4%E6%9C%89%E4%BA%BA%E5%9C%A8%E6%8B%8D%E4%BD%A0&Refer=top) `1.3M 🔥`
 1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `1.3M 🔥`
 1. [兰陵王入阵曲 震撼](https://s.weibo.com/weibo?q=%E5%85%B0%E9%99%B5%E7%8E%8B%E5%85%A5%E9%98%B5%E6%9B%B2%20%E9%9C%87%E6%92%BC&Refer=top) `1.3M 🔥`
+1. [被考研失败的学长骂恶心](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%80%83%E7%A0%94%E5%A4%B1%E8%B4%A5%E7%9A%84%E5%AD%A6%E9%95%BF%E9%AA%82%E6%81%B6%E5%BF%83%23&Refer=top) `1.3M 🔥`
 1. [因为你我觉得党员真了不起](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E4%B8%BA%E4%BD%A0%E6%88%91%E8%A7%89%E5%BE%97%E5%85%9A%E5%91%98%E7%9C%9F%E4%BA%86%E4%B8%8D%E8%B5%B7%23&Refer=top) `1.3M 🔥`
 1. [日本一老人进食堂被误打第三针新冠疫苗](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%80%E8%80%81%E4%BA%BA%E8%BF%9B%E9%A3%9F%E5%A0%82%E8%A2%AB%E8%AF%AF%E6%89%93%E7%AC%AC%E4%B8%89%E9%92%88%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `1.2M 🔥`
 1. [周琦左眼视网膜裂孔](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%90%A6%E5%B7%A6%E7%9C%BC%E8%A7%86%E7%BD%91%E8%86%9C%E8%A3%82%E5%AD%94%23&Refer=top) `1.2M 🔥`
@@ -49,15 +50,14 @@
 1. [95后核酸检测员通宵单手拧管2000余次](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%91%98%E9%80%9A%E5%AE%B5%E5%8D%95%E6%89%8B%E6%8B%A7%E7%AE%A12000%E4%BD%99%E6%AC%A1%23&Refer=top) `1.1M 🔥`
 1. [国家二级运动员转行成美甲师](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E4%BA%8C%E7%BA%A7%E8%BF%90%E5%8A%A8%E5%91%98%E8%BD%AC%E8%A1%8C%E6%88%90%E7%BE%8E%E7%94%B2%E5%B8%88%23&Refer=top) `1.0M 🔥`
 1. [周也 冷脸美女](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%86%B7%E8%84%B8%E7%BE%8E%E5%A5%B3&Refer=top) `972.6K 🔥`
+1. [家长晒孩子高考前后伙食对比](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%95%BF%E6%99%92%E5%AD%A9%E5%AD%90%E9%AB%98%E8%80%83%E5%89%8D%E5%90%8E%E4%BC%99%E9%A3%9F%E5%AF%B9%E6%AF%94%23&Refer=top) `965.3K 🔥`
 1. [十堰天然气爆炸](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E5%A4%A9%E7%84%B6%E6%B0%94%E7%88%86%E7%82%B8%23&Refer=top) `958.4K 🔥`
 1. [宋妍霏不回弟弟微信](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E4%B8%8D%E5%9B%9E%E5%BC%9F%E5%BC%9F%E5%BE%AE%E4%BF%A1%23&Refer=top) `942.7K 🔥`
 1. [罗昊 周扬青](https://s.weibo.com/weibo?q=%E7%BD%97%E6%98%8A%20%E5%91%A8%E6%89%AC%E9%9D%92&Refer=top) `917.4K 🔥`
-1. [被考研失败的学长骂恶心](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%80%83%E7%A0%94%E5%A4%B1%E8%B4%A5%E7%9A%84%E5%AD%A6%E9%95%BF%E9%AA%82%E6%81%B6%E5%BF%83%23&Refer=top) `910.8K 🔥`
 1. [陈立农孟美岐用奖杯碰杯](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%AB%8B%E5%86%9C%E5%AD%9F%E7%BE%8E%E5%B2%90%E7%94%A8%E5%A5%96%E6%9D%AF%E7%A2%B0%E6%9D%AF%23&Refer=top) `888.3K 🔥`
 1. [夫妻摆摊养活脑瘫3胞胎](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E6%91%86%E6%91%8A%E5%85%BB%E6%B4%BB%E8%84%91%E7%98%AB3%E8%83%9E%E8%83%8E%23&Refer=top) `863.7K 🔥`
-1. [最后一批90后毕业了](https://s.weibo.com/weibo?q=%23%E6%9C%80%E5%90%8E%E4%B8%80%E6%89%B990%E5%90%8E%E6%AF%95%E4%B8%9A%E4%BA%86%23&Refer=top) `859.8K 🔥`
 
-数据更新于 2021-06-13 17:38:47
+数据更新于 2021-06-13 17:52:49
 
 <!-- END -->
 
