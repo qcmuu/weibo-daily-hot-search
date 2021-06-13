@@ -9,7 +9,7 @@
 1. [河南卫视杀疯了](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E5%8D%AB%E8%A7%86%E6%9D%80%E7%96%AF%E4%BA%86&Refer=top) `7.3M 🔥`
 1. [外籍船舶在中国海域违法排污](https://s.weibo.com/weibo?q=%E5%A4%96%E7%B1%8D%E8%88%B9%E8%88%B6%E5%9C%A8%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%9F%9F%E8%BF%9D%E6%B3%95%E6%8E%92%E6%B1%A1&Refer=top) `4.0M 🔥`
 1. [杜海涛沈梦辰隔空秀恩爱](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E6%B2%88%E6%A2%A6%E8%BE%B0%E9%9A%94%E7%A9%BA%E7%A7%80%E6%81%A9%E7%88%B1%23&Refer=top) `4.0M 🔥`
-1. [十堰爆炸事故已致11人死亡](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E7%88%86%E7%82%B8%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B411%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `3.3M 🔥`
+1. [十堰爆炸事故已致11人死亡](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E7%88%86%E7%82%B8%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B411%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `3.4M 🔥`
 1. [尹正 无效减肥](https://s.weibo.com/weibo?q=%E5%B0%B9%E6%AD%A3%20%E6%97%A0%E6%95%88%E5%87%8F%E8%82%A5&Refer=top) `3.2M 🔥`
 1. [倪妮刘浩存在张艺谋面前哭了](https://s.weibo.com/weibo?q=%23%E5%80%AA%E5%A6%AE%E5%88%98%E6%B5%A9%E5%AD%98%E5%9C%A8%E5%BC%A0%E8%89%BA%E8%B0%8B%E9%9D%A2%E5%89%8D%E5%93%AD%E4%BA%86%23&Refer=top) `2.9M 🔥`
 1. [魏晨看不出已经35岁了](https://s.weibo.com/weibo?q=%23%E9%AD%8F%E6%99%A8%E7%9C%8B%E4%B8%8D%E5%87%BA%E5%B7%B2%E7%BB%8F35%E5%B2%81%E4%BA%86%23&Refer=top) `2.9M 🔥`
@@ -41,6 +41,7 @@
 1. [丹麦 芬兰](https://s.weibo.com/weibo?q=%E4%B8%B9%E9%BA%A6%20%E8%8A%AC%E5%85%B0&Refer=top) `1.1M 🔥`
 1. [玩摩尔庄园说话被奶奶当真](https://s.weibo.com/weibo?q=%23%E7%8E%A9%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E8%AF%B4%E8%AF%9D%E8%A2%AB%E5%A5%B6%E5%A5%B6%E5%BD%93%E7%9C%9F%23&Refer=top) `1.1M 🔥`
 1. [快女冠军段林希现状](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E5%A5%B3%E5%86%A0%E5%86%9B%E6%AE%B5%E6%9E%97%E5%B8%8C%E7%8E%B0%E7%8A%B6%23&Refer=top) `1.1M 🔥`
+1. [我求求你安个空调吧](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%B1%82%E6%B1%82%E4%BD%A0%E5%AE%89%E4%B8%AA%E7%A9%BA%E8%B0%83%E5%90%A7%23&Refer=top) `973.9K 🔥`
 1. [周也 冷脸美女](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%86%B7%E8%84%B8%E7%BE%8E%E5%A5%B3&Refer=top) `972.6K 🔥`
 1. [十堰天然气爆炸](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E5%A4%A9%E7%84%B6%E6%B0%94%E7%88%86%E7%82%B8%23&Refer=top) `958.4K 🔥`
 1. [宋妍霏不回弟弟微信](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E4%B8%8D%E5%9B%9E%E5%BC%9F%E5%BC%9F%E5%BE%AE%E4%BF%A1%23&Refer=top) `942.7K 🔥`
@@ -55,9 +56,8 @@
 1. [当年的刘忻洪辰](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B9%B4%E7%9A%84%E5%88%98%E5%BF%BB%E6%B4%AA%E8%BE%B0%23&Refer=top) `772.8K 🔥`
 1. [中国女排 荷兰女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E8%8D%B7%E5%85%B0%E5%A5%B3%E6%8E%92&Refer=top) `772.0K 🔥`
 1. [北京一家三口爬野长城被困](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%B8%80%E5%AE%B6%E4%B8%89%E5%8F%A3%E7%88%AC%E9%87%8E%E9%95%BF%E5%9F%8E%E8%A2%AB%E5%9B%B0%23&Refer=top) `765.0K 🔥`
-1. [李雪琴辣目洋子吐槽桃花坞](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AA%E7%90%B4%E8%BE%A3%E7%9B%AE%E6%B4%8B%E5%AD%90%E5%90%90%E6%A7%BD%E6%A1%83%E8%8A%B1%E5%9D%9E%23&Refer=top) `764.9K 🔥`
 
-数据更新于 2021-06-13 13:42:39
+数据更新于 2021-06-13 13:54:08
 
 <!-- END -->
 
