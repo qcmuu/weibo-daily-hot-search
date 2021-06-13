@@ -28,6 +28,7 @@
 1. [贝尔老了](https://s.weibo.com/weibo?q=%23%E8%B4%9D%E5%B0%94%E8%80%81%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [我求求你安个空调吧](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%B1%82%E6%B1%82%E4%BD%A0%E5%AE%89%E4%B8%AA%E7%A9%BA%E8%B0%83%E5%90%A7%23&Refer=top) `1.4M 🔥`
 1. [爷爷 快看镜头有人在拍你](https://s.weibo.com/weibo?q=%E7%88%B7%E7%88%B7%20%E5%BF%AB%E7%9C%8B%E9%95%9C%E5%A4%B4%E6%9C%89%E4%BA%BA%E5%9C%A8%E6%8B%8D%E4%BD%A0&Refer=top) `1.3M 🔥`
+1. [大四退学参加高考当事人发声](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E9%80%80%E5%AD%A6%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `1.3M 🔥`
 1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `1.3M 🔥`
 1. [兰陵王入阵曲 震撼](https://s.weibo.com/weibo?q=%E5%85%B0%E9%99%B5%E7%8E%8B%E5%85%A5%E9%98%B5%E6%9B%B2%20%E9%9C%87%E6%92%BC&Refer=top) `1.3M 🔥`
 1. [因为你我觉得党员真了不起](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E4%B8%BA%E4%BD%A0%E6%88%91%E8%A7%89%E5%BE%97%E5%85%9A%E5%91%98%E7%9C%9F%E4%BA%86%E4%B8%8D%E8%B5%B7%23&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [十堰燃气爆炸 血站呼吁错峰献血](https://s.weibo.com/weibo?q=%E5%8D%81%E5%A0%B0%E7%87%83%E6%B0%94%E7%88%86%E7%82%B8%20%E8%A1%80%E7%AB%99%E5%91%BC%E5%90%81%E9%94%99%E5%B3%B0%E7%8C%AE%E8%A1%80&Refer=top) `837.6K 🔥`
 1. [王副站长升职](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%89%AF%E7%AB%99%E9%95%BF%E5%8D%87%E8%81%8C%23&Refer=top) `829.0K 🔥`
 1. [在水下泡26个小时拍出的水下飞天](https://s.weibo.com/weibo?q=%E5%9C%A8%E6%B0%B4%E4%B8%8B%E6%B3%A126%E4%B8%AA%E5%B0%8F%E6%97%B6%E6%8B%8D%E5%87%BA%E7%9A%84%E6%B0%B4%E4%B8%8B%E9%A3%9E%E5%A4%A9&Refer=top) `821.4K 🔥`
-1. [张天爱回应背后有金主](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%A4%A9%E7%88%B1%E5%9B%9E%E5%BA%94%E8%83%8C%E5%90%8E%E6%9C%89%E9%87%91%E4%B8%BB%23&Refer=top) `819.4K 🔥`
 
-数据更新于 2021-06-13 15:20:37
+数据更新于 2021-06-13 15:41:59
 
 <!-- END -->
 
