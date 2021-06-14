@@ -55,9 +55,9 @@
 1. [牙齿长得好看是种什么体验](https://s.weibo.com/weibo?q=%23%E7%89%99%E9%BD%BF%E9%95%BF%E5%BE%97%E5%A5%BD%E7%9C%8B%E6%98%AF%E7%A7%8D%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `779.9K 🔥`
 1. [穷会让人卑微到什么程度](https://s.weibo.com/weibo?q=%23%E7%A9%B7%E4%BC%9A%E8%AE%A9%E4%BA%BA%E5%8D%91%E5%BE%AE%E5%88%B0%E4%BB%80%E4%B9%88%E7%A8%8B%E5%BA%A6%23&Refer=top) `777.6K 🔥`
 1. [千万别用毛线绑粽子](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E5%88%AB%E7%94%A8%E6%AF%9B%E7%BA%BF%E7%BB%91%E7%B2%BD%E5%AD%90%23&Refer=top) `775.6K 🔥`
-1. [成都一食品企业6人掉废水池死亡](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E4%B8%80%E9%A3%9F%E5%93%81%E4%BC%81%E4%B8%9A6%E4%BA%BA%E6%8E%89%E5%BA%9F%E6%B0%B4%E6%B1%A0%E6%AD%BB%E4%BA%A1%23&Refer=top) `716.9K 🔥`
+1. [张文宏等25位华山医院医生端午献血](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%87%E5%AE%8F%E7%AD%8925%E4%BD%8D%E5%8D%8E%E5%B1%B1%E5%8C%BB%E9%99%A2%E5%8C%BB%E7%94%9F%E7%AB%AF%E5%8D%88%E7%8C%AE%E8%A1%80%23&Refer=top) `728.4K 🔥`
 
-数据更新于 2021-06-14 16:21:52
+数据更新于 2021-06-14 16:45:56
 
 <!-- END -->
 
