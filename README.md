@@ -17,8 +17,8 @@
 1. [小象睡觉抓梦脚](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%B1%A1%E7%9D%A1%E8%A7%89%E6%8A%93%E6%A2%A6%E8%84%9A%23&Refer=top) `2.7M 🔥`
 1. [中考](https://s.weibo.com/weibo?q=%E4%B8%AD%E8%80%83&Refer=top) `2.2M 🔥`
 1. [端午](https://s.weibo.com/weibo?q=%23%E7%AB%AF%E5%8D%88%23&Refer=top) `2.1M 🔥`
+1. [高三班长把全班名字写成诗](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E7%8F%AD%E9%95%BF%E6%8A%8A%E5%85%A8%E7%8F%AD%E5%90%8D%E5%AD%97%E5%86%99%E6%88%90%E8%AF%97%23&Refer=top) `2.1M 🔥`
 1. [高考录取通知书物流信息查询](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E7%89%A9%E6%B5%81%E4%BF%A1%E6%81%AF%E6%9F%A5%E8%AF%A2%23&Refer=top) `2.0M 🔥`
-1. [高三班长把全班名字写成诗](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E7%8F%AD%E9%95%BF%E6%8A%8A%E5%85%A8%E7%8F%AD%E5%90%8D%E5%AD%97%E5%86%99%E6%88%90%E8%AF%97%23&Refer=top) `1.8M 🔥`
 1. [中考结束后的刘耀文](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E8%80%83%E7%BB%93%E6%9D%9F%E5%90%8E%E7%9A%84%E5%88%98%E8%80%80%E6%96%87%23&Refer=top) `1.8M 🔥`
 1. [张杰觉得榴莲味的粽子还不错](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E8%A7%89%E5%BE%97%E6%A6%B4%E8%8E%B2%E5%91%B3%E7%9A%84%E7%B2%BD%E5%AD%90%E8%BF%98%E4%B8%8D%E9%94%99%23&Refer=top) `1.8M 🔥`
 1. [大四学生毕设盗用大三女生作品](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E5%AD%A6%E7%94%9F%E6%AF%95%E8%AE%BE%E7%9B%97%E7%94%A8%E5%A4%A7%E4%B8%89%E5%A5%B3%E7%94%9F%E4%BD%9C%E5%93%81%23&Refer=top) `1.7M 🔥`
@@ -57,7 +57,7 @@
 1. [黄磊说王俊凯是个猴](https://s.weibo.com/weibo?q=%23%E9%BB%84%E7%A3%8A%E8%AF%B4%E7%8E%8B%E4%BF%8A%E5%87%AF%E6%98%AF%E4%B8%AA%E7%8C%B4%23&Refer=top) `938.1K 🔥`
 1. [女子做艾灸手臂被烫出2个坑](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%81%9A%E8%89%BE%E7%81%B8%E6%89%8B%E8%87%82%E8%A2%AB%E7%83%AB%E5%87%BA2%E4%B8%AA%E5%9D%91%23&Refer=top) `897.3K 🔥`
 
-数据更新于 2021-06-14 19:31:40
+数据更新于 2021-06-14 19:43:53
 
 <!-- END -->
 
