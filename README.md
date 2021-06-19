@@ -35,6 +35,7 @@
 1. [美国街头94岁华裔老人被连捅数刀](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%A1%97%E5%A4%B494%E5%B2%81%E5%8D%8E%E8%A3%94%E8%80%81%E4%BA%BA%E8%A2%AB%E8%BF%9E%E6%8D%85%E6%95%B0%E5%88%80%23&Refer=top) `1.0M 🔥`
 1. [黄子韬 只有我的嘴有这样的弧度](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E5%8F%AA%E6%9C%89%E6%88%91%E7%9A%84%E5%98%B4%E6%9C%89%E8%BF%99%E6%A0%B7%E7%9A%84%E5%BC%A7%E5%BA%A6&Refer=top) `1.0M 🔥`
 1. [广州荔湾3人燃放烟花爆竹被罚款](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E8%8D%94%E6%B9%BE3%E4%BA%BA%E7%87%83%E6%94%BE%E7%83%9F%E8%8A%B1%E7%88%86%E7%AB%B9%E8%A2%AB%E7%BD%9A%E6%AC%BE%23&Refer=top) `1.0M 🔥`
+1. [于正签约童星](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E6%AD%A3%E7%AD%BE%E7%BA%A6%E7%AB%A5%E6%98%9F%23&Refer=top) `1.0M 🔥`
 1. [CA868](https://s.weibo.com/weibo?q=CA868&Refer=top) `1.0M 🔥`
 1. [吴磊张子枫毕业照拍摄花絮](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%AF%95%E4%B8%9A%E7%85%A7%E6%8B%8D%E6%91%84%E8%8A%B1%E7%B5%AE%23&Refer=top) `990.4K 🔥`
 1. [广州现4例接种一剂疫苗后仍感染者](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%8E%B04%E4%BE%8B%E6%8E%A5%E7%A7%8D%E4%B8%80%E5%89%82%E7%96%AB%E8%8B%97%E5%90%8E%E4%BB%8D%E6%84%9F%E6%9F%93%E8%80%85%23&Refer=top) `985.0K 🔥`
@@ -51,13 +52,12 @@
 1. [教大家一个矫正驼背的方法](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%A4%A7%E5%AE%B6%E4%B8%80%E4%B8%AA%E7%9F%AB%E6%AD%A3%E9%A9%BC%E8%83%8C%E7%9A%84%E6%96%B9%E6%B3%95%23&Refer=top) `810.1K 🔥`
 1. [情侣为爱用锁链锁住彼此123天](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E4%B8%BA%E7%88%B1%E7%94%A8%E9%94%81%E9%93%BE%E9%94%81%E4%BD%8F%E5%BD%BC%E6%AD%A4123%E5%A4%A9%23&Refer=top) `808.9K 🔥`
 1. [多地部署全面了解育龄妇女及生育意愿](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E9%83%A8%E7%BD%B2%E5%85%A8%E9%9D%A2%E4%BA%86%E8%A7%A3%E8%82%B2%E9%BE%84%E5%A6%87%E5%A5%B3%E5%8F%8A%E7%94%9F%E8%82%B2%E6%84%8F%E6%84%BF%23&Refer=top) `779.4K 🔥`
+1. [豆瓣将整治饭圈乱象](https://s.weibo.com/weibo?q=%23%E8%B1%86%E7%93%A3%E5%B0%86%E6%95%B4%E6%B2%BB%E9%A5%AD%E5%9C%88%E4%B9%B1%E8%B1%A1%23&Refer=top) `770.9K 🔥`
 1. [时代峰峻回应贺峻霖泼私生](https://s.weibo.com/weibo?q=%23%E6%97%B6%E4%BB%A3%E5%B3%B0%E5%B3%BB%E5%9B%9E%E5%BA%94%E8%B4%BA%E5%B3%BB%E9%9C%96%E6%B3%BC%E7%A7%81%E7%94%9F%23&Refer=top) `769.0K 🔥`
 1. [一飞机在俄坠毁致7死13伤](https://s.weibo.com/weibo?q=%23%E4%B8%80%E9%A3%9E%E6%9C%BA%E5%9C%A8%E4%BF%84%E5%9D%A0%E6%AF%81%E8%87%B47%E6%AD%BB13%E4%BC%A4%23&Refer=top) `748.0K 🔥`
 1. [周洁琼蜘蛛精扮相还原度](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%B4%81%E7%90%BC%E8%9C%98%E8%9B%9B%E7%B2%BE%E6%89%AE%E7%9B%B8%E8%BF%98%E5%8E%9F%E5%BA%A6%23&Refer=top) `741.1K 🔥`
-1. [中国女排 俄罗斯女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E4%BF%84%E7%BD%97%E6%96%AF%E5%A5%B3%E6%8E%92&Refer=top) `712.5K 🔥`
-1. [赵立坚说英方应当认真检视自身人权劣迹](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E8%8B%B1%E6%96%B9%E5%BA%94%E5%BD%93%E8%AE%A4%E7%9C%9F%E6%A3%80%E8%A7%86%E8%87%AA%E8%BA%AB%E4%BA%BA%E6%9D%83%E5%8A%A3%E8%BF%B9%23&Refer=top) `712.3K 🔥`
 
-数据更新于 2021-06-19 17:53:14
+数据更新于 2021-06-19 18:21:35
 
 <!-- END -->
 
