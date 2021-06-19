@@ -40,6 +40,7 @@
 1. [提离职后老板让请喝奶茶](https://s.weibo.com/weibo?q=%23%E6%8F%90%E7%A6%BB%E8%81%8C%E5%90%8E%E8%80%81%E6%9D%BF%E8%AE%A9%E8%AF%B7%E5%96%9D%E5%A5%B6%E8%8C%B6%23&Refer=top) `1.3M 🔥`
 1. [琦继组合yyds](https://s.weibo.com/weibo?q=%23%E7%90%A6%E7%BB%A7%E7%BB%84%E5%90%88yyds%23&Refer=top) `1.2M 🔥`
 1. [中国女排5连胜](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%925%E8%BF%9E%E8%83%9C%23&Refer=top) `1.2M 🔥`
+1. [辞职后又想回到原公司](https://s.weibo.com/weibo?q=%23%E8%BE%9E%E8%81%8C%E5%90%8E%E5%8F%88%E6%83%B3%E5%9B%9E%E5%88%B0%E5%8E%9F%E5%85%AC%E5%8F%B8%23&Refer=top) `1.1M 🔥`
 1. [夫妻卖假奢侈品2年获利1000万](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E5%8D%96%E5%81%87%E5%A5%A2%E4%BE%88%E5%93%812%E5%B9%B4%E8%8E%B7%E5%88%A91000%E4%B8%87%23&Refer=top) `1.1M 🔥`
 1. [因为不想洗澡哭了](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E4%B8%BA%E4%B8%8D%E6%83%B3%E6%B4%97%E6%BE%A1%E5%93%AD%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [救护车闯红灯出车祸负全责](https://s.weibo.com/weibo?q=%23%E6%95%91%E6%8A%A4%E8%BD%A6%E9%97%AF%E7%BA%A2%E7%81%AF%E5%87%BA%E8%BD%A6%E7%A5%B8%E8%B4%9F%E5%85%A8%E8%B4%A3%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [男朋友玩梗让我叫他爸爸](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E7%8E%A9%E6%A2%97%E8%AE%A9%E6%88%91%E5%8F%AB%E4%BB%96%E7%88%B8%E7%88%B8%23&Refer=top) `969.4K 🔥`
 1. [胡军回应网友嗑军烨cp](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%86%9B%E5%9B%9E%E5%BA%94%E7%BD%91%E5%8F%8B%E5%97%91%E5%86%9B%E7%83%A8cp%23&Refer=top) `937.3K 🔥`
 1. [迪士尼 放大又放大的同一张图](https://s.weibo.com/weibo?q=%E8%BF%AA%E5%A3%AB%E5%B0%BC%20%E6%94%BE%E5%A4%A7%E5%8F%88%E6%94%BE%E5%A4%A7%E7%9A%84%E5%90%8C%E4%B8%80%E5%BC%A0%E5%9B%BE&Refer=top) `926.9K 🔥`
-1. [打疫苗时该死的仪式感](https://s.weibo.com/weibo?q=%23%E6%89%93%E7%96%AB%E8%8B%97%E6%97%B6%E8%AF%A5%E6%AD%BB%E7%9A%84%E4%BB%AA%E5%BC%8F%E6%84%9F%23&Refer=top) `914.6K 🔥`
 
-数据更新于 2021-06-19 22:20:51
+数据更新于 2021-06-19 22:39:56
 
 <!-- END -->
 
