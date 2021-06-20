@@ -11,7 +11,7 @@
 1. [钱学森曾遭美方拘禁失去语言能力](https://s.weibo.com/weibo?q=%23%E9%92%B1%E5%AD%A6%E6%A3%AE%E6%9B%BE%E9%81%AD%E7%BE%8E%E6%96%B9%E6%8B%98%E7%A6%81%E5%A4%B1%E5%8E%BB%E8%AF%AD%E8%A8%80%E8%83%BD%E5%8A%9B%23&Refer=top) `976.6K 🔥`
 1. [邓伦一个观众都没猜对](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E4%B8%80%E4%B8%AA%E8%A7%82%E4%BC%97%E9%83%BD%E6%B2%A1%E7%8C%9C%E5%AF%B9%23&Refer=top) `894.2K 🔥`
 1. [张若昀给自己过父亲节](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8B%A5%E6%98%80%E7%BB%99%E8%87%AA%E5%B7%B1%E8%BF%87%E7%88%B6%E4%BA%B2%E8%8A%82%23&Refer=top) `827.3K 🔥`
-1. [朴树yyds](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E6%A0%91yyds%23&Refer=top) `780.5K 🔥`
+1. [朴树yyds](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E6%A0%91yyds%23&Refer=top) `826.8K 🔥`
 1. [一诺的百里守约](https://s.weibo.com/weibo?q=%23%E4%B8%80%E8%AF%BA%E7%9A%84%E7%99%BE%E9%87%8C%E5%AE%88%E7%BA%A6%23&Refer=top) `683.6K 🔥`
 1. [CA868国际航班已报告38例阳性](https://s.weibo.com/weibo?q=%23CA868%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E5%B7%B2%E6%8A%A5%E5%91%8A38%E4%BE%8B%E9%98%B3%E6%80%A7%23&Refer=top) `624.5K 🔥`
 1. [3名航天员在空间站不用值夜班](https://s.weibo.com/weibo?q=%233%E5%90%8D%E8%88%AA%E5%A4%A9%E5%91%98%E5%9C%A8%E7%A9%BA%E9%97%B4%E7%AB%99%E4%B8%8D%E7%94%A8%E5%80%BC%E5%A4%9C%E7%8F%AD%23&Refer=top) `555.8K 🔥`
@@ -57,7 +57,7 @@
 1. [意大利 威尔士](https://s.weibo.com/weibo?q=%E6%84%8F%E5%A4%A7%E5%88%A9%20%E5%A8%81%E5%B0%94%E5%A3%AB&Refer=top) `194.7K 🔥`
 1. [爸妈生我的真正原因](https://s.weibo.com/weibo?q=%23%E7%88%B8%E5%A6%88%E7%94%9F%E6%88%91%E7%9A%84%E7%9C%9F%E6%AD%A3%E5%8E%9F%E5%9B%A0%23&Refer=top) `193.7K 🔥`
 
-数据更新于 2021-06-21 06:48:35
+数据更新于 2021-06-21 06:57:17
 
 <!-- END -->
 
