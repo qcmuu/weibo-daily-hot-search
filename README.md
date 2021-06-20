@@ -21,6 +21,7 @@
 1. [男子散步踩蛇吓出销魂舞步](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E6%AD%A5%E8%B8%A9%E8%9B%87%E5%90%93%E5%87%BA%E9%94%80%E9%AD%82%E8%88%9E%E6%AD%A5%23&Refer=top) `1.5M 🔥`
 1. [央视曝高薪出境打工多是骗局](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E9%AB%98%E8%96%AA%E5%87%BA%E5%A2%83%E6%89%93%E5%B7%A5%E5%A4%9A%E6%98%AF%E9%AA%97%E5%B1%80%23&Refer=top) `1.4M 🔥`
 1. [电话手表自燃4岁女童手背被烧伤](https://s.weibo.com/weibo?q=%23%E7%94%B5%E8%AF%9D%E6%89%8B%E8%A1%A8%E8%87%AA%E7%87%834%E5%B2%81%E5%A5%B3%E7%AB%A5%E6%89%8B%E8%83%8C%E8%A2%AB%E7%83%A7%E4%BC%A4%23&Refer=top) `1.3M 🔥`
+1. [清华博士接亲被要求现场写代码](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%8D%9A%E5%A3%AB%E6%8E%A5%E4%BA%B2%E8%A2%AB%E8%A6%81%E6%B1%82%E7%8E%B0%E5%9C%BA%E5%86%99%E4%BB%A3%E7%A0%81%23&Refer=top) `1.2M 🔥`
 1. [收伞戳肚子是全国统一的吗](https://s.weibo.com/weibo?q=%23%E6%94%B6%E4%BC%9E%E6%88%B3%E8%82%9A%E5%AD%90%E6%98%AF%E5%85%A8%E5%9B%BD%E7%BB%9F%E4%B8%80%E7%9A%84%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [疑似被拐小女孩其实是小狗](https://s.weibo.com/weibo?q=%23%E7%96%91%E4%BC%BC%E8%A2%AB%E6%8B%90%E5%B0%8F%E5%A5%B3%E5%AD%A9%E5%85%B6%E5%AE%9E%E6%98%AF%E5%B0%8F%E7%8B%97%23&Refer=top) `1.2M 🔥`
 1. [怀孕时看到男友的聊天记录](https://s.weibo.com/weibo?q=%23%E6%80%80%E5%AD%95%E6%97%B6%E7%9C%8B%E5%88%B0%E7%94%B7%E5%8F%8B%E7%9A%84%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%23&Refer=top) `1.1M 🔥`
@@ -49,15 +50,14 @@
 1. [采访孟子义好像在悬崖走钢索](https://s.weibo.com/weibo?q=%23%E9%87%87%E8%AE%BF%E5%AD%9F%E5%AD%90%E4%B9%89%E5%A5%BD%E5%83%8F%E5%9C%A8%E6%82%AC%E5%B4%96%E8%B5%B0%E9%92%A2%E7%B4%A2%23&Refer=top) `732.7K 🔥`
 1. [考生绝望老师痛苦的试卷](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E7%BB%9D%E6%9C%9B%E8%80%81%E5%B8%88%E7%97%9B%E8%8B%A6%E7%9A%84%E8%AF%95%E5%8D%B7%23&Refer=top) `729.4K 🔥`
 1. [张嘉倪演的芜浣](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%98%89%E5%80%AA%E6%BC%94%E7%9A%84%E8%8A%9C%E6%B5%A3%23&Refer=top) `718.8K 🔥`
+1. [华为供应链公司已收到Mate50设计方案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E4%BE%9B%E5%BA%94%E9%93%BE%E5%85%AC%E5%8F%B8%E5%B7%B2%E6%94%B6%E5%88%B0Mate50%E8%AE%BE%E8%AE%A1%E6%96%B9%E6%A1%88%23&Refer=top) `713.4K 🔥`
 1. [毕业后发现牙科挺好找工作](https://s.weibo.com/weibo?q=%23%E6%AF%95%E4%B8%9A%E5%90%8E%E5%8F%91%E7%8E%B0%E7%89%99%E7%A7%91%E6%8C%BA%E5%A5%BD%E6%89%BE%E5%B7%A5%E4%BD%9C%23&Refer=top) `689.9K 🔥`
 1. [86岁爷爷和82岁奶奶参加孙女毕业典礼](https://s.weibo.com/weibo?q=%2386%E5%B2%81%E7%88%B7%E7%88%B7%E5%92%8C82%E5%B2%81%E5%A5%B6%E5%A5%B6%E5%8F%82%E5%8A%A0%E5%AD%99%E5%A5%B3%E6%AF%95%E4%B8%9A%E5%85%B8%E7%A4%BC%23&Refer=top) `678.7K 🔥`
 1. [许凯的腰](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E5%87%AF%E7%9A%84%E8%85%B0%23&Refer=top) `673.8K 🔥`
-1. [华为供应链公司已收到Mate50设计方案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E4%BE%9B%E5%BA%94%E9%93%BE%E5%85%AC%E5%8F%B8%E5%B7%B2%E6%94%B6%E5%88%B0Mate50%E8%AE%BE%E8%AE%A1%E6%96%B9%E6%A1%88%23&Refer=top) `669.6K 🔥`
 1. [女儿向母亲讨要12万彩礼未果告上法庭](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E5%90%91%E6%AF%8D%E4%BA%B2%E8%AE%A8%E8%A6%8112%E4%B8%87%E5%BD%A9%E7%A4%BC%E6%9C%AA%E6%9E%9C%E5%91%8A%E4%B8%8A%E6%B3%95%E5%BA%AD%23&Refer=top) `667.2K 🔥`
 1. [王梦洁躲球](https://s.weibo.com/weibo?q=%E7%8E%8B%E6%A2%A6%E6%B4%81%E8%BA%B2%E7%90%83&Refer=top) `654.0K 🔥`
-1. [央视曝光降糖神药为固体饮料](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E9%99%8D%E7%B3%96%E7%A5%9E%E8%8D%AF%E4%B8%BA%E5%9B%BA%E4%BD%93%E9%A5%AE%E6%96%99%23&Refer=top) `646.4K 🔥`
 
-数据更新于 2021-06-20 15:21:40
+数据更新于 2021-06-20 15:41:13
 
 <!-- END -->
 
