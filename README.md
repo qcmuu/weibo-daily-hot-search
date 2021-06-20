@@ -28,12 +28,12 @@
 1. [向佐全家福](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E5%85%A8%E5%AE%B6%E7%A6%8F%23&Refer=top) `1.9M 🔥`
 1. [迪丽热巴佟丽娅小尼聊新疆](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BD%9F%E4%B8%BD%E5%A8%85%E5%B0%8F%E5%B0%BC%E8%81%8A%E6%96%B0%E7%96%86%23&Refer=top) `1.8M 🔥`
 1. [李雪琴郭麒麟成年人社交潜规则](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AA%E7%90%B4%E9%83%AD%E9%BA%92%E9%BA%9F%E6%88%90%E5%B9%B4%E4%BA%BA%E7%A4%BE%E4%BA%A4%E6%BD%9C%E8%A7%84%E5%88%99%23&Refer=top) `1.8M 🔥`
+1. [CA868国际航班已报告38例阳性](https://s.weibo.com/weibo?q=%23CA868%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E5%B7%B2%E6%8A%A5%E5%91%8A38%E4%BE%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.7M 🔥`
 1. [男友领证前给爸爸发的短信](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%8F%8B%E9%A2%86%E8%AF%81%E5%89%8D%E7%BB%99%E7%88%B8%E7%88%B8%E5%8F%91%E7%9A%84%E7%9F%AD%E4%BF%A1%23&Refer=top) `1.7M 🔥`
 1. [能不能给张新成整个最佳女主奖](https://s.weibo.com/weibo?q=%23%E8%83%BD%E4%B8%8D%E8%83%BD%E7%BB%99%E5%BC%A0%E6%96%B0%E6%88%90%E6%95%B4%E4%B8%AA%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E5%A5%96%23&Refer=top) `1.7M 🔥`
+1. [北大教授称中国房租和房价比例世界最低](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E6%95%99%E6%8E%88%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%88%BF%E7%A7%9F%E5%92%8C%E6%88%BF%E4%BB%B7%E6%AF%94%E4%BE%8B%E4%B8%96%E7%95%8C%E6%9C%80%E4%BD%8E%23&Refer=top) `1.7M 🔥`
 1. [东莞麻涌](https://s.weibo.com/weibo?q=%E4%B8%9C%E8%8E%9E%E9%BA%BB%E6%B6%8C&Refer=top) `1.5M 🔥`
 1. [男子散步踩蛇吓出销魂舞步](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E6%AD%A5%E8%B8%A9%E8%9B%87%E5%90%93%E5%87%BA%E9%94%80%E9%AD%82%E8%88%9E%E6%AD%A5%23&Refer=top) `1.5M 🔥`
-1. [CA868国际航班已报告38例阳性](https://s.weibo.com/weibo?q=%23CA868%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E5%B7%B2%E6%8A%A5%E5%91%8A38%E4%BE%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.4M 🔥`
-1. [北大教授称中国房租和房价比例世界最低](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E6%95%99%E6%8E%88%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%88%BF%E7%A7%9F%E5%92%8C%E6%88%BF%E4%BB%B7%E6%AF%94%E4%BE%8B%E4%B8%96%E7%95%8C%E6%9C%80%E4%BD%8E%23&Refer=top) `1.4M 🔥`
 1. [被周深唱哭](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%91%A8%E6%B7%B1%E5%94%B1%E5%93%AD%23&Refer=top) `1.4M 🔥`
 1. [中国女排 美国女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E7%BE%8E%E5%9B%BD%E5%A5%B3%E6%8E%92&Refer=top) `1.4M 🔥`
 1. [央视曝高薪出境打工多是骗局](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E9%AB%98%E8%96%AA%E5%87%BA%E5%A2%83%E6%89%93%E5%B7%A5%E5%A4%9A%E6%98%AF%E9%AA%97%E5%B1%80%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [中国女排提前无缘世界联赛四强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E4%B8%96%E7%95%8C%E8%81%94%E8%B5%9B%E5%9B%9B%E5%BC%BA%23&Refer=top) `971.5K 🔥`
 1. [结石姐确诊梅尼埃病](https://s.weibo.com/weibo?q=%23%E7%BB%93%E7%9F%B3%E5%A7%90%E7%A1%AE%E8%AF%8A%E6%A2%85%E5%B0%BC%E5%9F%83%E7%97%85%23&Refer=top) `951.7K 🔥`
 
-数据更新于 2021-06-20 22:20:34
+数据更新于 2021-06-20 22:39:42
 
 <!-- END -->
 
