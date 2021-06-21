@@ -27,6 +27,7 @@
 1. [香奈儿推出天价Airpods保护套](https://s.weibo.com/weibo?q=%23%E9%A6%99%E5%A5%88%E5%84%BF%E6%8E%A8%E5%87%BA%E5%A4%A9%E4%BB%B7Airpods%E4%BF%9D%E6%8A%A4%E5%A5%97%23&Refer=top) `1.9M 🔥`
 1. [李钟硕剪短发](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%92%9F%E7%A1%95%E5%89%AA%E7%9F%AD%E5%8F%91%23&Refer=top) `1.8M 🔥`
 1. [陶虹说不是会哭就叫好演员](https://s.weibo.com/weibo?q=%23%E9%99%B6%E8%99%B9%E8%AF%B4%E4%B8%8D%E6%98%AF%E4%BC%9A%E5%93%AD%E5%B0%B1%E5%8F%AB%E5%A5%BD%E6%BC%94%E5%91%98%23&Refer=top) `1.8M 🔥`
+1. [张晨光说佟大为是失散十五年的儿子](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%99%A8%E5%85%89%E8%AF%B4%E4%BD%9F%E5%A4%A7%E4%B8%BA%E6%98%AF%E5%A4%B1%E6%95%A3%E5%8D%81%E4%BA%94%E5%B9%B4%E7%9A%84%E5%84%BF%E5%AD%90%23&Refer=top) `1.8M 🔥`
 1. [郭晶晶晒一家六口合照](https://s.weibo.com/weibo?q=%23%E9%83%AD%E6%99%B6%E6%99%B6%E6%99%92%E4%B8%80%E5%AE%B6%E5%85%AD%E5%8F%A3%E5%90%88%E7%85%A7%23&Refer=top) `1.8M 🔥`
 1. [烈士陵园那张照片不是父亲而是我](https://s.weibo.com/weibo?q=%23%E7%83%88%E5%A3%AB%E9%99%B5%E5%9B%AD%E9%82%A3%E5%BC%A0%E7%85%A7%E7%89%87%E4%B8%8D%E6%98%AF%E7%88%B6%E4%BA%B2%E8%80%8C%E6%98%AF%E6%88%91%23&Refer=top) `1.7M 🔥`
 1. [阿曼 确保中国人必须先打到疫苗](https://s.weibo.com/weibo?q=%E9%98%BF%E6%9B%BC%20%E7%A1%AE%E4%BF%9D%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%BF%85%E9%A1%BB%E5%85%88%E6%89%93%E5%88%B0%E7%96%AB%E8%8B%97&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [不接种新冠疫苗无法现场看世界杯](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%97%A0%E6%B3%95%E7%8E%B0%E5%9C%BA%E7%9C%8B%E4%B8%96%E7%95%8C%E6%9D%AF%23&Refer=top) `1.0M 🔥`
 1. [盲人被撞前1秒被公交司机拉回](https://s.weibo.com/weibo?q=%E7%9B%B2%E4%BA%BA%E8%A2%AB%E6%92%9E%E5%89%8D1%E7%A7%92%E8%A2%AB%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%E6%8B%89%E5%9B%9E&Refer=top) `1.0M 🔥`
 1. [钱学森曾遭美方拘禁失去语言能力](https://s.weibo.com/weibo?q=%23%E9%92%B1%E5%AD%A6%E6%A3%AE%E6%9B%BE%E9%81%AD%E7%BE%8E%E6%96%B9%E6%8B%98%E7%A6%81%E5%A4%B1%E5%8E%BB%E8%AF%AD%E8%A8%80%E8%83%BD%E5%8A%9B%23&Refer=top) `976.6K 🔥`
-1. [蔡英文](https://s.weibo.com/weibo?q=%E8%94%A1%E8%8B%B1%E6%96%87&Refer=top) `975.7K 🔥`
 
-数据更新于 2021-06-21 22:53:58
+数据更新于 2021-06-21 23:22:45
 
 <!-- END -->
 
