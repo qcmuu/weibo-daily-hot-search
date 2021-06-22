@@ -45,6 +45,7 @@
 1. [高中时代的感情有多美好](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%AD%E6%97%B6%E4%BB%A3%E7%9A%84%E6%84%9F%E6%83%85%E6%9C%89%E5%A4%9A%E7%BE%8E%E5%A5%BD%23&Refer=top) `257.0K 🔥`
 1. [青眼白龙](https://s.weibo.com/weibo?q=%E9%9D%92%E7%9C%BC%E7%99%BD%E9%BE%99&Refer=top) `252.9K 🔥`
 1. [日本天马航空公司推出皮卡丘客机](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%A4%A9%E9%A9%AC%E8%88%AA%E7%A9%BA%E5%85%AC%E5%8F%B8%E6%8E%A8%E5%87%BA%E7%9A%AE%E5%8D%A1%E4%B8%98%E5%AE%A2%E6%9C%BA%23&Refer=top) `251.6K 🔥`
+1. [吴磊的冰箱好像表情包](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E7%9A%84%E5%86%B0%E7%AE%B1%E5%A5%BD%E5%83%8F%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `225.0K 🔥`
 1. [鞠婧祎怎么连肩线都能变](https://s.weibo.com/weibo?q=%23%E9%9E%A0%E5%A9%A7%E7%A5%8E%E6%80%8E%E4%B9%88%E8%BF%9E%E8%82%A9%E7%BA%BF%E9%83%BD%E8%83%BD%E5%8F%98%23&Refer=top) `224.7K 🔥`
 1. [口罩带子的质量有多好](https://s.weibo.com/weibo?q=%23%E5%8F%A3%E7%BD%A9%E5%B8%A6%E5%AD%90%E7%9A%84%E8%B4%A8%E9%87%8F%E6%9C%89%E5%A4%9A%E5%A5%BD%23&Refer=top) `201.0K 🔥`
 1. [海南省长称不让海南成为避税天堂](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8D%97%E7%9C%81%E9%95%BF%E7%A7%B0%E4%B8%8D%E8%AE%A9%E6%B5%B7%E5%8D%97%E6%88%90%E4%B8%BA%E9%81%BF%E7%A8%8E%E5%A4%A9%E5%A0%82%23&Refer=top) `197.1K 🔥`
@@ -55,9 +56,8 @@
 1. [比特币跌破3万美元](https://s.weibo.com/weibo?q=%23%E6%AF%94%E7%89%B9%E5%B8%81%E8%B7%8C%E7%A0%B43%E4%B8%87%E7%BE%8E%E5%85%83%23&Refer=top) `171.3K 🔥`
 1. [彩票中奖发朋友圈炫耀奖金被冒领](https://s.weibo.com/weibo?q=%23%E5%BD%A9%E7%A5%A8%E4%B8%AD%E5%A5%96%E5%8F%91%E6%9C%8B%E5%8F%8B%E5%9C%88%E7%82%AB%E8%80%80%E5%A5%96%E9%87%91%E8%A2%AB%E5%86%92%E9%A2%86%23&Refer=top) `167.5K 🔥`
 1. [RA偷家](https://s.weibo.com/weibo?q=%23RA%E5%81%B7%E5%AE%B6%23&Refer=top) `166.7K 🔥`
-1. [拜冰轰趴季的第一场局](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E5%86%B0%E8%BD%B0%E8%B6%B4%E5%AD%A3%E7%9A%84%E7%AC%AC%E4%B8%80%E5%9C%BA%E5%B1%80%23&Refer=top) `136.2K 🔥`
 
-数据更新于 2021-06-23 00:32:03
+数据更新于 2021-06-23 01:12:55
 
 <!-- END -->
 
