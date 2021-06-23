@@ -24,8 +24,8 @@
 1. [黄子韬 我在你们眼里我肚量这么小](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E6%88%91%E5%9C%A8%E4%BD%A0%E4%BB%AC%E7%9C%BC%E9%87%8C%E6%88%91%E8%82%9A%E9%87%8F%E8%BF%99%E4%B9%88%E5%B0%8F&Refer=top) `1.6M 🔥`
 1. [安徽文科分数线好高](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%87%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%A5%BD%E9%AB%98%23&Refer=top) `1.5M 🔥`
 1. [航天员太空吃播](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%A4%AA%E7%A9%BA%E5%90%83%E6%92%AD%23&Refer=top) `1.5M 🔥`
+1. [妈妈获赠免费雪糕7旬儿子坚持付款](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E8%8E%B7%E8%B5%A0%E5%85%8D%E8%B4%B9%E9%9B%AA%E7%B3%957%E6%97%AC%E5%84%BF%E5%AD%90%E5%9D%9A%E6%8C%81%E4%BB%98%E6%AC%BE%23&Refer=top) `1.5M 🔥`
 1. [新iPhone有望加入指纹解锁](https://s.weibo.com/weibo?q=%23%E6%96%B0iPhone%E6%9C%89%E6%9C%9B%E5%8A%A0%E5%85%A5%E6%8C%87%E7%BA%B9%E8%A7%A3%E9%94%81%23&Refer=top) `1.5M 🔥`
-1. [妈妈获赠免费雪糕7旬儿子坚持付款](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E8%8E%B7%E8%B5%A0%E5%85%8D%E8%B4%B9%E9%9B%AA%E7%B3%957%E6%97%AC%E5%84%BF%E5%AD%90%E5%9D%9A%E6%8C%81%E4%BB%98%E6%AC%BE%23&Refer=top) `1.4M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [人类寿命上限或为150岁](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%AF%BF%E5%91%BD%E4%B8%8A%E9%99%90%E6%88%96%E4%B8%BA150%E5%B2%81%23&Refer=top) `1.4M 🔥`
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.4M 🔥`
@@ -52,12 +52,12 @@
 1. [2021安徽高考分数线公布](https://s.weibo.com/weibo?q=%232021%E5%AE%89%E5%BE%BD%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%E5%85%AC%E5%B8%83%23&Refer=top) `877.9K 🔥`
 1. [刘耀文加盟萌探探探案](https://s.weibo.com/weibo?q=%23%E5%88%98%E8%80%80%E6%96%87%E5%8A%A0%E7%9B%9F%E8%90%8C%E6%8E%A2%E6%8E%A2%E6%8E%A2%E6%A1%88%23&Refer=top) `867.5K 🔥`
 1. [西安一高校全班29人有26人读研](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%B8%80%E9%AB%98%E6%A0%A1%E5%85%A8%E7%8F%AD29%E4%BA%BA%E6%9C%8926%E4%BA%BA%E8%AF%BB%E7%A0%94%23&Refer=top) `843.5K 🔥`
+1. [武大博士妈妈带6岁儿子参加毕业典礼](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E5%A4%A7%E5%8D%9A%E5%A3%AB%E5%A6%88%E5%A6%88%E5%B8%A66%E5%B2%81%E5%84%BF%E5%AD%90%E5%8F%82%E5%8A%A0%E6%AF%95%E4%B8%9A%E5%85%B8%E7%A4%BC%23&Refer=top) `843.0K 🔥`
 1. [车祸截肢少年高考684分全省171名](https://s.weibo.com/weibo?q=%23%E8%BD%A6%E7%A5%B8%E6%88%AA%E8%82%A2%E5%B0%91%E5%B9%B4%E9%AB%98%E8%80%83684%E5%88%86%E5%85%A8%E7%9C%81171%E5%90%8D%23&Refer=top) `833.8K 🔥`
 1. [总书记与航天员通话现场视频](https://s.weibo.com/weibo?q=%23%E6%80%BB%E4%B9%A6%E8%AE%B0%E4%B8%8E%E8%88%AA%E5%A4%A9%E5%91%98%E9%80%9A%E8%AF%9D%E7%8E%B0%E5%9C%BA%E8%A7%86%E9%A2%91%23&Refer=top) `791.4K 🔥`
 1. [用自动贩卖机冰西瓜被封号3月](https://s.weibo.com/weibo?q=%23%E7%94%A8%E8%87%AA%E5%8A%A8%E8%B4%A9%E5%8D%96%E6%9C%BA%E5%86%B0%E8%A5%BF%E7%93%9C%E8%A2%AB%E5%B0%81%E5%8F%B73%E6%9C%88%23&Refer=top) `775.7K 🔥`
-1. [陈好方称从未参与过教授资格评定](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%BD%E6%96%B9%E7%A7%B0%E4%BB%8E%E6%9C%AA%E5%8F%82%E4%B8%8E%E8%BF%87%E6%95%99%E6%8E%88%E8%B5%84%E6%A0%BC%E8%AF%84%E5%AE%9A%23&Refer=top) `755.1K 🔥`
 
-数据更新于 2021-06-23 18:46:23
+数据更新于 2021-06-23 18:54:40
 
 <!-- END -->
 
