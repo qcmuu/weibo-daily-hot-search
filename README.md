@@ -57,7 +57,7 @@
 1. [浙江独生子女家庭立遗嘱最多](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E7%8B%AC%E7%94%9F%E5%AD%90%E5%A5%B3%E5%AE%B6%E5%BA%AD%E7%AB%8B%E9%81%97%E5%98%B1%E6%9C%80%E5%A4%9A%23&Refer=top) `1.0M 🔥`
 1. [网友在海边吹出了一个巨大无比的泡泡](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E5%9C%A8%E6%B5%B7%E8%BE%B9%E5%90%B9%E5%87%BA%E4%BA%86%E4%B8%80%E4%B8%AA%E5%B7%A8%E5%A4%A7%E6%97%A0%E6%AF%94%E7%9A%84%E6%B3%A1%E6%B3%A1%23&Refer=top) `996.8K 🔥`
 
-数据更新于 2021-06-23 23:48:02
+数据更新于 2021-06-23 23:57:21
 
 <!-- END -->
 
