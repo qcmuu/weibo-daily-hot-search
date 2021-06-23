@@ -19,6 +19,7 @@
 1. [黄子韬 我在你们眼里我肚量这么小](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E6%88%91%E5%9C%A8%E4%BD%A0%E4%BB%AC%E7%9C%BC%E9%87%8C%E6%88%91%E8%82%9A%E9%87%8F%E8%BF%99%E4%B9%88%E5%B0%8F&Refer=top) `1.6M 🔥`
 1. [安徽文科分数线好高](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%87%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%A5%BD%E9%AB%98%23&Refer=top) `1.5M 🔥`
 1. [航天员太空吃播](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%A4%AA%E7%A9%BA%E5%90%83%E6%92%AD%23&Refer=top) `1.5M 🔥`
+1. [南开录取通知书送两粒嘉兴莲花种子](https://s.weibo.com/weibo?q=%23%E5%8D%97%E5%BC%80%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E9%80%81%E4%B8%A4%E7%B2%92%E5%98%89%E5%85%B4%E8%8E%B2%E8%8A%B1%E7%A7%8D%E5%AD%90%23&Refer=top) `1.5M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.4M 🔥`
 1. [4岁女童走失最后被发现在悬崖上静坐](https://s.weibo.com/weibo?q=%234%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%B5%B0%E5%A4%B1%E6%9C%80%E5%90%8E%E8%A2%AB%E5%8F%91%E7%8E%B0%E5%9C%A8%E6%82%AC%E5%B4%96%E4%B8%8A%E9%9D%99%E5%9D%90%23&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [龚俊保镖把路人错认成龚俊](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E4%BF%9D%E9%95%96%E6%8A%8A%E8%B7%AF%E4%BA%BA%E9%94%99%E8%AE%A4%E6%88%90%E9%BE%9A%E4%BF%8A%23&Refer=top) `587.6K 🔥`
 1. [嘉人带错超话](https://s.weibo.com/weibo?q=%23%E5%98%89%E4%BA%BA%E5%B8%A6%E9%94%99%E8%B6%85%E8%AF%9D%23&Refer=top) `580.6K 🔥`
 1. [黄明昊红发](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%98%8E%E6%98%8A%E7%BA%A2%E5%8F%91%23&Refer=top) `574.4K 🔥`
-1. [觉醒年代热播年轻人与烈士隔空对话](https://s.weibo.com/weibo?q=%23%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3%E7%83%AD%E6%92%AD%E5%B9%B4%E8%BD%BB%E4%BA%BA%E4%B8%8E%E7%83%88%E5%A3%AB%E9%9A%94%E7%A9%BA%E5%AF%B9%E8%AF%9D%23&Refer=top) `574.4K 🔥`
 
-数据更新于 2021-06-23 13:56:10
+数据更新于 2021-06-23 14:27:03
 
 <!-- END -->
 
