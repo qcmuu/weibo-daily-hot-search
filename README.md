@@ -22,6 +22,7 @@
 1. [航天员太空吃播](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%A4%AA%E7%A9%BA%E5%90%83%E6%92%AD%23&Refer=top) `1.5M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.4M 🔥`
+1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `1.4M 🔥`
 1. [4岁女童走失最后被发现在悬崖上静坐](https://s.weibo.com/weibo?q=%234%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%B5%B0%E5%A4%B1%E6%9C%80%E5%90%8E%E8%A2%AB%E5%8F%91%E7%8E%B0%E5%9C%A8%E6%82%AC%E5%B4%96%E4%B8%8A%E9%9D%99%E5%9D%90%23&Refer=top) `1.3M 🔥`
 1. [李雪琴 男人装](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%AA%E7%90%B4%20%E7%94%B7%E4%BA%BA%E8%A3%85&Refer=top) `1.3M 🔥`
 1. [云南小象跳水还玩花样游泳](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%B0%8F%E8%B1%A1%E8%B7%B3%E6%B0%B4%E8%BF%98%E7%8E%A9%E8%8A%B1%E6%A0%B7%E6%B8%B8%E6%B3%B3%23&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [这辈子买过最智商税的东西](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%BE%88%E5%AD%90%E4%B9%B0%E8%BF%87%E6%9C%80%E6%99%BA%E5%95%86%E7%A8%8E%E7%9A%84%E4%B8%9C%E8%A5%BF%23&Refer=top) `604.7K 🔥`
 1. [连淮伟签约留白](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%B7%AE%E4%BC%9F%E7%AD%BE%E7%BA%A6%E7%95%99%E7%99%BD%23&Refer=top) `598.1K 🔥`
 1. [白宫承认独立日前无法完成疫苗接种目标](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%AE%AB%E6%89%BF%E8%AE%A4%E7%8B%AC%E7%AB%8B%E6%97%A5%E5%89%8D%E6%97%A0%E6%B3%95%E5%AE%8C%E6%88%90%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E7%9B%AE%E6%A0%87%23&Refer=top) `595.0K 🔥`
-1. [被唐三藏师徒虐哭了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%94%90%E4%B8%89%E8%97%8F%E5%B8%88%E5%BE%92%E8%99%90%E5%93%AD%E4%BA%86%23&Refer=top) `592.9K 🔥`
 
-数据更新于 2021-06-23 15:38:44
+数据更新于 2021-06-23 15:47:26
 
 <!-- END -->
 
