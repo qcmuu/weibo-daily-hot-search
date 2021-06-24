@@ -10,10 +10,11 @@
 1. [宋祖儿 男生没有懂不懂只有想不想](https://s.weibo.com/weibo?q=%E5%AE%8B%E7%A5%96%E5%84%BF%20%E7%94%B7%E7%94%9F%E6%B2%A1%E6%9C%89%E6%87%82%E4%B8%8D%E6%87%82%E5%8F%AA%E6%9C%89%E6%83%B3%E4%B8%8D%E6%83%B3&Refer=top) `2.4M 🔥`
 1. [广州出现最短14秒传播病例](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%87%BA%E7%8E%B0%E6%9C%80%E7%9F%AD14%E7%A7%92%E4%BC%A0%E6%92%AD%E7%97%85%E4%BE%8B%23&Refer=top) `2.2M 🔥`
 1. [法国 葡萄牙](https://s.weibo.com/weibo?q=%E6%B3%95%E5%9B%BD%20%E8%91%A1%E8%90%84%E7%89%99&Refer=top) `1.8M 🔥`
+1. [你能接受外卖提前点送达吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E8%83%BD%E6%8E%A5%E5%8F%97%E5%A4%96%E5%8D%96%E6%8F%90%E5%89%8D%E7%82%B9%E9%80%81%E8%BE%BE%E5%90%97%23&Refer=top) `1.6M 🔥`
 1. [印度很可能遭遇第三波疫情](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%BE%88%E5%8F%AF%E8%83%BD%E9%81%AD%E9%81%87%E7%AC%AC%E4%B8%89%E6%B3%A2%E7%96%AB%E6%83%85%23&Refer=top) `1.5M 🔥`
 1. [台湾144人打阿斯利康疫苗后死亡](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE144%E4%BA%BA%E6%89%93%E9%98%BF%E6%96%AF%E5%88%A9%E5%BA%B7%E7%96%AB%E8%8B%97%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.4M 🔥`
 1. [快递是否有送货上门的义务](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E9%80%92%E6%98%AF%E5%90%A6%E6%9C%89%E9%80%81%E8%B4%A7%E4%B8%8A%E9%97%A8%E7%9A%84%E4%B9%89%E5%8A%A1%23&Refer=top) `1.4M 🔥`
-1. [片仔癀](https://s.weibo.com/weibo?q=%23%E7%89%87%E4%BB%94%E7%99%80%23&Refer=top) `1.3M 🔥`
+1. [片仔癀](https://s.weibo.com/weibo?q=%23%E7%89%87%E4%BB%94%E7%99%80%23&Refer=top) `1.4M 🔥`
 1. [李雪琴 年轻人的累经常是因为恶性竞争](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%AA%E7%90%B4%20%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%9A%84%E7%B4%AF%E7%BB%8F%E5%B8%B8%E6%98%AF%E5%9B%A0%E4%B8%BA%E6%81%B6%E6%80%A7%E7%AB%9E%E4%BA%89&Refer=top) `1.3M 🔥`
 1. [小美人鱼剧组15人新冠检测阳性](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%BE%8E%E4%BA%BA%E9%B1%BC%E5%89%A7%E7%BB%8415%E4%BA%BA%E6%96%B0%E5%86%A0%E6%A3%80%E6%B5%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.2M 🔥`
 1. [莱万哭了](https://s.weibo.com/weibo?q=%E8%8E%B1%E4%B8%87%E5%93%AD%E4%BA%86&Refer=top) `1.2M 🔥`
@@ -31,16 +32,17 @@
 1. [C罗本泽马交换球衣](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%9C%AC%E6%B3%BD%E9%A9%AC%E4%BA%A4%E6%8D%A2%E7%90%83%E8%A1%A3%23&Refer=top) `983.2K 🔥`
 1. [广州高风险区居民揭秘隔离生活](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E9%AB%98%E9%A3%8E%E9%99%A9%E5%8C%BA%E5%B1%85%E6%B0%91%E6%8F%AD%E7%A7%98%E9%9A%94%E7%A6%BB%E7%94%9F%E6%B4%BB%23&Refer=top) `982.7K 🔥`
 1. [男生超一本线27分哭着报喜](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%B6%85%E4%B8%80%E6%9C%AC%E7%BA%BF27%E5%88%86%E5%93%AD%E7%9D%80%E6%8A%A5%E5%96%9C%23&Refer=top) `971.6K 🔥`
+1. [林峯写给张馨月的信](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E5%86%99%E7%BB%99%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E4%BF%A1%23&Refer=top) `965.4K 🔥`
 1. [原来烤冷面真的是面](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%83%A4%E5%86%B7%E9%9D%A2%E7%9C%9F%E7%9A%84%E6%98%AF%E9%9D%A2%23&Refer=top) `962.1K 🔥`
 1. [分数线](https://s.weibo.com/weibo?q=%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `941.0K 🔥`
 1. [杀毒软件之父死于巴塞罗那监狱](https://s.weibo.com/weibo?q=%E6%9D%80%E6%AF%92%E8%BD%AF%E4%BB%B6%E4%B9%8B%E7%88%B6%E6%AD%BB%E4%BA%8E%E5%B7%B4%E5%A1%9E%E7%BD%97%E9%82%A3%E7%9B%91%E7%8B%B1&Refer=top) `910.8K 🔥`
 1. [低级快乐正在拖垮你](https://s.weibo.com/weibo?q=%23%E4%BD%8E%E7%BA%A7%E5%BF%AB%E4%B9%90%E6%AD%A3%E5%9C%A8%E6%8B%96%E5%9E%AE%E4%BD%A0%23&Refer=top) `895.5K 🔥`
-1. [你能接受外卖提前点送达吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E8%83%BD%E6%8E%A5%E5%8F%97%E5%A4%96%E5%8D%96%E6%8F%90%E5%89%8D%E7%82%B9%E9%80%81%E8%BE%BE%E5%90%97%23&Refer=top) `875.8K 🔥`
 1. [四川健康码上新6款旅行熊猫](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%81%A5%E5%BA%B7%E7%A0%81%E4%B8%8A%E6%96%B06%E6%AC%BE%E6%97%85%E8%A1%8C%E7%86%8A%E7%8C%AB%23&Refer=top) `866.5K 🔥`
-1. [林峯写给张馨月的信](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E5%86%99%E7%BB%99%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E4%BF%A1%23&Refer=top) `862.5K 🔥`
+1. [吴京的责任感有多强](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E7%9A%84%E8%B4%A3%E4%BB%BB%E6%84%9F%E6%9C%89%E5%A4%9A%E5%BC%BA%23&Refer=top) `851.4K 🔥`
 1. [也门渔民捡到127公斤龙涎香](https://s.weibo.com/weibo?q=%23%E4%B9%9F%E9%97%A8%E6%B8%94%E6%B0%91%E6%8D%A1%E5%88%B0127%E5%85%AC%E6%96%A4%E9%BE%99%E6%B6%8E%E9%A6%99%23&Refer=top) `847.7K 🔥`
+1. [中国航天员空间站生活日常](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%88%AA%E5%A4%A9%E5%91%98%E7%A9%BA%E9%97%B4%E7%AB%99%E7%94%9F%E6%B4%BB%E6%97%A5%E5%B8%B8%23&Refer=top) `837.4K 🔥`
 1. [张柏芝不当明星会当幼儿园老师](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E4%B8%8D%E5%BD%93%E6%98%8E%E6%98%9F%E4%BC%9A%E5%BD%93%E5%B9%BC%E5%84%BF%E5%9B%AD%E8%80%81%E5%B8%88%23&Refer=top) `831.5K 🔥`
-1. [中国航天员空间站生活日常](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%88%AA%E5%A4%A9%E5%91%98%E7%A9%BA%E9%97%B4%E7%AB%99%E7%94%9F%E6%B4%BB%E6%97%A5%E5%B8%B8%23&Refer=top) `803.5K 🔥`
+1. [美国疫情](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E7%96%AB%E6%83%85&Refer=top) `826.7K 🔥`
 1. [安徽官方回应文理科分数线分差大](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%96%87%E7%90%86%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%88%86%E5%B7%AE%E5%A4%A7%23&Refer=top) `797.7K 🔥`
 1. [水喝太多时身体会发生什么](https://s.weibo.com/weibo?q=%23%E6%B0%B4%E5%96%9D%E5%A4%AA%E5%A4%9A%E6%97%B6%E8%BA%AB%E4%BD%93%E4%BC%9A%E5%8F%91%E7%94%9F%E4%BB%80%E4%B9%88%23&Refer=top) `791.5K 🔥`
 1. [C罗梅开二度](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%A2%85%E5%BC%80%E4%BA%8C%E5%BA%A6%23&Refer=top) `758.1K 🔥`
@@ -54,10 +56,8 @@
 1. [高考分数不理想男生拉二胡解忧](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E4%B8%8D%E7%90%86%E6%83%B3%E7%94%B7%E7%94%9F%E6%8B%89%E4%BA%8C%E8%83%A1%E8%A7%A3%E5%BF%A7%23&Refer=top) `630.5K 🔥`
 1. [斯洛伐克门将暴扣](https://s.weibo.com/weibo?q=%23%E6%96%AF%E6%B4%9B%E4%BC%90%E5%85%8B%E9%97%A8%E5%B0%86%E6%9A%B4%E6%89%A3%23&Refer=top) `629.9K 🔥`
 1. [河南分数线](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%88%86%E6%95%B0%E7%BA%BF%23&Refer=top) `629.5K 🔥`
-1. [美国疫情](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E7%96%AB%E6%83%85&Refer=top) `628.9K 🔥`
-1. [乐华十二周年有话说](https://s.weibo.com/weibo?q=%23%E4%B9%90%E5%8D%8E%E5%8D%81%E4%BA%8C%E5%91%A8%E5%B9%B4%E6%9C%89%E8%AF%9D%E8%AF%B4%23&Refer=top) `628.6K 🔥`
 
-数据更新于 2021-06-24 11:31:29
+数据更新于 2021-06-24 11:50:05
 
 <!-- END -->
 
