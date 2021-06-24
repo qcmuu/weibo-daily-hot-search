@@ -51,13 +51,13 @@
 1. [原来烤冷面真的是面](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%83%A4%E5%86%B7%E9%9D%A2%E7%9C%9F%E7%9A%84%E6%98%AF%E9%9D%A2%23&Refer=top) `962.1K 🔥`
 1. [分数线](https://s.weibo.com/weibo?q=%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `941.0K 🔥`
 1. [容祖儿 另一半好像是永远缺乏的拼图](https://s.weibo.com/weibo?q=%E5%AE%B9%E7%A5%96%E5%84%BF%20%E5%8F%A6%E4%B8%80%E5%8D%8A%E5%A5%BD%E5%83%8F%E6%98%AF%E6%B0%B8%E8%BF%9C%E7%BC%BA%E4%B9%8F%E7%9A%84%E6%8B%BC%E5%9B%BE&Refer=top) `931.9K 🔥`
+1. [周杰伦五年没发专辑了](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E4%BA%94%E5%B9%B4%E6%B2%A1%E5%8F%91%E4%B8%93%E8%BE%91%E4%BA%86%23&Refer=top) `929.4K 🔥`
 1. [美国疫情](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E7%96%AB%E6%83%85&Refer=top) `904.2K 🔥`
 1. [低级快乐正在拖垮你](https://s.weibo.com/weibo?q=%23%E4%BD%8E%E7%BA%A7%E5%BF%AB%E4%B9%90%E6%AD%A3%E5%9C%A8%E6%8B%96%E5%9E%AE%E4%BD%A0%23&Refer=top) `895.5K 🔥`
 1. [四川健康码上新6款旅行熊猫](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%81%A5%E5%BA%B7%E7%A0%81%E4%B8%8A%E6%96%B06%E6%AC%BE%E6%97%85%E8%A1%8C%E7%86%8A%E7%8C%AB%23&Refer=top) `866.5K 🔥`
 1. [吴京的责任感有多强](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E7%9A%84%E8%B4%A3%E4%BB%BB%E6%84%9F%E6%9C%89%E5%A4%9A%E5%BC%BA%23&Refer=top) `851.4K 🔥`
-1. [也门渔民捡到127公斤龙涎香](https://s.weibo.com/weibo?q=%23%E4%B9%9F%E9%97%A8%E6%B8%94%E6%B0%91%E6%8D%A1%E5%88%B0127%E5%85%AC%E6%96%A4%E9%BE%99%E6%B6%8E%E9%A6%99%23&Refer=top) `847.7K 🔥`
 
-数据更新于 2021-06-24 14:58:13
+数据更新于 2021-06-24 15:20:13
 
 <!-- END -->
 
