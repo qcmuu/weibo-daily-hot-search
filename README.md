@@ -10,8 +10,10 @@
 1. [六小龄童仔细确认面具是否开了](https://s.weibo.com/weibo?q=%23%E5%85%AD%E5%B0%8F%E9%BE%84%E7%AB%A5%E4%BB%94%E7%BB%86%E7%A1%AE%E8%AE%A4%E9%9D%A2%E5%85%B7%E6%98%AF%E5%90%A6%E5%BC%80%E4%BA%86%23&Refer=top) `3.3M 🔥`
 1. [鹦鹉偷吃主人21颗钻石](https://s.weibo.com/weibo?q=%23%E9%B9%A6%E9%B9%89%E5%81%B7%E5%90%83%E4%B8%BB%E4%BA%BA21%E9%A2%97%E9%92%BB%E7%9F%B3%23&Refer=top) `2.5M 🔥`
 1. [福建提前打铃高考考点多人被处理](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E6%8F%90%E5%89%8D%E6%89%93%E9%93%83%E9%AB%98%E8%80%83%E8%80%83%E7%82%B9%E5%A4%9A%E4%BA%BA%E8%A2%AB%E5%A4%84%E7%90%86%23&Refer=top) `1.2M 🔥`
+1. [钟南山呼吁未成年人和老人加强疫苗接种](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E5%91%BC%E5%90%81%E6%9C%AA%E6%88%90%E5%B9%B4%E4%BA%BA%E5%92%8C%E8%80%81%E4%BA%BA%E5%8A%A0%E5%BC%BA%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%23&Refer=top) `1.1M 🔥`
 1. [李沁 每次穿上白衣我都热血沸腾](https://s.weibo.com/weibo?q=%E6%9D%8E%E6%B2%81%20%E6%AF%8F%E6%AC%A1%E7%A9%BF%E4%B8%8A%E7%99%BD%E8%A1%A3%E6%88%91%E9%83%BD%E7%83%AD%E8%A1%80%E6%B2%B8%E8%85%BE&Refer=top) `1.0M 🔥`
 1. [师傅 他就是梁靖康](https://s.weibo.com/weibo?q=%E5%B8%88%E5%82%85%20%E4%BB%96%E5%B0%B1%E6%98%AF%E6%A2%81%E9%9D%96%E5%BA%B7&Refer=top) `993.3K 🔥`
+1. [马嘉祺 我没有达到文化课分数线](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%98%89%E7%A5%BA%20%E6%88%91%E6%B2%A1%E6%9C%89%E8%BE%BE%E5%88%B0%E6%96%87%E5%8C%96%E8%AF%BE%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `676.2K 🔥`
 1. [怎样判断宾馆里是否被安装摄像头](https://s.weibo.com/weibo?q=%23%E6%80%8E%E6%A0%B7%E5%88%A4%E6%96%AD%E5%AE%BE%E9%A6%86%E9%87%8C%E6%98%AF%E5%90%A6%E8%A2%AB%E5%AE%89%E8%A3%85%E6%91%84%E5%83%8F%E5%A4%B4%23&Refer=top) `665.8K 🔥`
 1. [支付宝收钱码免费提现服务再延长](https://s.weibo.com/weibo?q=%23%E6%94%AF%E4%BB%98%E5%AE%9D%E6%94%B6%E9%92%B1%E7%A0%81%E5%85%8D%E8%B4%B9%E6%8F%90%E7%8E%B0%E6%9C%8D%E5%8A%A1%E5%86%8D%E5%BB%B6%E9%95%BF%23&Refer=top) `654.4K 🔥`
 1. [我国超6.3亿人接种新冠疫苗](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E8%B6%856.3%E4%BA%BF%E4%BA%BA%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `565.3K 🔥`
@@ -47,7 +49,6 @@
 1. [郑恺王嘉尔上海话拌嘴](https://s.weibo.com/weibo?q=%23%E9%83%91%E6%81%BA%E7%8E%8B%E5%98%89%E5%B0%94%E4%B8%8A%E6%B5%B7%E8%AF%9D%E6%8B%8C%E5%98%B4%23&Refer=top) `301.0K 🔥`
 1. [张哲瀚许凯笑死](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E8%AE%B8%E5%87%AF%E7%AC%91%E6%AD%BB%23&Refer=top) `289.5K 🔥`
 1. [王冰冰唱蜜雪冰城](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%86%B0%E5%86%B0%E5%94%B1%E8%9C%9C%E9%9B%AA%E5%86%B0%E5%9F%8E%23&Refer=top) `279.8K 🔥`
-1. [钟南山呼吁未成年人和老人加强疫苗接种](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E5%91%BC%E5%90%81%E6%9C%AA%E6%88%90%E5%B9%B4%E4%BA%BA%E5%92%8C%E8%80%81%E4%BA%BA%E5%8A%A0%E5%BC%BA%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%23&Refer=top) `275.3K 🔥`
 1. [千古玦尘](https://s.weibo.com/weibo?q=%E5%8D%83%E5%8F%A4%E7%8E%A6%E5%B0%98&Refer=top) `272.6K 🔥`
 1. [支持企事业单位等举办托育服务机构](https://s.weibo.com/weibo?q=%23%E6%94%AF%E6%8C%81%E4%BC%81%E4%BA%8B%E4%B8%9A%E5%8D%95%E4%BD%8D%E7%AD%89%E4%B8%BE%E5%8A%9E%E6%89%98%E8%82%B2%E6%9C%8D%E5%8A%A1%E6%9C%BA%E6%9E%84%23&Refer=top) `271.7K 🔥`
 1. [海上繁花](https://s.weibo.com/weibo?q=%E6%B5%B7%E4%B8%8A%E7%B9%81%E8%8A%B1&Refer=top) `271.3K 🔥`
@@ -55,9 +56,8 @@
 1. [郑恺 舟山](https://s.weibo.com/weibo?q=%E9%83%91%E6%81%BA%20%E8%88%9F%E5%B1%B1&Refer=top) `241.3K 🔥`
 1. [你微笑时很美](https://s.weibo.com/weibo?q=%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E&Refer=top) `239.1K 🔥`
 1. [蓝心洁给林楠笙做的最后一顿饭](https://s.weibo.com/weibo?q=%23%E8%93%9D%E5%BF%83%E6%B4%81%E7%BB%99%E6%9E%97%E6%A5%A0%E7%AC%99%E5%81%9A%E7%9A%84%E6%9C%80%E5%90%8E%E4%B8%80%E9%A1%BF%E9%A5%AD%23&Refer=top) `227.4K 🔥`
-1. [江熠余声声双向告白](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E7%86%A0%E4%BD%99%E5%A3%B0%E5%A3%B0%E5%8F%8C%E5%90%91%E5%91%8A%E7%99%BD%23&Refer=top) `214.1K 🔥`
 
-数据更新于 2021-06-26 07:40:28
+数据更新于 2021-06-26 07:57:35
 
 <!-- END -->
 
