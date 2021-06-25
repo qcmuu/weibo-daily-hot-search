@@ -23,6 +23,7 @@
 1. [广东高考分数线](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%23&Refer=top) `1.4M 🔥`
 1. [章泽天黑白芭蕾舞旧照](https://s.weibo.com/weibo?q=%23%E7%AB%A0%E6%B3%BD%E5%A4%A9%E9%BB%91%E7%99%BD%E8%8A%AD%E8%95%BE%E8%88%9E%E6%97%A7%E7%85%A7%23&Refer=top) `1.3M 🔥`
 1. [四川同校两个陈静怡高考高分](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%90%8C%E6%A0%A1%E4%B8%A4%E4%B8%AA%E9%99%88%E9%9D%99%E6%80%A1%E9%AB%98%E8%80%83%E9%AB%98%E5%88%86%23&Refer=top) `1.3M 🔥`
+1. [女生复读一年涨58分激动尖叫](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%A4%8D%E8%AF%BB%E4%B8%80%E5%B9%B4%E6%B6%A858%E5%88%86%E6%BF%80%E5%8A%A8%E5%B0%96%E5%8F%AB%23&Refer=top) `1.3M 🔥`
 1. [张馨予承诺不再沉迷种花种菜](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A6%A8%E4%BA%88%E6%89%BF%E8%AF%BA%E4%B8%8D%E5%86%8D%E6%B2%89%E8%BF%B7%E7%A7%8D%E8%8A%B1%E7%A7%8D%E8%8F%9C%23&Refer=top) `1.3M 🔥`
 1. [文在寅提名95后女大学生做秘书](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E6%8F%90%E5%90%8D95%E5%90%8E%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%81%9A%E7%A7%98%E4%B9%A6%23&Refer=top) `1.2M 🔥`
 1. [北京高考前20名考生成绩暂不公布](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E9%AB%98%E8%80%83%E5%89%8D20%E5%90%8D%E8%80%83%E7%94%9F%E6%88%90%E7%BB%A9%E6%9A%82%E4%B8%8D%E5%85%AC%E5%B8%83%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [iOS15](https://s.weibo.com/weibo?q=iOS15&Refer=top) `730.1K 🔥`
 1. [爷爷喂大的拉布拉多](https://s.weibo.com/weibo?q=%23%E7%88%B7%E7%88%B7%E5%96%82%E5%A4%A7%E7%9A%84%E6%8B%89%E5%B8%83%E6%8B%89%E5%A4%9A%23&Refer=top) `708.9K 🔥`
 1. [天官赐福](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%AE%98%E8%B5%90%E7%A6%8F&Refer=top) `698.5K 🔥`
-1. [C罗背后浇水偷袭佩佩](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E8%83%8C%E5%90%8E%E6%B5%87%E6%B0%B4%E5%81%B7%E8%A2%AD%E4%BD%A9%E4%BD%A9%23&Refer=top) `681.8K 🔥`
 
-数据更新于 2021-06-25 14:56:33
+数据更新于 2021-06-25 15:17:47
 
 <!-- END -->
 
