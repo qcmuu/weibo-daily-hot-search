@@ -31,18 +31,18 @@
 1. [河南学霸班60人全过一本线](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%AD%A6%E9%9C%B8%E7%8F%AD60%E4%BA%BA%E5%85%A8%E8%BF%87%E4%B8%80%E6%9C%AC%E7%BA%BF%23&Refer=top) `1.0M 🔥`
 1. [张艺兴彭昱畅嘚瑟的样子太好笑了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%BD%AD%E6%98%B1%E7%95%85%E5%98%9A%E7%91%9F%E7%9A%84%E6%A0%B7%E5%AD%90%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `1.0M 🔥`
 1. [师傅 他就是梁靖康](https://s.weibo.com/weibo?q=%E5%B8%88%E5%82%85%20%E4%BB%96%E5%B0%B1%E6%98%AF%E6%A2%81%E9%9D%96%E5%BA%B7&Refer=top) `993.3K 🔥`
+1. [男生考649分福利院阿姨激动落泪](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%80%83649%E5%88%86%E7%A6%8F%E5%88%A9%E9%99%A2%E9%98%BF%E5%A7%A8%E6%BF%80%E5%8A%A8%E8%90%BD%E6%B3%AA%23&Refer=top) `988.6K 🔥`
+1. [女护士打哈欠下巴脱臼](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%8A%A4%E5%A3%AB%E6%89%93%E5%93%88%E6%AC%A0%E4%B8%8B%E5%B7%B4%E8%84%B1%E8%87%BC%23&Refer=top) `977.8K 🔥`
 1. [权珉娥公开恋情](https://s.weibo.com/weibo?q=%23%E6%9D%83%E7%8F%89%E5%A8%A5%E5%85%AC%E5%BC%80%E6%81%8B%E6%83%85%23&Refer=top) `974.0K 🔥`
 1. [朱芳雨确认易建联新赛季复出](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E8%8A%B3%E9%9B%A8%E7%A1%AE%E8%AE%A4%E6%98%93%E5%BB%BA%E8%81%94%E6%96%B0%E8%B5%9B%E5%AD%A3%E5%A4%8D%E5%87%BA%23&Refer=top) `947.3K 🔥`
 1. [黄景瑜抢买单输错两次密码](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E6%8A%A2%E4%B9%B0%E5%8D%95%E8%BE%93%E9%94%99%E4%B8%A4%E6%AC%A1%E5%AF%86%E7%A0%81%23&Refer=top) `937.2K 🔥`
 1. [原来黑袜子有隐身效果](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%BB%91%E8%A2%9C%E5%AD%90%E6%9C%89%E9%9A%90%E8%BA%AB%E6%95%88%E6%9E%9C%23&Refer=top) `919.9K 🔥`
 1. [张子枫一人扛一张桌子](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E4%B8%80%E4%BA%BA%E6%89%9B%E4%B8%80%E5%BC%A0%E6%A1%8C%E5%AD%90%23&Refer=top) `895.7K 🔥`
 1. [你的婚礼](https://s.weibo.com/weibo?q=%E4%BD%A0%E7%9A%84%E5%A9%9A%E7%A4%BC&Refer=top) `802.6K 🔥`
-1. [男生考649分福利院阿姨激动落泪](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%80%83649%E5%88%86%E7%A6%8F%E5%88%A9%E9%99%A2%E9%98%BF%E5%A7%A8%E6%BF%80%E5%8A%A8%E8%90%BD%E6%B3%AA%23&Refer=top) `788.7K 🔥`
 1. [广东考生考654分家长送牛感谢学校](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E8%80%83%E7%94%9F%E8%80%83654%E5%88%86%E5%AE%B6%E9%95%BF%E9%80%81%E7%89%9B%E6%84%9F%E8%B0%A2%E5%AD%A6%E6%A0%A1%23&Refer=top) `749.0K 🔥`
 1. [清华大学2021年研究生毕业典礼](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%A4%A7%E5%AD%A62021%E5%B9%B4%E7%A0%94%E7%A9%B6%E7%94%9F%E6%AF%95%E4%B8%9A%E5%85%B8%E7%A4%BC%23&Refer=top) `745.4K 🔥`
 1. [江西一男子17层楼外躲避火灾被困](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%A5%BF%E4%B8%80%E7%94%B7%E5%AD%9017%E5%B1%82%E6%A5%BC%E5%A4%96%E8%BA%B2%E9%81%BF%E7%81%AB%E7%81%BE%E8%A2%AB%E5%9B%B0%23&Refer=top) `741.8K 🔥`
 1. [巧克力果冻也可能是毒品](https://s.weibo.com/weibo?q=%23%E5%B7%A7%E5%85%8B%E5%8A%9B%E6%9E%9C%E5%86%BB%E4%B9%9F%E5%8F%AF%E8%83%BD%E6%98%AF%E6%AF%92%E5%93%81%23&Refer=top) `736.8K 🔥`
-1. [女护士打哈欠下巴脱臼](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%8A%A4%E5%A3%AB%E6%89%93%E5%93%88%E6%AC%A0%E4%B8%8B%E5%B7%B4%E8%84%B1%E8%87%BC%23&Refer=top) `709.4K 🔥`
 1. [广州全市均为低风险地区](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%85%A8%E5%B8%82%E5%9D%87%E4%B8%BA%E4%BD%8E%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA%23&Refer=top) `677.8K 🔥`
 1. [广东超1.5万吨荔枝出口](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E8%B6%851.5%E4%B8%87%E5%90%A8%E8%8D%94%E6%9E%9D%E5%87%BA%E5%8F%A3%23&Refer=top) `676.8K 🔥`
 1. [马嘉祺 我没有达到文化课分数线](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%98%89%E7%A5%BA%20%E6%88%91%E6%B2%A1%E6%9C%89%E8%BE%BE%E5%88%B0%E6%96%87%E5%8C%96%E8%AF%BE%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `676.2K 🔥`
@@ -57,7 +57,7 @@
 1. [林一说公司唐人的戏全员BE](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%B8%80%E8%AF%B4%E5%85%AC%E5%8F%B8%E5%94%90%E4%BA%BA%E7%9A%84%E6%88%8F%E5%85%A8%E5%91%98BE%23&Refer=top) `661.7K 🔥`
 1. [上快本太费名字了](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E5%BF%AB%E6%9C%AC%E5%A4%AA%E8%B4%B9%E5%90%8D%E5%AD%97%E4%BA%86%23&Refer=top) `661.6K 🔥`
 
-数据更新于 2021-06-26 17:44:16
+数据更新于 2021-06-26 17:57:43
 
 <!-- END -->
 
