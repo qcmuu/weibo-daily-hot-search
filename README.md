@@ -15,6 +15,7 @@
 1. [成全张桂梅的人](https://s.weibo.com/weibo?q=%23%E6%88%90%E5%85%A8%E5%BC%A0%E6%A1%82%E6%A2%85%E7%9A%84%E4%BA%BA%23&Refer=top) `442.2K 🔥`
 1. [新华社记者瞿独伊获得七一勋章](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%8D%8E%E7%A4%BE%E8%AE%B0%E8%80%85%E7%9E%BF%E7%8B%AC%E4%BC%8A%E8%8E%B7%E5%BE%97%E4%B8%83%E4%B8%80%E5%8B%8B%E7%AB%A0%23&Refer=top) `432.4K 🔥`
 1. [爷爷收到在党50年纪念章的反应](https://s.weibo.com/weibo?q=%23%E7%88%B7%E7%88%B7%E6%94%B6%E5%88%B0%E5%9C%A8%E5%85%9A50%E5%B9%B4%E7%BA%AA%E5%BF%B5%E7%AB%A0%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `397.3K 🔥`
+1. [死亡之组全部死亡](https://s.weibo.com/weibo?q=%E6%AD%BB%E4%BA%A1%E4%B9%8B%E7%BB%84%E5%85%A8%E9%83%A8%E6%AD%BB%E4%BA%A1&Refer=top) `392.1K 🔥`
 1. [老人被卷公交车底众人抬车施救](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E8%A2%AB%E5%8D%B7%E5%85%AC%E4%BA%A4%E8%BD%A6%E5%BA%95%E4%BC%97%E4%BA%BA%E6%8A%AC%E8%BD%A6%E6%96%BD%E6%95%91%23&Refer=top) `320.9K 🔥`
 1. [高考623分外卖小哥决定留在武汉上学](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83623%E5%88%86%E5%A4%96%E5%8D%96%E5%B0%8F%E5%93%A5%E5%86%B3%E5%AE%9A%E7%95%99%E5%9C%A8%E6%AD%A6%E6%B1%89%E4%B8%8A%E5%AD%A6%23&Refer=top) `297.5K 🔥`
 1. [走失小男孩在派出所被疯狂投喂](https://s.weibo.com/weibo?q=%23%E8%B5%B0%E5%A4%B1%E5%B0%8F%E7%94%B7%E5%AD%A9%E5%9C%A8%E6%B4%BE%E5%87%BA%E6%89%80%E8%A2%AB%E7%96%AF%E7%8B%82%E6%8A%95%E5%96%82%23&Refer=top) `294.0K 🔥`
@@ -55,9 +56,8 @@
 1. [江苏102个婚姻登记处提供免费婚前辅导](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F102%E4%B8%AA%E5%A9%9A%E5%A7%BB%E7%99%BB%E8%AE%B0%E5%A4%84%E6%8F%90%E4%BE%9B%E5%85%8D%E8%B4%B9%E5%A9%9A%E5%89%8D%E8%BE%85%E5%AF%BC%23&Refer=top) `126.9K 🔥`
 1. [四川有个火车站名叫高兴站](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E6%9C%89%E4%B8%AA%E7%81%AB%E8%BD%A6%E7%AB%99%E5%90%8D%E5%8F%AB%E9%AB%98%E5%85%B4%E7%AB%99%23&Refer=top) `126.5K 🔥`
 1. [潘粤明晒父亲光荣在党50年奖章](https://s.weibo.com/weibo?q=%23%E6%BD%98%E7%B2%A4%E6%98%8E%E6%99%92%E7%88%B6%E4%BA%B2%E5%85%89%E8%8D%A3%E5%9C%A8%E5%85%9A50%E5%B9%B4%E5%A5%96%E7%AB%A0%23&Refer=top) `119.2K 🔥`
-1. [火神山医院设计手稿](https://s.weibo.com/weibo?q=%23%E7%81%AB%E7%A5%9E%E5%B1%B1%E5%8C%BB%E9%99%A2%E8%AE%BE%E8%AE%A1%E6%89%8B%E7%A8%BF%23&Refer=top) `108.5K 🔥`
 
-数据更新于 2021-06-30 02:06:01
+数据更新于 2021-06-30 02:36:36
 
 <!-- END -->
 
