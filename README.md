@@ -8,7 +8,7 @@
 
 1. [7月新规](https://s.weibo.com/weibo?q=7%E6%9C%88%E6%96%B0%E8%A7%84&Refer=top) `4.5M 🔥`
 1. [退税](https://s.weibo.com/weibo?q=%E9%80%80%E7%A8%8E&Refer=top) `2.9M 🔥`
-1. [英雄机长刘传健获全国优秀共产党员](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E9%9B%84%E6%9C%BA%E9%95%BF%E5%88%98%E4%BC%A0%E5%81%A5%E8%8E%B7%E5%85%A8%E5%9B%BD%E4%BC%98%E7%A7%80%E5%85%B1%E4%BA%A7%E5%85%9A%E5%91%98%23&Refer=top) `2.3M 🔥`
+1. [英雄机长刘传健获全国优秀共产党员](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E9%9B%84%E6%9C%BA%E9%95%BF%E5%88%98%E4%BC%A0%E5%81%A5%E8%8E%B7%E5%85%A8%E5%9B%BD%E4%BC%98%E7%A7%80%E5%85%B1%E4%BA%A7%E5%85%9A%E5%91%98%23&Refer=top) `2.4M 🔥`
 1. [奈雪的茶上市首日破发](https://s.weibo.com/weibo?q=%23%E5%A5%88%E9%9B%AA%E7%9A%84%E8%8C%B6%E4%B8%8A%E5%B8%82%E9%A6%96%E6%97%A5%E7%A0%B4%E5%8F%91%23&Refer=top) `2.2M 🔥`
 1. [中国正式获得世卫消除疟疾认证](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%BC%8F%E8%8E%B7%E5%BE%97%E4%B8%96%E5%8D%AB%E6%B6%88%E9%99%A4%E7%96%9F%E7%96%BE%E8%AE%A4%E8%AF%81%23&Refer=top) `1.9M 🔥`
 1. [新闻联播](https://s.weibo.com/weibo?q=%23%E6%96%B0%E9%97%BB%E8%81%94%E6%92%AD%23&Refer=top) `1.9M 🔥`
@@ -17,6 +17,7 @@
 1. [新疆消防员的颜值有多高](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%B6%88%E9%98%B2%E5%91%98%E7%9A%84%E9%A2%9C%E5%80%BC%E6%9C%89%E5%A4%9A%E9%AB%98%23&Refer=top) `1.4M 🔥`
 1. [消防员求婚遇出警扭头就跑](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E6%B1%82%E5%A9%9A%E9%81%87%E5%87%BA%E8%AD%A6%E6%89%AD%E5%A4%B4%E5%B0%B1%E8%B7%91%23&Refer=top) `1.2M 🔥`
 1. [九千万人拥有同一个名字](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E5%8D%83%E4%B8%87%E4%BA%BA%E6%8B%A5%E6%9C%89%E5%90%8C%E4%B8%80%E4%B8%AA%E5%90%8D%E5%AD%97%23&Refer=top) `1.1M 🔥`
+1. [1921票房破亿](https://s.weibo.com/weibo?q=%231921%E7%A5%A8%E6%88%BF%E7%A0%B4%E4%BA%BF%23&Refer=top) `1.0M 🔥`
 1. [狗狗独自乘公交还自己下了车](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E7%8B%AC%E8%87%AA%E4%B9%98%E5%85%AC%E4%BA%A4%E8%BF%98%E8%87%AA%E5%B7%B1%E4%B8%8B%E4%BA%86%E8%BD%A6%23&Refer=top) `985.5K 🔥`
 1. [重庆一小学楼顶种14000株向日葵](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%80%E5%B0%8F%E5%AD%A6%E6%A5%BC%E9%A1%B6%E7%A7%8D14000%E6%A0%AA%E5%90%91%E6%97%A5%E8%91%B5%23&Refer=top) `976.0K 🔥`
 1. [广东的早茶指的是几点](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E7%9A%84%E6%97%A9%E8%8C%B6%E6%8C%87%E7%9A%84%E6%98%AF%E5%87%A0%E7%82%B9%23&Refer=top) `944.9K 🔥`
@@ -25,7 +26,6 @@
 1. [中国共产党成立100周年纪念邮票](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E6%88%90%E7%AB%8B100%E5%91%A8%E5%B9%B4%E7%BA%AA%E5%BF%B5%E9%82%AE%E7%A5%A8&Refer=top) `849.7K 🔥`
 1. [把鼻子捏成了火箭](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E9%BC%BB%E5%AD%90%E6%8D%8F%E6%88%90%E4%BA%86%E7%81%AB%E7%AE%AD%23&Refer=top) `848.0K 🔥`
 1. [2021上半年最后1天](https://s.weibo.com/weibo?q=%232021%E4%B8%8A%E5%8D%8A%E5%B9%B4%E6%9C%80%E5%90%8E1%E5%A4%A9%23&Refer=top) `845.4K 🔥`
-1. [1921票房破亿](https://s.weibo.com/weibo?q=%231921%E7%A5%A8%E6%88%BF%E7%A0%B4%E4%BA%BF%23&Refer=top) `835.1K 🔥`
 1. [祖父李大钊的心愿实现了](https://s.weibo.com/weibo?q=%23%E7%A5%96%E7%88%B6%E6%9D%8E%E5%A4%A7%E9%92%8A%E7%9A%84%E5%BF%83%E6%84%BF%E5%AE%9E%E7%8E%B0%E4%BA%86%23&Refer=top) `757.6K 🔥`
 1. [深圳大鹏近海有鲸鱼出没](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E5%A4%A7%E9%B9%8F%E8%BF%91%E6%B5%B7%E6%9C%89%E9%B2%B8%E9%B1%BC%E5%87%BA%E6%B2%A1%23&Refer=top) `691.4K 🔥`
 1. [华理把学校气味做成香氛送毕业生](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E7%90%86%E6%8A%8A%E5%AD%A6%E6%A0%A1%E6%B0%94%E5%91%B3%E5%81%9A%E6%88%90%E9%A6%99%E6%B0%9B%E9%80%81%E6%AF%95%E4%B8%9A%E7%94%9F%23&Refer=top) `673.1K 🔥`
@@ -38,8 +38,8 @@
 1. [90后大学英语老师自编上千页教材](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E5%A4%A7%E5%AD%A6%E8%8B%B1%E8%AF%AD%E8%80%81%E5%B8%88%E8%87%AA%E7%BC%96%E4%B8%8A%E5%8D%83%E9%A1%B5%E6%95%99%E6%9D%90%23&Refer=top) `611.2K 🔥`
 1. [iPhone13没有屏下指纹解锁](https://s.weibo.com/weibo?q=%23iPhone13%E6%B2%A1%E6%9C%89%E5%B1%8F%E4%B8%8B%E6%8C%87%E7%BA%B9%E8%A7%A3%E9%94%81%23&Refer=top) `611.1K 🔥`
 1. [加拿大高温致130多人死亡](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E6%8B%BF%E5%A4%A7%E9%AB%98%E6%B8%A9%E8%87%B4130%E5%A4%9A%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `595.3K 🔥`
+1. [这语文真是白学了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%AF%AD%E6%96%87%E7%9C%9F%E6%98%AF%E7%99%BD%E5%AD%A6%E4%BA%86%23&Refer=top) `582.5K 🔥`
 1. [中国3名航天员在空间站祝党生日快乐](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD3%E5%90%8D%E8%88%AA%E5%A4%A9%E5%91%98%E5%9C%A8%E7%A9%BA%E9%97%B4%E7%AB%99%E7%A5%9D%E5%85%9A%E7%94%9F%E6%97%A5%E5%BF%AB%E4%B9%90%23&Refer=top) `567.6K 🔥`
-1. [这语文真是白学了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%AF%AD%E6%96%87%E7%9C%9F%E6%98%AF%E7%99%BD%E5%AD%A6%E4%BA%86%23&Refer=top) `566.1K 🔥`
 1. [中国共产党现有基层组织486.4万个](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E7%8E%B0%E6%9C%89%E5%9F%BA%E5%B1%82%E7%BB%84%E7%BB%87486.4%E4%B8%87%E4%B8%AA%23&Refer=top) `563.4K 🔥`
 1. [最尴尬的撞衫经历](https://s.weibo.com/weibo?q=%23%E6%9C%80%E5%B0%B4%E5%B0%AC%E7%9A%84%E6%92%9E%E8%A1%AB%E7%BB%8F%E5%8E%86%23&Refer=top) `531.6K 🔥`
 1. [我的真实英语水平](https://s.weibo.com/weibo?q=%23%E6%88%91%E7%9A%84%E7%9C%9F%E5%AE%9E%E8%8B%B1%E8%AF%AD%E6%B0%B4%E5%B9%B3%23&Refer=top) `530.6K 🔥`
@@ -57,7 +57,7 @@
 1. [成全张桂梅的人](https://s.weibo.com/weibo?q=%23%E6%88%90%E5%85%A8%E5%BC%A0%E6%A1%82%E6%A2%85%E7%9A%84%E4%BA%BA%23&Refer=top) `442.2K 🔥`
 1. [拌一拌就能做的酸奶蛋糕](https://s.weibo.com/weibo?q=%23%E6%8B%8C%E4%B8%80%E6%8B%8C%E5%B0%B1%E8%83%BD%E5%81%9A%E7%9A%84%E9%85%B8%E5%A5%B6%E8%9B%8B%E7%B3%95%23&Refer=top) `442.2K 🔥`
 
-数据更新于 2021-06-30 15:47:30
+数据更新于 2021-06-30 15:59:42
 
 <!-- END -->
 
