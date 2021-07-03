@@ -7,12 +7,13 @@
 <!-- BEGIN -->
 
 1. [滴滴](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%23&Refer=top) `4.9M 🔥`
-1. [刘雨昕因身体原因退出舞蹈生](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%A8%E6%98%95%E5%9B%A0%E8%BA%AB%E4%BD%93%E5%8E%9F%E5%9B%A0%E9%80%80%E5%87%BA%E8%88%9E%E8%B9%88%E7%94%9F%23&Refer=top) `3.4M 🔥`
+1. [刘雨昕因身体原因退出舞蹈生](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%A8%E6%98%95%E5%9B%A0%E8%BA%AB%E4%BD%93%E5%8E%9F%E5%9B%A0%E9%80%80%E5%87%BA%E8%88%9E%E8%B9%88%E7%94%9F%23&Refer=top) `3.9M 🔥`
 1. [Angelababy假扮NPC](https://s.weibo.com/weibo?q=%23Angelababy%E5%81%87%E6%89%AENPC%23&Refer=top) `3.1M 🔥`
 1. [产妇生下四胞胎男婴取名繁荣昌盛](https://s.weibo.com/weibo?q=%23%E4%BA%A7%E5%A6%87%E7%94%9F%E4%B8%8B%E5%9B%9B%E8%83%9E%E8%83%8E%E7%94%B7%E5%A9%B4%E5%8F%96%E5%90%8D%E7%B9%81%E8%8D%A3%E6%98%8C%E7%9B%9B%23&Refer=top) `3.0M 🔥`
 1. [泰坦尼克号残骸正在逐渐消失](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9D%A6%E5%B0%BC%E5%85%8B%E5%8F%B7%E6%AE%8B%E9%AA%B8%E6%AD%A3%E5%9C%A8%E9%80%90%E6%B8%90%E6%B6%88%E5%A4%B1%23&Refer=top) `2.7M 🔥`
 1. [大妈吃菌中毒在病床上抓老鼠](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E5%90%83%E8%8F%8C%E4%B8%AD%E6%AF%92%E5%9C%A8%E7%97%85%E5%BA%8A%E4%B8%8A%E6%8A%93%E8%80%81%E9%BC%A0%23&Refer=top) `2.5M 🔥`
 1. [江苏将出现9级以上大风](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%B0%86%E5%87%BA%E7%8E%B09%E7%BA%A7%E4%BB%A5%E4%B8%8A%E5%A4%A7%E9%A3%8E%23&Refer=top) `2.5M 🔥`
+1. [食用死亡2小时以上小龙虾容易中毒](https://s.weibo.com/weibo?q=%23%E9%A3%9F%E7%94%A8%E6%AD%BB%E4%BA%A12%E5%B0%8F%E6%97%B6%E4%BB%A5%E4%B8%8A%E5%B0%8F%E9%BE%99%E8%99%BE%E5%AE%B9%E6%98%93%E4%B8%AD%E6%AF%92%23&Refer=top) `2.4M 🔥`
 1. [感染幽门螺杆菌或诱发胃癌](https://s.weibo.com/weibo?q=%23%E6%84%9F%E6%9F%93%E5%B9%BD%E9%97%A8%E8%9E%BA%E6%9D%86%E8%8F%8C%E6%88%96%E8%AF%B1%E5%8F%91%E8%83%83%E7%99%8C%23&Refer=top) `2.4M 🔥`
 1. [正午到下午3点是吃冷饮最佳时机](https://s.weibo.com/weibo?q=%23%E6%AD%A3%E5%8D%88%E5%88%B0%E4%B8%8B%E5%8D%883%E7%82%B9%E6%98%AF%E5%90%83%E5%86%B7%E9%A5%AE%E6%9C%80%E4%BD%B3%E6%97%B6%E6%9C%BA%23&Refer=top) `2.3M 🔥`
 1. [李易峰洗澡戏冻得直哆嗦](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E6%B4%97%E6%BE%A1%E6%88%8F%E5%86%BB%E5%BE%97%E7%9B%B4%E5%93%86%E5%97%A6%23&Refer=top) `2.3M 🔥`
@@ -55,9 +56,8 @@
 1. [加拿大一周内超700人猝死](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%B8%80%E5%91%A8%E5%86%85%E8%B6%85700%E4%BA%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `795.1K 🔥`
 1. [宋妍霏爸爸写的情书保存了30年](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E7%88%B8%E7%88%B8%E5%86%99%E7%9A%84%E6%83%85%E4%B9%A6%E4%BF%9D%E5%AD%98%E4%BA%8630%E5%B9%B4%23&Refer=top) `794.8K 🔥`
 1. [小米向3904名员工授股](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%B1%B3%E5%90%913904%E5%90%8D%E5%91%98%E5%B7%A5%E6%8E%88%E8%82%A1%23&Refer=top) `726.1K 🔥`
-1. [张陶](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%99%B6&Refer=top) `704.3K 🔥`
 
-数据更新于 2021-07-03 18:23:59
+数据更新于 2021-07-03 18:41:49
 
 <!-- END -->
 
