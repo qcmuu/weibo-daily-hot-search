@@ -36,6 +36,7 @@
 1. [985学霸作息表](https://s.weibo.com/weibo?q=%23985%E5%AD%A6%E9%9C%B8%E4%BD%9C%E6%81%AF%E8%A1%A8%23&Refer=top) `353.2K 🔥`
 1. [娃娃机内玩偶藏瓷砖块](https://s.weibo.com/weibo?q=%23%E5%A8%83%E5%A8%83%E6%9C%BA%E5%86%85%E7%8E%A9%E5%81%B6%E8%97%8F%E7%93%B7%E7%A0%96%E5%9D%97%23&Refer=top) `332.0K 🔥`
 1. [欧洲杯](https://s.weibo.com/weibo?q=%E6%AC%A7%E6%B4%B2%E6%9D%AF&Refer=top) `323.3K 🔥`
+1. [钟南山称打开国门需要全世界共同努力](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E7%A7%B0%E6%89%93%E5%BC%80%E5%9B%BD%E9%97%A8%E9%9C%80%E8%A6%81%E5%85%A8%E4%B8%96%E7%95%8C%E5%85%B1%E5%90%8C%E5%8A%AA%E5%8A%9B%23&Refer=top) `321.7K 🔥`
 1. [四川石渠一棕熊凌晨在马路奔跑](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E7%9F%B3%E6%B8%A0%E4%B8%80%E6%A3%95%E7%86%8A%E5%87%8C%E6%99%A8%E5%9C%A8%E9%A9%AC%E8%B7%AF%E5%A5%94%E8%B7%91%23&Refer=top) `284.9K 🔥`
 1. [我们替你看](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BB%AC%E6%9B%BF%E4%BD%A0%E7%9C%8B%23&Refer=top) `270.6K 🔥`
 1. [李振宁将维他奶扔进垃圾桶](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%8C%AF%E5%AE%81%E5%B0%86%E7%BB%B4%E4%BB%96%E5%A5%B6%E6%89%94%E8%BF%9B%E5%9E%83%E5%9C%BE%E6%A1%B6%23&Refer=top) `268.6K 🔥`
@@ -55,9 +56,8 @@
 1. [王毅回应中美高层今年是否会接触](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%AF%85%E5%9B%9E%E5%BA%94%E4%B8%AD%E7%BE%8E%E9%AB%98%E5%B1%82%E4%BB%8A%E5%B9%B4%E6%98%AF%E5%90%A6%E4%BC%9A%E6%8E%A5%E8%A7%A6%23&Refer=top) `199.4K 🔥`
 1. [见过最硬气的撒娇](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E7%A1%AC%E6%B0%94%E7%9A%84%E6%92%92%E5%A8%87%23&Refer=top) `199.4K 🔥`
 1. [幼儿园毕业典礼萌娃不按套路出牌](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E6%AF%95%E4%B8%9A%E5%85%B8%E7%A4%BC%E8%90%8C%E5%A8%83%E4%B8%8D%E6%8C%89%E5%A5%97%E8%B7%AF%E5%87%BA%E7%89%8C%23&Refer=top) `187.7K 🔥`
-1. [LPL](https://s.weibo.com/weibo?q=LPL&Refer=top) `186.7K 🔥`
 
-数据更新于 2021-07-04 05:57:33
+数据更新于 2021-07-04 06:21:18
 
 <!-- END -->
 
