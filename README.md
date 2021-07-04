@@ -11,14 +11,14 @@
 1. [阿米尔汗离婚](https://s.weibo.com/weibo?q=%23%E9%98%BF%E7%B1%B3%E5%B0%94%E6%B1%97%E7%A6%BB%E5%A9%9A%23&Refer=top) `3.3M 🔥`
 1. [租户儿子高考608分房东免租4年](https://s.weibo.com/weibo?q=%23%E7%A7%9F%E6%88%B7%E5%84%BF%E5%AD%90%E9%AB%98%E8%80%83608%E5%88%86%E6%88%BF%E4%B8%9C%E5%85%8D%E7%A7%9F4%E5%B9%B4%23&Refer=top) `3.2M 🔥`
 1. [周也 很高兴成为大家的女儿](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%BE%88%E9%AB%98%E5%85%B4%E6%88%90%E4%B8%BA%E5%A4%A7%E5%AE%B6%E7%9A%84%E5%A5%B3%E5%84%BF&Refer=top) `2.5M 🔥`
+1. [两只46码的脚踩在了限位器](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%8F%AA46%E7%A0%81%E7%9A%84%E8%84%9A%E8%B8%A9%E5%9C%A8%E4%BA%86%E9%99%90%E4%BD%8D%E5%99%A8%23&Refer=top) `2.4M 🔥`
 1. [孟子义 张翰同学站起来](https://s.weibo.com/weibo?q=%E5%AD%9F%E5%AD%90%E4%B9%89%20%E5%BC%A0%E7%BF%B0%E5%90%8C%E5%AD%A6%E7%AB%99%E8%B5%B7%E6%9D%A5&Refer=top) `2.4M 🔥`
 1. [刘伯明出舱后感叹太漂亮了](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E5%87%BA%E8%88%B1%E5%90%8E%E6%84%9F%E5%8F%B9%E5%A4%AA%E6%BC%82%E4%BA%AE%E4%BA%86%23&Refer=top) `2.4M 🔥`
 1. [制片人否认张小斐耍大牌](https://s.weibo.com/weibo?q=%23%E5%88%B6%E7%89%87%E4%BA%BA%E5%90%A6%E8%AE%A4%E5%BC%A0%E5%B0%8F%E6%96%90%E8%80%8D%E5%A4%A7%E7%89%8C%23&Refer=top) `2.3M 🔥`
 1. [黄子韬 杨紫是我哥们](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%88%91%E5%93%A5%E4%BB%AC&Refer=top) `2.3M 🔥`
 1. [潘粤明瘦了](https://s.weibo.com/weibo?q=%23%E6%BD%98%E7%B2%A4%E6%98%8E%E7%98%A6%E4%BA%86%23&Refer=top) `2.3M 🔥`
+1. [赖冠霖因合约官司停工163天](https://s.weibo.com/weibo?q=%23%E8%B5%96%E5%86%A0%E9%9C%96%E5%9B%A0%E5%90%88%E7%BA%A6%E5%AE%98%E5%8F%B8%E5%81%9C%E5%B7%A5163%E5%A4%A9%23&Refer=top) `1.9M 🔥`
 1. [38岁记者辞职靠养花月入10万](https://s.weibo.com/weibo?q=%2338%E5%B2%81%E8%AE%B0%E8%80%85%E8%BE%9E%E8%81%8C%E9%9D%A0%E5%85%BB%E8%8A%B1%E6%9C%88%E5%85%A510%E4%B8%87%23&Refer=top) `1.9M 🔥`
-1. [两只46码的脚踩在了限位器](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%8F%AA46%E7%A0%81%E7%9A%84%E8%84%9A%E8%B8%A9%E5%9C%A8%E4%BA%86%E9%99%90%E4%BD%8D%E5%99%A8%23&Refer=top) `1.8M 🔥`
-1. [赖冠霖因合约官司停工163天](https://s.weibo.com/weibo?q=%23%E8%B5%96%E5%86%A0%E9%9C%96%E5%9B%A0%E5%90%88%E7%BA%A6%E5%AE%98%E5%8F%B8%E5%81%9C%E5%B7%A5163%E5%A4%A9%23&Refer=top) `1.8M 🔥`
 1. [钟南山请大家放心打国产疫苗](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E8%AF%B7%E5%A4%A7%E5%AE%B6%E6%94%BE%E5%BF%83%E6%89%93%E5%9B%BD%E4%BA%A7%E7%96%AB%E8%8B%97%23&Refer=top) `1.7M 🔥`
 1. [郑渊洁回复鹿晗女友粉晓彤好](https://s.weibo.com/weibo?q=%23%E9%83%91%E6%B8%8A%E6%B4%81%E5%9B%9E%E5%A4%8D%E9%B9%BF%E6%99%97%E5%A5%B3%E5%8F%8B%E7%B2%89%E6%99%93%E5%BD%A4%E5%A5%BD%23&Refer=top) `1.7M 🔥`
 1. [医生醉酒后给自己配药扎针](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E9%86%89%E9%85%92%E5%90%8E%E7%BB%99%E8%87%AA%E5%B7%B1%E9%85%8D%E8%8D%AF%E6%89%8E%E9%92%88%23&Refer=top) `1.5M 🔥`
@@ -46,18 +46,18 @@
 1. [天官赐福](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%AE%98%E8%B5%90%E7%A6%8F&Refer=top) `880.9K 🔥`
 1. [狠狠懂了](https://s.weibo.com/weibo?q=%23%E7%8B%A0%E7%8B%A0%E6%87%82%E4%BA%86%23&Refer=top) `849.7K 🔥`
 1. [宋雨琦的披萨好大](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E9%9B%A8%E7%90%A6%E7%9A%84%E6%8A%AB%E8%90%A8%E5%A5%BD%E5%A4%A7%23&Refer=top) `842.7K 🔥`
+1. [面馆开业免费请40名环卫工吃饭](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E9%A6%86%E5%BC%80%E4%B8%9A%E5%85%8D%E8%B4%B9%E8%AF%B740%E5%90%8D%E7%8E%AF%E5%8D%AB%E5%B7%A5%E5%90%83%E9%A5%AD%23&Refer=top) `828.2K 🔥`
 1. [Lwx状态](https://s.weibo.com/weibo?q=%23Lwx%E7%8A%B6%E6%80%81%23&Refer=top) `817.1K 🔥`
 1. [周鸿祎要造15万以下智能车](https://s.weibo.com/weibo?q=%23%E5%91%A8%E9%B8%BF%E7%A5%8E%E8%A6%81%E9%80%A015%E4%B8%87%E4%BB%A5%E4%B8%8B%E6%99%BA%E8%83%BD%E8%BD%A6%23&Refer=top) `809.6K 🔥`
+1. [刘伯明把东北话带到了太空](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E6%8A%8A%E4%B8%9C%E5%8C%97%E8%AF%9D%E5%B8%A6%E5%88%B0%E4%BA%86%E5%A4%AA%E7%A9%BA%23&Refer=top) `806.8K 🔥`
 1. [郭晶晶为霍启刚庆生](https://s.weibo.com/weibo?q=%23%E9%83%AD%E6%99%B6%E6%99%B6%E4%B8%BA%E9%9C%8D%E5%90%AF%E5%88%9A%E5%BA%86%E7%94%9F%23&Refer=top) `741.2K 🔥`
 1. [世界上最小的山是静山](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E4%B8%8A%E6%9C%80%E5%B0%8F%E7%9A%84%E5%B1%B1%E6%98%AF%E9%9D%99%E5%B1%B1%23&Refer=top) `711.1K 🔥`
 1. [去桂林的最好时候是雨天](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E6%A1%82%E6%9E%97%E7%9A%84%E6%9C%80%E5%A5%BD%E6%97%B6%E5%80%99%E6%98%AF%E9%9B%A8%E5%A4%A9%23&Refer=top) `708.3K 🔥`
 1. [若是陈延年目睹墓前的花](https://s.weibo.com/weibo?q=%23%E8%8B%A5%E6%98%AF%E9%99%88%E5%BB%B6%E5%B9%B4%E7%9B%AE%E7%9D%B9%E5%A2%93%E5%89%8D%E7%9A%84%E8%8A%B1%23&Refer=top) `698.4K 🔥`
 1. [李小冉侧颜](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%B0%8F%E5%86%89%E4%BE%A7%E9%A2%9C%23&Refer=top) `695.4K 🔥`
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `670.8K 🔥`
-1. [四川严禁强制学生购买平板电脑](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E4%B8%A5%E7%A6%81%E5%BC%BA%E5%88%B6%E5%AD%A6%E7%94%9F%E8%B4%AD%E4%B9%B0%E5%B9%B3%E6%9D%BF%E7%94%B5%E8%84%91%23&Refer=top) `657.1K 🔥`
-1. [130公斤航天服穿脱只用3分钟](https://s.weibo.com/weibo?q=130%E5%85%AC%E6%96%A4%E8%88%AA%E5%A4%A9%E6%9C%8D%E7%A9%BF%E8%84%B1%E5%8F%AA%E7%94%A83%E5%88%86%E9%92%9F&Refer=top) `643.0K 🔥`
 
-数据更新于 2021-07-04 17:23:40
+数据更新于 2021-07-04 17:42:53
 
 <!-- END -->
 
