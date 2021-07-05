@@ -31,6 +31,7 @@
 1. [新闻主播辞职回家卖保险照顾病母](https://s.weibo.com/weibo?q=%23%E6%96%B0%E9%97%BB%E4%B8%BB%E6%92%AD%E8%BE%9E%E8%81%8C%E5%9B%9E%E5%AE%B6%E5%8D%96%E4%BF%9D%E9%99%A9%E7%85%A7%E9%A1%BE%E7%97%85%E6%AF%8D%23&Refer=top) `2.0M 🔥`
 1. [江苏女生中考757分8门满分](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%A5%B3%E7%94%9F%E4%B8%AD%E8%80%83757%E5%88%868%E9%97%A8%E6%BB%A1%E5%88%86%23&Refer=top) `1.9M 🔥`
 1. [出生仅4天婴儿被蜱虫咬伤](https://s.weibo.com/weibo?q=%23%E5%87%BA%E7%94%9F%E4%BB%854%E5%A4%A9%E5%A9%B4%E5%84%BF%E8%A2%AB%E8%9C%B1%E8%99%AB%E5%92%AC%E4%BC%A4%23&Refer=top) `1.9M 🔥`
+1. [官方回应网红穿日式洛丽塔裙跳舞](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E7%BD%91%E7%BA%A2%E7%A9%BF%E6%97%A5%E5%BC%8F%E6%B4%9B%E4%B8%BD%E5%A1%94%E8%A3%99%E8%B7%B3%E8%88%9E%23&Refer=top) `1.9M 🔥`
 1. [张月 林有有成为标签挺好](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%9C%88%20%E6%9E%97%E6%9C%89%E6%9C%89%E6%88%90%E4%B8%BA%E6%A0%87%E7%AD%BE%E6%8C%BA%E5%A5%BD&Refer=top) `1.8M 🔥`
 1. [这张漫画又破防了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%BC%A0%E6%BC%AB%E7%94%BB%E5%8F%88%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `1.8M 🔥`
 1. [研究生录取通知能有多敷衍](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E8%83%BD%E6%9C%89%E5%A4%9A%E6%95%B7%E8%A1%8D%23&Refer=top) `1.7M 🔥`
@@ -54,10 +55,9 @@
 1. [腾讯平均7天投资一家游戏公司](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%B9%B3%E5%9D%877%E5%A4%A9%E6%8A%95%E8%B5%84%E4%B8%80%E5%AE%B6%E6%B8%B8%E6%88%8F%E5%85%AC%E5%8F%B8%23&Refer=top) `1.1M 🔥`
 1. [台湾现多起接种莫德纳疫苗后猝死事件](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%8E%B0%E5%A4%9A%E8%B5%B7%E6%8E%A5%E7%A7%8D%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97%E5%90%8E%E7%8C%9D%E6%AD%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.0M 🔥`
 1. [追光者开机](https://s.weibo.com/weibo?q=%23%E8%BF%BD%E5%85%89%E8%80%85%E5%BC%80%E6%9C%BA%23&Refer=top) `1.0M 🔥`
-1. [重庆发现吃虫植物](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%8F%91%E7%8E%B0%E5%90%83%E8%99%AB%E6%A4%8D%E7%89%A9%23&Refer=top) `999.4K 🔥`
-1. [爸爸穿裙子教女儿防走光](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E7%A9%BF%E8%A3%99%E5%AD%90%E6%95%99%E5%A5%B3%E5%84%BF%E9%98%B2%E8%B5%B0%E5%85%89%23&Refer=top) `984.1K 🔥`
+1. [逃了但没完全逃](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%86%E4%BD%86%E6%B2%A1%E5%AE%8C%E5%85%A8%E9%80%83%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-07-05 22:47:32
+数据更新于 2021-07-05 22:59:54
 
 <!-- END -->
 
