@@ -13,12 +13,13 @@
 1. [金希澈MOMO分手](https://s.weibo.com/weibo?q=%23%E9%87%91%E5%B8%8C%E6%BE%88MOMO%E5%88%86%E6%89%8B%23&Refer=top) `2.4M 🔥`
 1. [同济大学拟退学10名研究生](https://s.weibo.com/weibo?q=%23%E5%90%8C%E6%B5%8E%E5%A4%A7%E5%AD%A6%E6%8B%9F%E9%80%80%E5%AD%A610%E5%90%8D%E7%A0%94%E7%A9%B6%E7%94%9F%23&Refer=top) `2.4M 🔥`
 1. [杨乐乐回应成被执行人](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B9%90%E4%B9%90%E5%9B%9E%E5%BA%94%E6%88%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E4%BA%BA%23&Refer=top) `2.1M 🔥`
+1. [海地总统身中12枪](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%E8%BA%AB%E4%B8%AD12%E6%9E%AA%23&Refer=top) `2.0M 🔥`
 1. [马化腾再次缺席世界人工智能大会](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%8C%96%E8%85%BE%E5%86%8D%E6%AC%A1%E7%BC%BA%E5%B8%AD%E4%B8%96%E7%95%8C%E4%BA%BA%E5%B7%A5%E6%99%BA%E8%83%BD%E5%A4%A7%E4%BC%9A%23&Refer=top) `1.8M 🔥`
 1. [姑姑带7个孩子过暑假](https://s.weibo.com/weibo?q=%23%E5%A7%91%E5%A7%91%E5%B8%A67%E4%B8%AA%E5%AD%A9%E5%AD%90%E8%BF%87%E6%9A%91%E5%81%87%23&Refer=top) `1.7M 🔥`
 1. [还珠格格当年的开机合影](https://s.weibo.com/weibo?q=%23%E8%BF%98%E7%8F%A0%E6%A0%BC%E6%A0%BC%E5%BD%93%E5%B9%B4%E7%9A%84%E5%BC%80%E6%9C%BA%E5%90%88%E5%BD%B1%23&Refer=top) `1.7M 🔥`
+1. [上海一4岁女童被闷车内拒绝援助](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%804%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%A2%AB%E9%97%B7%E8%BD%A6%E5%86%85%E6%8B%92%E7%BB%9D%E6%8F%B4%E5%8A%A9%23&Refer=top) `1.7M 🔥`
 1. [教育部称高考录取不存在内部指标](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E7%A7%B0%E9%AB%98%E8%80%83%E5%BD%95%E5%8F%96%E4%B8%8D%E5%AD%98%E5%9C%A8%E5%86%85%E9%83%A8%E6%8C%87%E6%A0%87%23&Refer=top) `1.6M 🔥`
 1. [滴滴官网下架滴滴出行App](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%E5%AE%98%E7%BD%91%E4%B8%8B%E6%9E%B6%E6%BB%B4%E6%BB%B4%E5%87%BA%E8%A1%8CApp%23&Refer=top) `1.6M 🔥`
-1. [上海一4岁女童被闷车内拒绝援助](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%804%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%A2%AB%E9%97%B7%E8%BD%A6%E5%86%85%E6%8B%92%E7%BB%9D%E6%8F%B4%E5%8A%A9%23&Refer=top) `1.6M 🔥`
 1. [焦恩俊女装照](https://s.weibo.com/weibo?q=%23%E7%84%A6%E6%81%A9%E4%BF%8A%E5%A5%B3%E8%A3%85%E7%85%A7%23&Refer=top) `1.5M 🔥`
 1. [云顶天宫定档](https://s.weibo.com/weibo?q=%23%E4%BA%91%E9%A1%B6%E5%A4%A9%E5%AE%AB%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.4M 🔥`
 1. [海地总统遇刺现场画面](https://s.weibo.com/weibo?q=%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%E9%81%87%E5%88%BA%E7%8E%B0%E5%9C%BA%E7%94%BB%E9%9D%A2&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [牛气满满的哥哥阵容](https://s.weibo.com/weibo?q=%23%E7%89%9B%E6%B0%94%E6%BB%A1%E6%BB%A1%E7%9A%84%E5%93%A5%E5%93%A5%E9%98%B5%E5%AE%B9%23&Refer=top) `653.0K 🔥`
 1. [涉嫌暗杀海地总统者已被拘留](https://s.weibo.com/weibo?q=%23%E6%B6%89%E5%AB%8C%E6%9A%97%E6%9D%80%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%E8%80%85%E5%B7%B2%E8%A2%AB%E6%8B%98%E7%95%99%23&Refer=top) `636.0K 🔥`
 1. [湘潭大学 航天服](https://s.weibo.com/weibo?q=%E6%B9%98%E6%BD%AD%E5%A4%A7%E5%AD%A6%20%E8%88%AA%E5%A4%A9%E6%9C%8D&Refer=top) `629.8K 🔥`
-1. [哈工程教师挥雨伞制服猥琐男](https://s.weibo.com/weibo?q=%23%E5%93%88%E5%B7%A5%E7%A8%8B%E6%95%99%E5%B8%88%E6%8C%A5%E9%9B%A8%E4%BC%9E%E5%88%B6%E6%9C%8D%E7%8C%A5%E7%90%90%E7%94%B7%23&Refer=top) `629.2K 🔥`
 
-数据更新于 2021-07-08 15:30:32
+数据更新于 2021-07-08 15:47:45
 
 <!-- END -->
 
