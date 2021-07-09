@@ -37,10 +37,12 @@
 1. [马子佳麦穗约会](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%AD%90%E4%BD%B3%E9%BA%A6%E7%A9%97%E7%BA%A6%E4%BC%9A%23&Refer=top) `440.2K 🔥`
 1. [黄子韬以为杨迪妈妈是演员](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E4%BB%A5%E4%B8%BA%E6%9D%A8%E8%BF%AA%E5%A6%88%E5%A6%88%E6%98%AF%E6%BC%94%E5%91%98%23&Refer=top) `379.1K 🔥`
 1. [这些小孩怎么都似曾相识](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%BA%9B%E5%B0%8F%E5%AD%A9%E6%80%8E%E4%B9%88%E9%83%BD%E4%BC%BC%E6%9B%BE%E7%9B%B8%E8%AF%86%23&Refer=top) `360.6K 🔥`
+1. [张艺兴和不爱读书的吴义帆](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E5%92%8C%E4%B8%8D%E7%88%B1%E8%AF%BB%E4%B9%A6%E7%9A%84%E5%90%B4%E4%B9%89%E5%B8%86%23&Refer=top) `356.3K 🔥`
 1. [当北京人的语音转为文字](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%8C%97%E4%BA%AC%E4%BA%BA%E7%9A%84%E8%AF%AD%E9%9F%B3%E8%BD%AC%E4%B8%BA%E6%96%87%E5%AD%97%23&Refer=top) `338.9K 🔥`
 1. [不要喊妈条约](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E5%96%8A%E5%A6%88%E6%9D%A1%E7%BA%A6%23&Refer=top) `323.0K 🔥`
-1. [张艺兴和不爱读书的吴义帆](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%89%BA%E5%85%B4%E5%92%8C%E4%B8%8D%E7%88%B1%E8%AF%BB%E4%B9%A6%E7%9A%84%E5%90%B4%E4%B9%89%E5%B8%86&Refer=top) `322.5K 🔥`
+1. [你是2D化妆还是3D化妆](https://s.weibo.com/weibo?q=%E4%BD%A0%E6%98%AF2D%E5%8C%96%E5%A6%86%E8%BF%98%E6%98%AF3D%E5%8C%96%E5%A6%86&Refer=top) `306.1K 🔥`
 1. [人生的第一份工作有多重要](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%94%9F%E7%9A%84%E7%AC%AC%E4%B8%80%E4%BB%BD%E5%B7%A5%E4%BD%9C%E6%9C%89%E5%A4%9A%E9%87%8D%E8%A6%81%23&Refer=top) `301.5K 🔥`
+1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `287.5K 🔥`
 1. [外交部回应慰安妇受害者展览被迫中止](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%85%B0%E5%AE%89%E5%A6%87%E5%8F%97%E5%AE%B3%E8%80%85%E5%B1%95%E8%A7%88%E8%A2%AB%E8%BF%AB%E4%B8%AD%E6%AD%A2%23&Refer=top) `276.0K 🔥`
 1. [把奶奶拍得像p的一样](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E5%A5%B6%E5%A5%B6%E6%8B%8D%E5%BE%97%E5%83%8Fp%E7%9A%84%E4%B8%80%E6%A0%B7%23&Refer=top) `273.4K 🔥`
 1. [小时候烦唐僧的原因](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%97%B6%E5%80%99%E7%83%A6%E5%94%90%E5%83%A7%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `270.2K 🔥`
@@ -54,10 +56,8 @@
 1. [王源姑娘故事感](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E5%A7%91%E5%A8%98%E6%95%85%E4%BA%8B%E6%84%9F%23&Refer=top) `235.1K 🔥`
 1. [宋亚轩猜错什么是快乐星球](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E7%8C%9C%E9%94%99%E4%BB%80%E4%B9%88%E6%98%AF%E5%BF%AB%E4%B9%90%E6%98%9F%E7%90%83%23&Refer=top) `220.6K 🔥`
 1. [教科书式的扁平足](https://s.weibo.com/weibo?q=%23%E6%95%99%E7%A7%91%E4%B9%A6%E5%BC%8F%E7%9A%84%E6%89%81%E5%B9%B3%E8%B6%B3%23&Refer=top) `218.4K 🔥`
-1. [云南68名同学被北大清华预定](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%9768%E5%90%8D%E5%90%8C%E5%AD%A6%E8%A2%AB%E5%8C%97%E5%A4%A7%E6%B8%85%E5%8D%8E%E9%A2%84%E5%AE%9A%23&Refer=top) `216.7K 🔥`
-1. [吴倩民族风造型](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%80%A9%E6%B0%91%E6%97%8F%E9%A3%8E%E9%80%A0%E5%9E%8B%23&Refer=top) `215.9K 🔥`
 
-数据更新于 2021-07-10 07:39:40
+数据更新于 2021-07-10 07:51:53
 
 <!-- END -->
 
