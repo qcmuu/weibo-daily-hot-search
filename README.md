@@ -11,7 +11,7 @@
 1. [被当街强塞进车女子回应](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%BD%93%E8%A1%97%E5%BC%BA%E5%A1%9E%E8%BF%9B%E8%BD%A6%E5%A5%B3%E5%AD%90%E5%9B%9E%E5%BA%94%23&Refer=top) `2.8M 🔥`
 1. [他不叫帅哥他叫吴义帆](https://s.weibo.com/weibo?q=%23%E4%BB%96%E4%B8%8D%E5%8F%AB%E5%B8%85%E5%93%A5%E4%BB%96%E5%8F%AB%E5%90%B4%E4%B9%89%E5%B8%86%23&Refer=top) `2.5M 🔥`
 1. [隔夜冰西瓜一口吃下8400个细菌](https://s.weibo.com/weibo?q=%23%E9%9A%94%E5%A4%9C%E5%86%B0%E8%A5%BF%E7%93%9C%E4%B8%80%E5%8F%A3%E5%90%83%E4%B8%8B8400%E4%B8%AA%E7%BB%86%E8%8F%8C%23&Refer=top) `2.5M 🔥`
-1. [胡先煦方回应棋魂物料泄露](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%85%88%E7%85%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E6%A3%8B%E9%AD%82%E7%89%A9%E6%96%99%E6%B3%84%E9%9C%B2%23&Refer=top) `2.2M 🔥`
+1. [胡先煦方回应棋魂物料泄露](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%85%88%E7%85%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E6%A3%8B%E9%AD%82%E7%89%A9%E6%96%99%E6%B3%84%E9%9C%B2%23&Refer=top) `2.4M 🔥`
 1. [95后小伙在游戏里建了一个广州](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E5%B0%8F%E4%BC%99%E5%9C%A8%E6%B8%B8%E6%88%8F%E9%87%8C%E5%BB%BA%E4%BA%86%E4%B8%80%E4%B8%AA%E5%B9%BF%E5%B7%9E%23&Refer=top) `2.2M 🔥`
 1. [儿子被北大录取爸爸凡尔赛发言](https://s.weibo.com/weibo?q=%23%E5%84%BF%E5%AD%90%E8%A2%AB%E5%8C%97%E5%A4%A7%E5%BD%95%E5%8F%96%E7%88%B8%E7%88%B8%E5%87%A1%E5%B0%94%E8%B5%9B%E5%8F%91%E8%A8%80%23&Refer=top) `2.0M 🔥`
 1. [男子求复合被拒赖前女友家不走](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%B1%82%E5%A4%8D%E5%90%88%E8%A2%AB%E6%8B%92%E8%B5%96%E5%89%8D%E5%A5%B3%E5%8F%8B%E5%AE%B6%E4%B8%8D%E8%B5%B0%23&Refer=top) `2.0M 🔥`
@@ -37,8 +37,9 @@
 1. [时代少年团粉丝见面会](https://s.weibo.com/weibo?q=%23%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E7%B2%89%E4%B8%9D%E8%A7%81%E9%9D%A2%E4%BC%9A%23&Refer=top) `1.2M 🔥`
 1. [下架滴滴顺风车等25款App](https://s.weibo.com/weibo?q=%23%E4%B8%8B%E6%9E%B6%E6%BB%B4%E6%BB%B4%E9%A1%BA%E9%A3%8E%E8%BD%A6%E7%AD%8925%E6%AC%BEApp%23&Refer=top) `1.1M 🔥`
 1. [清华大学首封录取通知书发出](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%A4%A7%E5%AD%A6%E9%A6%96%E5%B0%81%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E5%8F%91%E5%87%BA%23&Refer=top) `1.1M 🔥`
-1. [千万不要随便回复网友的评论](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E9%9A%8F%E4%BE%BF%E5%9B%9E%E5%A4%8D%E7%BD%91%E5%8F%8B%E7%9A%84%E8%AF%84%E8%AE%BA%23&Refer=top) `996.0K 🔥`
-1. [林依晨方否认退圈](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BE%9D%E6%99%A8%E6%96%B9%E5%90%A6%E8%AE%A4%E9%80%80%E5%9C%88%23&Refer=top) `988.1K 🔥`
+1. [千万不要随便回复网友的评论](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E9%9A%8F%E4%BE%BF%E5%9B%9E%E5%A4%8D%E7%BD%91%E5%8F%8B%E7%9A%84%E8%AF%84%E8%AE%BA%23&Refer=top) `1.0M 🔥`
+1. [林依晨方否认退圈](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BE%9D%E6%99%A8%E6%96%B9%E5%90%A6%E8%AE%A4%E9%80%80%E5%9C%88%23&Refer=top) `1.0M 🔥`
+1. [北方水果店老板的底线](https://s.weibo.com/weibo?q=%23%E5%8C%97%E6%96%B9%E6%B0%B4%E6%9E%9C%E5%BA%97%E8%80%81%E6%9D%BF%E7%9A%84%E5%BA%95%E7%BA%BF%23&Refer=top) `1.0M 🔥`
 1. [中国成功发射钟子号卫星星座02组卫星](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%88%90%E5%8A%9F%E5%8F%91%E5%B0%84%E9%92%9F%E5%AD%90%E5%8F%B7%E5%8D%AB%E6%98%9F%E6%98%9F%E5%BA%A702%E7%BB%84%E5%8D%AB%E6%98%9F%23&Refer=top) `954.4K 🔥`
 1. [男子篡改同学高考志愿被行拘](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%AF%A1%E6%94%B9%E5%90%8C%E5%AD%A6%E9%AB%98%E8%80%83%E5%BF%97%E6%84%BF%E8%A2%AB%E8%A1%8C%E6%8B%98%23&Refer=top) `935.6K 🔥`
 1. [孟晚舟案有力证据被驳回](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E6%99%9A%E8%88%9F%E6%A1%88%E6%9C%89%E5%8A%9B%E8%AF%81%E6%8D%AE%E8%A2%AB%E9%A9%B3%E5%9B%9E%23&Refer=top) `807.5K 🔥`
@@ -51,13 +52,12 @@
 1. [湖南大学湘潭大学发布联合声明](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%B9%98%E6%BD%AD%E5%A4%A7%E5%AD%A6%E5%8F%91%E5%B8%83%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E%23&Refer=top) `732.9K 🔥`
 1. [上海一车库天价车祸损失或千万](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%80%E8%BD%A6%E5%BA%93%E5%A4%A9%E4%BB%B7%E8%BD%A6%E7%A5%B8%E6%8D%9F%E5%A4%B1%E6%88%96%E5%8D%83%E4%B8%87%23&Refer=top) `686.5K 🔥`
 1. [连苹果都想开了](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E8%8B%B9%E6%9E%9C%E9%83%BD%E6%83%B3%E5%BC%80%E4%BA%86%23&Refer=top) `681.5K 🔥`
+1. [收费站承诺以后苹果蕉都走绿通](https://s.weibo.com/weibo?q=%23%E6%94%B6%E8%B4%B9%E7%AB%99%E6%89%BF%E8%AF%BA%E4%BB%A5%E5%90%8E%E8%8B%B9%E6%9E%9C%E8%95%89%E9%83%BD%E8%B5%B0%E7%BB%BF%E9%80%9A%23&Refer=top) `678.7K 🔥`
 1. [海地政府请求美国出兵保护](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E6%94%BF%E5%BA%9C%E8%AF%B7%E6%B1%82%E7%BE%8E%E5%9B%BD%E5%87%BA%E5%85%B5%E4%BF%9D%E6%8A%A4%23&Refer=top) `674.1K 🔥`
 1. [用摩尔庄园给对象道歉](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E7%BB%99%E5%AF%B9%E8%B1%A1%E9%81%93%E6%AD%89%23&Refer=top) `672.6K 🔥`
-1. [北方水果店老板的底线](https://s.weibo.com/weibo?q=%23%E5%8C%97%E6%96%B9%E6%B0%B4%E6%9E%9C%E5%BA%97%E8%80%81%E6%9D%BF%E7%9A%84%E5%BA%95%E7%BA%BF%23&Refer=top) `670.1K 🔥`
 1. [唐艺昕红色真丝长裙造型](https://s.weibo.com/weibo?q=%23%E5%94%90%E8%89%BA%E6%98%95%E7%BA%A2%E8%89%B2%E7%9C%9F%E4%B8%9D%E9%95%BF%E8%A3%99%E9%80%A0%E5%9E%8B%23&Refer=top) `656.1K 🔥`
-1. [女孩被小区内被未栓绳狗狗狂追](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E8%A2%AB%E5%B0%8F%E5%8C%BA%E5%86%85%E8%A2%AB%E6%9C%AA%E6%A0%93%E7%BB%B3%E7%8B%97%E7%8B%97%E7%8B%82%E8%BF%BD%23&Refer=top) `641.6K 🔥`
 
-数据更新于 2021-07-10 16:57:56
+数据更新于 2021-07-10 17:24:06
 
 <!-- END -->
 
