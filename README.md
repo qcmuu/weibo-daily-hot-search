@@ -57,7 +57,7 @@
 1. [打骂式教育对孩子影响有多大](https://s.weibo.com/weibo?q=%23%E6%89%93%E9%AA%82%E5%BC%8F%E6%95%99%E8%82%B2%E5%AF%B9%E5%AD%A9%E5%AD%90%E5%BD%B1%E5%93%8D%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `227.0K 🔥`
 1. [第一视角看电力工人高空作业](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E8%A7%86%E8%A7%92%E7%9C%8B%E7%94%B5%E5%8A%9B%E5%B7%A5%E4%BA%BA%E9%AB%98%E7%A9%BA%E4%BD%9C%E4%B8%9A%23&Refer=top) `220.4K 🔥`
 
-数据更新于 2021-07-12 03:52:31
+数据更新于 2021-07-12 04:18:22
 
 <!-- END -->
 
