@@ -57,7 +57,7 @@
 1. [爸爸网上学菜刀剪头发拿女儿实验](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E7%BD%91%E4%B8%8A%E5%AD%A6%E8%8F%9C%E5%88%80%E5%89%AA%E5%A4%B4%E5%8F%91%E6%8B%BF%E5%A5%B3%E5%84%BF%E5%AE%9E%E9%AA%8C%23&Refer=top) `763.6K 🔥`
 1. [日本记者发现东京奥运会防疫漏洞](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E8%AE%B0%E8%80%85%E5%8F%91%E7%8E%B0%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E9%98%B2%E7%96%AB%E6%BC%8F%E6%B4%9E%23&Refer=top) `738.0K 🔥`
 
-数据更新于 2021-07-11 22:16:34
+数据更新于 2021-07-11 22:29:30
 
 <!-- END -->
 
