@@ -51,13 +51,13 @@
 1. [北辙南辕](https://s.weibo.com/weibo?q=%E5%8C%97%E8%BE%99%E5%8D%97%E8%BE%95&Refer=top) `276.6K 🔥`
 1. [你微笑时很美剧组呼吁理性追剧](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E5%89%A7%E7%BB%84%E5%91%BC%E5%90%81%E7%90%86%E6%80%A7%E8%BF%BD%E5%89%A7%23&Refer=top) `255.8K 🔥`
 1. [中央气象台发布暴雨橙色预警](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E6%B0%94%E8%B1%A1%E5%8F%B0%E5%8F%91%E5%B8%83%E6%9A%B4%E9%9B%A8%E6%A9%99%E8%89%B2%E9%A2%84%E8%AD%A6%23&Refer=top) `250.8K 🔥`
+1. [刘星每句台词都能脑补出声音](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%9F%E6%AF%8F%E5%8F%A5%E5%8F%B0%E8%AF%8D%E9%83%BD%E8%83%BD%E8%84%91%E8%A1%A5%E5%87%BA%E5%A3%B0%E9%9F%B3%23&Refer=top) `240.2K 🔥`
 1. [王俊凯群聊3还在](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%BF%8A%E5%87%AF%E7%BE%A4%E8%81%8A3%E8%BF%98%E5%9C%A8%23&Refer=top) `230.7K 🔥`
 1. [秦昊连续五次假摔](https://s.weibo.com/weibo?q=%23%E7%A7%A6%E6%98%8A%E8%BF%9E%E7%BB%AD%E4%BA%94%E6%AC%A1%E5%81%87%E6%91%94%23&Refer=top) `230.7K 🔥`
-1. [刘星每句台词都能脑补出声音](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%9F%E6%AF%8F%E5%8F%A5%E5%8F%B0%E8%AF%8D%E9%83%BD%E8%83%BD%E8%84%91%E8%A1%A5%E5%87%BA%E5%A3%B0%E9%9F%B3%23&Refer=top) `230.5K 🔥`
 1. [打骂式教育对孩子影响有多大](https://s.weibo.com/weibo?q=%23%E6%89%93%E9%AA%82%E5%BC%8F%E6%95%99%E8%82%B2%E5%AF%B9%E5%AD%A9%E5%AD%90%E5%BD%B1%E5%93%8D%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `227.0K 🔥`
 1. [第一视角看电力工人高空作业](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E8%A7%86%E8%A7%92%E7%9C%8B%E7%94%B5%E5%8A%9B%E5%B7%A5%E4%BA%BA%E9%AB%98%E7%A9%BA%E4%BD%9C%E4%B8%9A%23&Refer=top) `220.4K 🔥`
 
-数据更新于 2021-07-12 01:08:25
+数据更新于 2021-07-12 01:33:54
 
 <!-- END -->
 
