@@ -29,6 +29,7 @@
 1. [谢霆锋给菜打伞](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E9%9C%86%E9%94%8B%E7%BB%99%E8%8F%9C%E6%89%93%E4%BC%9E%23&Refer=top) `329.9K 🔥`
 1. [龚俊张慧雯车窗对视](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E6%85%A7%E9%9B%AF%E8%BD%A6%E7%AA%97%E5%AF%B9%E8%A7%86%23&Refer=top) `329.8K 🔥`
 1. [张小斐胖了四斤](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%8F%E6%96%90%E8%83%96%E4%BA%86%E5%9B%9B%E6%96%A4%23&Refer=top) `329.7K 🔥`
+1. [比利时女性感染双重变种毒株后死亡](https://s.weibo.com/weibo?q=%23%E6%AF%94%E5%88%A9%E6%97%B6%E5%A5%B3%E6%80%A7%E6%84%9F%E6%9F%93%E5%8F%8C%E9%87%8D%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AA%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `311.1K 🔥`
 1. [砍杀女硕士男子曾写保证书道歉](https://s.weibo.com/weibo?q=%23%E7%A0%8D%E6%9D%80%E5%A5%B3%E7%A1%95%E5%A3%AB%E7%94%B7%E5%AD%90%E6%9B%BE%E5%86%99%E4%BF%9D%E8%AF%81%E4%B9%A6%E9%81%93%E6%AD%89%23&Refer=top) `304.4K 🔥`
 1. [海清长卷发造型](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E6%B8%85%E9%95%BF%E5%8D%B7%E5%8F%91%E9%80%A0%E5%9E%8B%23&Refer=top) `293.4K 🔥`
 1. [小朋友给自己安排的一生](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%9C%8B%E5%8F%8B%E7%BB%99%E8%87%AA%E5%B7%B1%E5%AE%89%E6%8E%92%E7%9A%84%E4%B8%80%E7%94%9F%23&Refer=top) `271.8K 🔥`
@@ -42,6 +43,7 @@
 1. [陌生的恋人](https://s.weibo.com/weibo?q=%E9%99%8C%E7%94%9F%E7%9A%84%E6%81%8B%E4%BA%BA&Refer=top) `224.0K 🔥`
 1. [天天向上乐山路透](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A%E4%B9%90%E5%B1%B1%E8%B7%AF%E9%80%8F%23&Refer=top) `223.2K 🔥`
 1. [黑寡妇](https://s.weibo.com/weibo?q=%E9%BB%91%E5%AF%A1%E5%A6%87&Refer=top) `220.1K 🔥`
+1. [王珞丹 我们不能拿青春明码标价](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%8F%9E%E4%B8%B9%20%E6%88%91%E4%BB%AC%E4%B8%8D%E8%83%BD%E6%8B%BF%E9%9D%92%E6%98%A5%E6%98%8E%E7%A0%81%E6%A0%87%E4%BB%B7&Refer=top) `210.5K 🔥`
 1. [张桂梅挨家挨户劝说失学女生返校](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E6%8C%A8%E5%AE%B6%E6%8C%A8%E6%88%B7%E5%8A%9D%E8%AF%B4%E5%A4%B1%E5%AD%A6%E5%A5%B3%E7%94%9F%E8%BF%94%E6%A0%A1%23&Refer=top) `205.9K 🔥`
 1. [英格兰罚丢点球三名球员遭种族歧视](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E6%A0%BC%E5%85%B0%E7%BD%9A%E4%B8%A2%E7%82%B9%E7%90%83%E4%B8%89%E5%90%8D%E7%90%83%E5%91%98%E9%81%AD%E7%A7%8D%E6%97%8F%E6%AD%A7%E8%A7%86%23&Refer=top) `198.5K 🔥`
 1. [贺先生的恋恋不忘](https://s.weibo.com/weibo?q=%E8%B4%BA%E5%85%88%E7%94%9F%E7%9A%84%E6%81%8B%E6%81%8B%E4%B8%8D%E5%BF%98&Refer=top) `189.3K 🔥`
@@ -54,10 +56,8 @@
 1. [家有儿女刘星家到底多有钱](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E6%9C%89%E5%84%BF%E5%A5%B3%E5%88%98%E6%98%9F%E5%AE%B6%E5%88%B0%E5%BA%95%E5%A4%9A%E6%9C%89%E9%92%B1%23&Refer=top) `159.1K 🔥`
 1. [天气预报中的暴雨是怎么界定的](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E6%B0%94%E9%A2%84%E6%8A%A5%E4%B8%AD%E7%9A%84%E6%9A%B4%E9%9B%A8%E6%98%AF%E6%80%8E%E4%B9%88%E7%95%8C%E5%AE%9A%E7%9A%84%23&Refer=top) `135.2K 🔥`
 1. [范世錡演的杨竞](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%96%E9%8C%A1%E6%BC%94%E7%9A%84%E6%9D%A8%E7%AB%9E%23&Refer=top) `125.9K 🔥`
-1. [9旬老党员跳河救起9旬落水者](https://s.weibo.com/weibo?q=%239%E6%97%AC%E8%80%81%E5%85%9A%E5%91%98%E8%B7%B3%E6%B2%B3%E6%95%91%E8%B5%B79%E6%97%AC%E8%90%BD%E6%B0%B4%E8%80%85%23&Refer=top) `125.2K 🔥`
-1. [赵立坚呵呵回应所谓美国抗疫全球第一](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E5%91%B5%E5%91%B5%E5%9B%9E%E5%BA%94%E6%89%80%E8%B0%93%E7%BE%8E%E5%9B%BD%E6%8A%97%E7%96%AB%E5%85%A8%E7%90%83%E7%AC%AC%E4%B8%80%23&Refer=top) `114.0K 🔥`
 
-数据更新于 2021-07-13 05:59:50
+数据更新于 2021-07-13 06:33:23
 
 <!-- END -->
 
