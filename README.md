@@ -42,6 +42,7 @@
 1. [张涵予回应脸黑的原因](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%B6%B5%E4%BA%88%E5%9B%9E%E5%BA%94%E8%84%B8%E9%BB%91%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `1.0M 🔥`
 1. [张远 我第一次敢把麦递给大家](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%BF%9C%20%E6%88%91%E7%AC%AC%E4%B8%80%E6%AC%A1%E6%95%A2%E6%8A%8A%E9%BA%A6%E9%80%92%E7%BB%99%E5%A4%A7%E5%AE%B6&Refer=top) `1.0M 🔥`
 1. [吴昕 谢谢海燕姐让我蹭热度](https://s.weibo.com/weibo?q=%E5%90%B4%E6%98%95%20%E8%B0%A2%E8%B0%A2%E6%B5%B7%E7%87%95%E5%A7%90%E8%AE%A9%E6%88%91%E8%B9%AD%E7%83%AD%E5%BA%A6&Refer=top) `988.1K 🔥`
+1. [9.9万名台胞已在大陆接种新冠疫苗](https://s.weibo.com/weibo?q=%239.9%E4%B8%87%E5%90%8D%E5%8F%B0%E8%83%9E%E5%B7%B2%E5%9C%A8%E5%A4%A7%E9%99%86%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `968.7K 🔥`
 1. [发量多的女生不适合鲨鱼夹](https://s.weibo.com/weibo?q=%23%E5%8F%91%E9%87%8F%E5%A4%9A%E7%9A%84%E5%A5%B3%E7%94%9F%E4%B8%8D%E9%80%82%E5%90%88%E9%B2%A8%E9%B1%BC%E5%A4%B9%23&Refer=top) `963.2K 🔥`
 1. [谭晶yyds](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E6%99%B6yyds%23&Refer=top) `960.8K 🔥`
 1. [女子景区内拔掉孔雀羽毛](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%99%AF%E5%8C%BA%E5%86%85%E6%8B%94%E6%8E%89%E5%AD%94%E9%9B%80%E7%BE%BD%E6%AF%9B%23&Refer=top) `937.5K 🔥`
@@ -55,9 +56,8 @@
 1. [pam](https://s.weibo.com/weibo?q=pam&Refer=top) `848.6K 🔥`
 1. [姚景元被中戏录取](https://s.weibo.com/weibo?q=%23%E5%A7%9A%E6%99%AF%E5%85%83%E8%A2%AB%E4%B8%AD%E6%88%8F%E5%BD%95%E5%8F%96%23&Refer=top) `844.3K 🔥`
 1. [灰太狼在家里挂美羊羊合照](https://s.weibo.com/weibo?q=%23%E7%81%B0%E5%A4%AA%E7%8B%BC%E5%9C%A8%E5%AE%B6%E9%87%8C%E6%8C%82%E7%BE%8E%E7%BE%8A%E7%BE%8A%E5%90%88%E7%85%A7%23&Refer=top) `841.9K 🔥`
-1. [复旦大学院长说小孩睡懒觉没坏处](https://s.weibo.com/weibo?q=%23%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E9%99%A2%E9%95%BF%E8%AF%B4%E5%B0%8F%E5%AD%A9%E7%9D%A1%E6%87%92%E8%A7%89%E6%B2%A1%E5%9D%8F%E5%A4%84%23&Refer=top) `824.4K 🔥`
 
-数据更新于 2021-07-12 17:24:53
+数据更新于 2021-07-12 17:43:32
 
 <!-- END -->
 
