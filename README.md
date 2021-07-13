@@ -11,7 +11,7 @@
 1. [郭刚堂认亲前全家泪崩](https://s.weibo.com/weibo?q=%23%E9%83%AD%E5%88%9A%E5%A0%82%E8%AE%A4%E4%BA%B2%E5%89%8D%E5%85%A8%E5%AE%B6%E6%B3%AA%E5%B4%A9%23&Refer=top) `3.5M 🔥`
 1. [方媛带着两个孩子坐经济舱](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%AA%9B%E5%B8%A6%E7%9D%80%E4%B8%A4%E4%B8%AA%E5%AD%A9%E5%AD%90%E5%9D%90%E7%BB%8F%E6%B5%8E%E8%88%B1%23&Refer=top) `3.1M 🔥`
 1. [京东宣布全员涨薪两个月](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E4%B8%9C%E5%AE%A3%E5%B8%83%E5%85%A8%E5%91%98%E6%B6%A8%E8%96%AA%E4%B8%A4%E4%B8%AA%E6%9C%88%23&Refer=top) `2.9M 🔥`
-1. [女儿突然坠楼被妈妈拽住腿](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AA%81%E7%84%B6%E5%9D%A0%E6%A5%BC%E8%A2%AB%E5%A6%88%E5%A6%88%E6%8B%BD%E4%BD%8F%E8%85%BF%23&Refer=top) `2.7M 🔥`
+1. [女儿突然坠楼被妈妈拽住腿](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AA%81%E7%84%B6%E5%9D%A0%E6%A5%BC%E8%A2%AB%E5%A6%88%E5%A6%88%E6%8B%BD%E4%BD%8F%E8%85%BF%23&Refer=top) `2.8M 🔥`
 1. [罗云熙吴倩牵手路透](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E5%90%B4%E5%80%A9%E7%89%B5%E6%89%8B%E8%B7%AF%E9%80%8F%23&Refer=top) `2.6M 🔥`
 1. [房客连住3晚退房1小时后酒店坍塌](https://s.weibo.com/weibo?q=%23%E6%88%BF%E5%AE%A2%E8%BF%9E%E4%BD%8F3%E6%99%9A%E9%80%80%E6%88%BF1%E5%B0%8F%E6%97%B6%E5%90%8E%E9%85%92%E5%BA%97%E5%9D%8D%E5%A1%8C%23&Refer=top) `2.6M 🔥`
 1. [多地通知未接种疫苗将影响出行](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E9%80%9A%E7%9F%A5%E6%9C%AA%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%B0%86%E5%BD%B1%E5%93%8D%E5%87%BA%E8%A1%8C%23&Refer=top) `2.3M 🔥`
@@ -30,6 +30,8 @@
 1. [上海90后用优惠券薅羊毛45万被捕](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B790%E5%90%8E%E7%94%A8%E4%BC%98%E6%83%A0%E5%88%B8%E8%96%85%E7%BE%8A%E6%AF%9B45%E4%B8%87%E8%A2%AB%E6%8D%95%23&Refer=top) `1.6M 🔥`
 1. [张艺兴用筷子的另一头夹面](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E7%94%A8%E7%AD%B7%E5%AD%90%E7%9A%84%E5%8F%A6%E4%B8%80%E5%A4%B4%E5%A4%B9%E9%9D%A2%23&Refer=top) `1.5M 🔥`
 1. [冻西瓜](https://s.weibo.com/weibo?q=%23%E5%86%BB%E8%A5%BF%E7%93%9C%23&Refer=top) `1.5M 🔥`
+1. [瘫痪女孩父亲称已经与刘浩存父母和解](https://s.weibo.com/weibo?q=%23%E7%98%AB%E7%97%AA%E5%A5%B3%E5%AD%A9%E7%88%B6%E4%BA%B2%E7%A7%B0%E5%B7%B2%E7%BB%8F%E4%B8%8E%E5%88%98%E6%B5%A9%E5%AD%98%E7%88%B6%E6%AF%8D%E5%92%8C%E8%A7%A3%23&Refer=top) `1.4M 🔥`
+1. [李现 谷嘉诚](https://s.weibo.com/weibo?q=%E6%9D%8E%E7%8E%B0%20%E8%B0%B7%E5%98%89%E8%AF%9A&Refer=top) `1.4M 🔥`
 1. [教育部辟谣取消教师寒暑假](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E8%BE%9F%E8%B0%A3%E5%8F%96%E6%B6%88%E6%95%99%E5%B8%88%E5%AF%92%E6%9A%91%E5%81%87%23&Refer=top) `1.4M 🔥`
 1. [奥迪保时捷两车主飙车双双被刑拘](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%AA%E4%BF%9D%E6%97%B6%E6%8D%B7%E4%B8%A4%E8%BD%A6%E4%B8%BB%E9%A3%99%E8%BD%A6%E5%8F%8C%E5%8F%8C%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `1.1M 🔥`
 1. [北京大学2021年本科生毕业典礼](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%A4%A7%E5%AD%A62021%E5%B9%B4%E6%9C%AC%E7%A7%91%E7%94%9F%E6%AF%95%E4%B8%9A%E5%85%B8%E7%A4%BC%23&Refer=top) `1.1M 🔥`
@@ -39,7 +41,6 @@
 1. [被一个10岁小女孩的臂力惊到了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E4%B8%80%E4%B8%AA10%E5%B2%81%E5%B0%8F%E5%A5%B3%E5%AD%A9%E7%9A%84%E8%87%82%E5%8A%9B%E6%83%8A%E5%88%B0%E4%BA%86%23&Refer=top) `970.4K 🔥`
 1. [龚俊听到向周杰伦王力宏邀歌时的反应](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%90%AC%E5%88%B0%E5%90%91%E5%91%A8%E6%9D%B0%E4%BC%A6%E7%8E%8B%E5%8A%9B%E5%AE%8F%E9%82%80%E6%AD%8C%E6%97%B6%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `968.6K 🔥`
 1. [朋友圈会增加你的焦虑吗](https://s.weibo.com/weibo?q=%23%E6%9C%8B%E5%8F%8B%E5%9C%88%E4%BC%9A%E5%A2%9E%E5%8A%A0%E4%BD%A0%E7%9A%84%E7%84%A6%E8%99%91%E5%90%97%23&Refer=top) `967.1K 🔥`
-1. [瘫痪女孩父亲称已经与刘浩存父母和解](https://s.weibo.com/weibo?q=%23%E7%98%AB%E7%97%AA%E5%A5%B3%E5%AD%A9%E7%88%B6%E4%BA%B2%E7%A7%B0%E5%B7%B2%E7%BB%8F%E4%B8%8E%E5%88%98%E6%B5%A9%E5%AD%98%E7%88%B6%E6%AF%8D%E5%92%8C%E8%A7%A3%23&Refer=top) `964.4K 🔥`
 1. [比利时女性感染双重变种毒株后死亡](https://s.weibo.com/weibo?q=%23%E6%AF%94%E5%88%A9%E6%97%B6%E5%A5%B3%E6%80%A7%E6%84%9F%E6%9F%93%E5%8F%8C%E9%87%8D%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AA%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `937.1K 🔥`
 1. [凡尔赛式贫穷](https://s.weibo.com/weibo?q=%23%E5%87%A1%E5%B0%94%E8%B5%9B%E5%BC%8F%E8%B4%AB%E7%A9%B7%23&Refer=top) `892.3K 🔥`
 1. [郭刚堂曾和儿子擦肩而过](https://s.weibo.com/weibo?q=%23%E9%83%AD%E5%88%9A%E5%A0%82%E6%9B%BE%E5%92%8C%E5%84%BF%E5%AD%90%E6%93%A6%E8%82%A9%E8%80%8C%E8%BF%87%23&Refer=top) `886.5K 🔥`
@@ -55,9 +56,8 @@
 1. [当兵的人用过的浴巾](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%85%B5%E7%9A%84%E4%BA%BA%E7%94%A8%E8%BF%87%E7%9A%84%E6%B5%B4%E5%B7%BE%23&Refer=top) `755.9K 🔥`
 1. [景甜生图](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E7%94%9F%E5%9B%BE%23&Refer=top) `748.0K 🔥`
 1. [丁程鑫把蛋糕装饰当生日帽](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E6%8A%8A%E8%9B%8B%E7%B3%95%E8%A3%85%E9%A5%B0%E5%BD%93%E7%94%9F%E6%97%A5%E5%B8%BD%23&Refer=top) `743.6K 🔥`
-1. [王珞丹 我们不能拿青春明码标价](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%8F%9E%E4%B8%B9%20%E6%88%91%E4%BB%AC%E4%B8%8D%E8%83%BD%E6%8B%BF%E9%9D%92%E6%98%A5%E6%98%8E%E7%A0%81%E6%A0%87%E4%BB%B7&Refer=top) `706.2K 🔥`
 
-数据更新于 2021-07-13 16:27:34
+数据更新于 2021-07-13 16:43:29
 
 <!-- END -->
 
