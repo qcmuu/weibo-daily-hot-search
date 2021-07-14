@@ -8,7 +8,7 @@
 
 1. [b站崩了](https://s.weibo.com/weibo?q=%23b%E7%AB%99%E5%B4%A9%E4%BA%86%23&Refer=top) `6.5M 🔥`
 1. [台媒称阮经天宋祖儿已分手8个月](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E5%AA%92%E7%A7%B0%E9%98%AE%E7%BB%8F%E5%A4%A9%E5%AE%8B%E7%A5%96%E5%84%BF%E5%B7%B2%E5%88%86%E6%89%8B8%E4%B8%AA%E6%9C%88%23&Refer=top) `5.6M 🔥`
-1. [情侣扶梯上热吻仰翻摔下](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E6%89%B6%E6%A2%AF%E4%B8%8A%E7%83%AD%E5%90%BB%E4%BB%B0%E7%BF%BB%E6%91%94%E4%B8%8B%23&Refer=top) `3.7M 🔥`
+1. [情侣扶梯上热吻仰翻摔下](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E6%89%B6%E6%A2%AF%E4%B8%8A%E7%83%AD%E5%90%BB%E4%BB%B0%E7%BF%BB%E6%91%94%E4%B8%8B%23&Refer=top) `4.0M 🔥`
 1. [iPhone13或有日落金玫瑰金](https://s.weibo.com/weibo?q=%23iPhone13%E6%88%96%E6%9C%89%E6%97%A5%E8%90%BD%E9%87%91%E7%8E%AB%E7%91%B0%E9%87%91%23&Refer=top) `3.4M 🔥`
 1. [成龙20年前得知北京赢了瞬间飙泪](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%BE%9920%E5%B9%B4%E5%89%8D%E5%BE%97%E7%9F%A5%E5%8C%97%E4%BA%AC%E8%B5%A2%E4%BA%86%E7%9E%AC%E9%97%B4%E9%A3%99%E6%B3%AA%23&Refer=top) `3.2M 🔥`
 1. [实验室起火博士后头顶火苗冲出](https://s.weibo.com/weibo?q=%23%E5%AE%9E%E9%AA%8C%E5%AE%A4%E8%B5%B7%E7%81%AB%E5%8D%9A%E5%A3%AB%E5%90%8E%E5%A4%B4%E9%A1%B6%E7%81%AB%E8%8B%97%E5%86%B2%E5%87%BA%23&Refer=top) `3.0M 🔥`
@@ -33,6 +33,7 @@
 1. [上海云海服务器](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%BA%91%E6%B5%B7%E6%9C%8D%E5%8A%A1%E5%99%A8%23&Refer=top) `1.7M 🔥`
 1. [阮经天方否认与宋祖儿恋情](https://s.weibo.com/weibo?q=%23%E9%98%AE%E7%BB%8F%E5%A4%A9%E6%96%B9%E5%90%A6%E8%AE%A4%E4%B8%8E%E5%AE%8B%E7%A5%96%E5%84%BF%E6%81%8B%E6%83%85%23&Refer=top) `1.7M 🔥`
 1. [新疆处于历史上最好的发展时期](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E5%A4%84%E4%BA%8E%E5%8E%86%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%A5%BD%E7%9A%84%E5%8F%91%E5%B1%95%E6%97%B6%E6%9C%9F%23&Refer=top) `1.6M 🔥`
+1. [父亲威胁将3岁儿子扔下14楼被捕](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%A8%81%E8%83%81%E5%B0%863%E5%B2%81%E5%84%BF%E5%AD%90%E6%89%94%E4%B8%8B14%E6%A5%BC%E8%A2%AB%E6%8D%95%23&Refer=top) `1.6M 🔥`
 1. [林峯承诺张馨月两年内办婚礼](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E6%89%BF%E8%AF%BA%E5%BC%A0%E9%A6%A8%E6%9C%88%E4%B8%A4%E5%B9%B4%E5%86%85%E5%8A%9E%E5%A9%9A%E7%A4%BC%23&Refer=top) `1.5M 🔥`
 1. [微信支持更改来电铃声](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E6%94%AF%E6%8C%81%E6%9B%B4%E6%94%B9%E6%9D%A5%E7%94%B5%E9%93%83%E5%A3%B0%23&Refer=top) `1.4M 🔥`
 1. [B站服务器机房故障造成无法访问](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E6%9C%8D%E5%8A%A1%E5%99%A8%E6%9C%BA%E6%88%BF%E6%95%85%E9%9A%9C%E9%80%A0%E6%88%90%E6%97%A0%E6%B3%95%E8%AE%BF%E9%97%AE%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [20年前的那声Beijing](https://s.weibo.com/weibo?q=%2320%E5%B9%B4%E5%89%8D%E7%9A%84%E9%82%A3%E5%A3%B0Beijing%23&Refer=top) `933.5K 🔥`
 1. [印度百万大军即将奔赴恒河朝圣](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E7%99%BE%E4%B8%87%E5%A4%A7%E5%86%9B%E5%8D%B3%E5%B0%86%E5%A5%94%E8%B5%B4%E6%81%92%E6%B2%B3%E6%9C%9D%E5%9C%A3%23&Refer=top) `921.9K 🔥`
 1. [巴基斯坦爆炸9名中国公民遇难](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E7%88%86%E7%82%B89%E5%90%8D%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E9%81%87%E9%9A%BE%23&Refer=top) `920.5K 🔥`
-1. [马来西亚一疫苗接种点200余工作人员确诊](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%E4%B8%80%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E7%82%B9200%E4%BD%99%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%E7%A1%AE%E8%AF%8A%23&Refer=top) `909.2K 🔥`
 
-数据更新于 2021-07-14 19:47:48
+数据更新于 2021-07-14 20:00:12
 
 <!-- END -->
 
