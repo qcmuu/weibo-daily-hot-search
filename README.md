@@ -10,6 +10,7 @@
 1. [b站崩了](https://s.weibo.com/weibo?q=%23b%E7%AB%99%E5%B4%A9%E4%BA%86%23&Refer=top) `6.5M 🔥`
 1. [台媒称阮经天宋祖儿已分手8个月](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E5%AA%92%E7%A7%B0%E9%98%AE%E7%BB%8F%E5%A4%A9%E5%AE%8B%E7%A5%96%E5%84%BF%E5%B7%B2%E5%88%86%E6%89%8B8%E4%B8%AA%E6%9C%88%23&Refer=top) `5.6M 🔥`
 1. [张哲瀚被救护车接走](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E8%A2%AB%E6%95%91%E6%8A%A4%E8%BD%A6%E6%8E%A5%E8%B5%B0%23&Refer=top) `5.4M 🔥`
+1. [茶颜悦色希望停止跨城代购](https://s.weibo.com/weibo?q=%23%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E5%B8%8C%E6%9C%9B%E5%81%9C%E6%AD%A2%E8%B7%A8%E5%9F%8E%E4%BB%A3%E8%B4%AD%23&Refer=top) `4.6M 🔥`
 1. [父亲威胁将3岁儿子扔下14楼被捕](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%A8%81%E8%83%81%E5%B0%863%E5%B2%81%E5%84%BF%E5%AD%90%E6%89%94%E4%B8%8B14%E6%A5%BC%E8%A2%AB%E6%8D%95%23&Refer=top) `4.3M 🔥`
 1. [情侣扶梯上热吻仰翻摔下](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E6%89%B6%E6%A2%AF%E4%B8%8A%E7%83%AD%E5%90%BB%E4%BB%B0%E7%BF%BB%E6%91%94%E4%B8%8B%23&Refer=top) `4.0M 🔥`
 1. [iPhone13或有日落金玫瑰金](https://s.weibo.com/weibo?q=%23iPhone13%E6%88%96%E6%9C%89%E6%97%A5%E8%90%BD%E9%87%91%E7%8E%AB%E7%91%B0%E9%87%91%23&Refer=top) `3.4M 🔥`
@@ -55,9 +56,8 @@
 1. [陕西榆林全面关停中小学学科类校外培训](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E6%A6%86%E6%9E%97%E5%85%A8%E9%9D%A2%E5%85%B3%E5%81%9C%E4%B8%AD%E5%B0%8F%E5%AD%A6%E5%AD%A6%E7%A7%91%E7%B1%BB%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%AE%AD%23&Refer=top) `1.2M 🔥`
 1. [于谦 50多了换个工作有可能吗](https://s.weibo.com/weibo?q=%E4%BA%8E%E8%B0%A6%2050%E5%A4%9A%E4%BA%86%E6%8D%A2%E4%B8%AA%E5%B7%A5%E4%BD%9C%E6%9C%89%E5%8F%AF%E8%83%BD%E5%90%97&Refer=top) `1.1M 🔥`
 1. [张馨月穿婚纱为林峯唱勇气](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%A9%BF%E5%A9%9A%E7%BA%B1%E4%B8%BA%E6%9E%97%E5%B3%AF%E5%94%B1%E5%8B%87%E6%B0%94%23&Refer=top) `1.1M 🔥`
-1. [B站因服务器故障向部分用户发放补偿](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%9B%A0%E6%9C%8D%E5%8A%A1%E5%99%A8%E6%95%85%E9%9A%9C%E5%90%91%E9%83%A8%E5%88%86%E7%94%A8%E6%88%B7%E5%8F%91%E6%94%BE%E8%A1%A5%E5%81%BF%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-07-14 22:38:05
+数据更新于 2021-07-14 23:22:57
 
 <!-- END -->
 
