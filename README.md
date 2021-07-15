@@ -21,9 +21,12 @@
 1. [7岁小女孩洗头后骑车成面瘫](https://s.weibo.com/weibo?q=%237%E5%B2%81%E5%B0%8F%E5%A5%B3%E5%AD%A9%E6%B4%97%E5%A4%B4%E5%90%8E%E9%AA%91%E8%BD%A6%E6%88%90%E9%9D%A2%E7%98%AB%23&Refer=top) `2.5M 🔥`
 1. [男子跑步遭雷击身亡](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%B7%91%E6%AD%A5%E9%81%AD%E9%9B%B7%E5%87%BB%E8%BA%AB%E4%BA%A1%23&Refer=top) `2.5M 🔥`
 1. [网红抽脂去世涉事医院暂停接诊](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E6%8A%BD%E8%84%82%E5%8E%BB%E4%B8%96%E6%B6%89%E4%BA%8B%E5%8C%BB%E9%99%A2%E6%9A%82%E5%81%9C%E6%8E%A5%E8%AF%8A%23&Refer=top) `2.4M 🔥`
+1. [24岁小伙高温天打球后当场猝死](https://s.weibo.com/weibo?q=%2324%E5%B2%81%E5%B0%8F%E4%BC%99%E9%AB%98%E6%B8%A9%E5%A4%A9%E6%89%93%E7%90%83%E5%90%8E%E5%BD%93%E5%9C%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `2.2M 🔥`
+1. [我没瘦下来帕梅拉已经会说中文了](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%B2%A1%E7%98%A6%E4%B8%8B%E6%9D%A5%E5%B8%95%E6%A2%85%E6%8B%89%E5%B7%B2%E7%BB%8F%E4%BC%9A%E8%AF%B4%E4%B8%AD%E6%96%87%E4%BA%86%23&Refer=top) `2.2M 🔥`
 1. [杨幂 我也有做单线任务的一天](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E6%88%91%E4%B9%9F%E6%9C%89%E5%81%9A%E5%8D%95%E7%BA%BF%E4%BB%BB%E5%8A%A1%E7%9A%84%E4%B8%80%E5%A4%A9&Refer=top) `1.9M 🔥`
 1. [婚房被9个陌生人偷住4个月](https://s.weibo.com/weibo?q=%23%E5%A9%9A%E6%88%BF%E8%A2%AB9%E4%B8%AA%E9%99%8C%E7%94%9F%E4%BA%BA%E5%81%B7%E4%BD%8F4%E4%B8%AA%E6%9C%88%23&Refer=top) `1.9M 🔥`
 1. [女子刷视频发现神似牺牲16年消防员弟弟](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E5%88%B7%E8%A7%86%E9%A2%91%E5%8F%91%E7%8E%B0%E7%A5%9E%E4%BC%BC%E7%89%BA%E7%89%B216%E5%B9%B4%E6%B6%88%E9%98%B2%E5%91%98%E5%BC%9F%E5%BC%9F&Refer=top) `1.9M 🔥`
+1. [奥斯卡机场插队](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E6%96%AF%E5%8D%A1%E6%9C%BA%E5%9C%BA%E6%8F%92%E9%98%9F%23&Refer=top) `1.9M 🔥`
 1. [云南发现2个消失百年极危物种](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%8F%91%E7%8E%B02%E4%B8%AA%E6%B6%88%E5%A4%B1%E7%99%BE%E5%B9%B4%E6%9E%81%E5%8D%B1%E7%89%A9%E7%A7%8D%23&Refer=top) `1.9M 🔥`
 1. [阚清子 女生喜欢就要大胆尝试](https://s.weibo.com/weibo?q=%E9%98%9A%E6%B8%85%E5%AD%90%20%E5%A5%B3%E7%94%9F%E5%96%9C%E6%AC%A2%E5%B0%B1%E8%A6%81%E5%A4%A7%E8%83%86%E5%B0%9D%E8%AF%95&Refer=top) `1.6M 🔥`
 1. [女学生穿裙子跪地救人被烫伤](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A6%E7%94%9F%E7%A9%BF%E8%A3%99%E5%AD%90%E8%B7%AA%E5%9C%B0%E6%95%91%E4%BA%BA%E8%A2%AB%E7%83%AB%E4%BC%A4%23&Refer=top) `1.6M 🔥`
@@ -41,7 +44,6 @@
 1. [成都震感](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD%E9%9C%87%E6%84%9F&Refer=top) `1.0M 🔥`
 1. [B站回应崩溃补偿会自动续费](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%9B%9E%E5%BA%94%E5%B4%A9%E6%BA%83%E8%A1%A5%E5%81%BF%E4%BC%9A%E8%87%AA%E5%8A%A8%E7%BB%AD%E8%B4%B9%23&Refer=top) `1.0M 🔥`
 1. [美国女子赤身倒立卡墙缝里](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A5%B3%E5%AD%90%E8%B5%A4%E8%BA%AB%E5%80%92%E7%AB%8B%E5%8D%A1%E5%A2%99%E7%BC%9D%E9%87%8C%23&Refer=top) `1.0M 🔥`
-1. [24岁小伙高温天打球后当场猝死](https://s.weibo.com/weibo?q=%2324%E5%B2%81%E5%B0%8F%E4%BC%99%E9%AB%98%E6%B8%A9%E5%A4%A9%E6%89%93%E7%90%83%E5%90%8E%E5%BD%93%E5%9C%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `1.0M 🔥`
 1. [笔记本电脑需要每天关机吗](https://s.weibo.com/weibo?q=%23%E7%AC%94%E8%AE%B0%E6%9C%AC%E7%94%B5%E8%84%91%E9%9C%80%E8%A6%81%E6%AF%8F%E5%A4%A9%E5%85%B3%E6%9C%BA%E5%90%97%23&Refer=top) `1.0M 🔥`
 1. [人人视频回应大量内容下架](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E4%BA%BA%E8%A7%86%E9%A2%91%E5%9B%9E%E5%BA%94%E5%A4%A7%E9%87%8F%E5%86%85%E5%AE%B9%E4%B8%8B%E6%9E%B6%23&Refer=top) `963.1K 🔥`
 1. [男子月入上万拒支付儿子抚养费被判刑](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%9C%88%E5%85%A5%E4%B8%8A%E4%B8%87%E6%8B%92%E6%94%AF%E4%BB%98%E5%84%BF%E5%AD%90%E6%8A%9A%E5%85%BB%E8%B4%B9%E8%A2%AB%E5%88%A4%E5%88%91%23&Refer=top) `959.5K 🔥`
@@ -54,10 +56,8 @@
 1. [小布什称美国从阿富汗撤军是个错误](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%B8%83%E4%BB%80%E7%A7%B0%E7%BE%8E%E5%9B%BD%E4%BB%8E%E9%98%BF%E5%AF%8C%E6%B1%97%E6%92%A4%E5%86%9B%E6%98%AF%E4%B8%AA%E9%94%99%E8%AF%AF%23&Refer=top) `831.9K 🔥`
 1. [成都暴雨下到哪里了](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E6%9A%B4%E9%9B%A8%E4%B8%8B%E5%88%B0%E5%93%AA%E9%87%8C%E4%BA%86%23&Refer=top) `798.3K 🔥`
 1. [国防部回应美军机降落台湾](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%98%B2%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E5%86%9B%E6%9C%BA%E9%99%8D%E8%90%BD%E5%8F%B0%E6%B9%BE%23&Refer=top) `762.6K 🔥`
-1. [交警处理追尾在车中发现金钱豹](https://s.weibo.com/weibo?q=%23%E4%BA%A4%E8%AD%A6%E5%A4%84%E7%90%86%E8%BF%BD%E5%B0%BE%E5%9C%A8%E8%BD%A6%E4%B8%AD%E5%8F%91%E7%8E%B0%E9%87%91%E9%92%B1%E8%B1%B9%23&Refer=top) `758.2K 🔥`
-1. [5岁女童致舞伴瘫痪被判免责](https://s.weibo.com/weibo?q=%235%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%87%B4%E8%88%9E%E4%BC%B4%E7%98%AB%E7%97%AA%E8%A2%AB%E5%88%A4%E5%85%8D%E8%B4%A3%23&Refer=top) `756.8K 🔥`
 
-数据更新于 2021-07-15 18:57:32
+数据更新于 2021-07-15 19:18:03
 
 <!-- END -->
 
