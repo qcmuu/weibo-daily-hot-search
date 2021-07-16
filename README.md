@@ -7,11 +7,11 @@
 <!-- BEGIN -->
 
 1. [龚俊工作室注销](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E6%B3%A8%E9%94%80%23&Refer=top) `4.8M 🔥`
+1. [重庆两幼童坠亡生父被捕](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%A4%E5%B9%BC%E7%AB%A5%E5%9D%A0%E4%BA%A1%E7%94%9F%E7%88%B6%E8%A2%AB%E6%8D%95%23&Refer=top) `4.0M 🔥`
 1. [新郎被婚闹新娘拿棍子解围](https://s.weibo.com/weibo?q=%23%E6%96%B0%E9%83%8E%E8%A2%AB%E5%A9%9A%E9%97%B9%E6%96%B0%E5%A8%98%E6%8B%BF%E6%A3%8D%E5%AD%90%E8%A7%A3%E5%9B%B4%23&Refer=top) `3.1M 🔥`
 1. [金毛Siri主人发声](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%AF%9BSiri%E4%B8%BB%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `3.0M 🔥`
 1. [金毛Siri](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%AF%9BSiri%23&Refer=top) `2.7M 🔥`
 1. [研究称每天喝两杯也有患癌风险](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%A7%B0%E6%AF%8F%E5%A4%A9%E5%96%9D%E4%B8%A4%E6%9D%AF%E4%B9%9F%E6%9C%89%E6%82%A3%E7%99%8C%E9%A3%8E%E9%99%A9%23&Refer=top) `2.6M 🔥`
-1. [重庆两幼童坠亡生父被捕](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%A4%E5%B9%BC%E7%AB%A5%E5%9D%A0%E4%BA%A1%E7%94%9F%E7%88%B6%E8%A2%AB%E6%8D%95%23&Refer=top) `2.5M 🔥`
 1. [陈乔恩为金毛siri发声](https://s.weibo.com/weibo?q=%E9%99%88%E4%B9%94%E6%81%A9%E4%B8%BA%E9%87%91%E6%AF%9Bsiri%E5%8F%91%E5%A3%B0&Refer=top) `2.4M 🔥`
 1. [重庆坠亡小姐弟母亲发声](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%9D%A0%E4%BA%A1%E5%B0%8F%E5%A7%90%E5%BC%9F%E6%AF%8D%E4%BA%B2%E5%8F%91%E5%A3%B0%23&Refer=top) `2.3M 🔥`
 1. [京牌车现身东京街头](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E7%89%8C%E8%BD%A6%E7%8E%B0%E8%BA%AB%E4%B8%9C%E4%BA%AC%E8%A1%97%E5%A4%B4%23&Refer=top) `2.2M 🔥`
@@ -44,6 +44,7 @@
 1. [杨幂生图](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E7%94%9F%E5%9B%BE%23&Refer=top) `827.5K 🔥`
 1. [东莞发生持刀伤人事件致多人重伤](https://s.weibo.com/weibo?q=%E4%B8%9C%E8%8E%9E%E5%8F%91%E7%94%9F%E6%8C%81%E5%88%80%E4%BC%A4%E4%BA%BA%E4%BA%8B%E4%BB%B6%E8%87%B4%E5%A4%9A%E4%BA%BA%E9%87%8D%E4%BC%A4&Refer=top) `774.6K 🔥`
 1. [黄景瑜给误删资料考研粉丝加油](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E7%BB%99%E8%AF%AF%E5%88%A0%E8%B5%84%E6%96%99%E8%80%83%E7%A0%94%E7%B2%89%E4%B8%9D%E5%8A%A0%E6%B2%B9%23&Refer=top) `769.2K 🔥`
+1. [张哲瀚搀扶老奶奶下楼梯](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E6%90%80%E6%89%B6%E8%80%81%E5%A5%B6%E5%A5%B6%E4%B8%8B%E6%A5%BC%E6%A2%AF%23&Refer=top) `747.1K 🔥`
 1. [奥斯卡道歉](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E6%96%AF%E5%8D%A1%E9%81%93%E6%AD%89%23&Refer=top) `726.1K 🔥`
 1. [王一博方因车内被装追踪定位器报警](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%96%B9%E5%9B%A0%E8%BD%A6%E5%86%85%E8%A2%AB%E8%A3%85%E8%BF%BD%E8%B8%AA%E5%AE%9A%E4%BD%8D%E5%99%A8%E6%8A%A5%E8%AD%A6%23&Refer=top) `719.7K 🔥`
 1. [全麻都是怎么唤醒的](https://s.weibo.com/weibo?q=%23%E5%85%A8%E9%BA%BB%E9%83%BD%E6%98%AF%E6%80%8E%E4%B9%88%E5%94%A4%E9%86%92%E7%9A%84%23&Refer=top) `716.5K 🔥`
@@ -55,9 +56,8 @@
 1. [觉得这个海很漂亮的人反而跳下去了](https://s.weibo.com/weibo?q=%23%E8%A7%89%E5%BE%97%E8%BF%99%E4%B8%AA%E6%B5%B7%E5%BE%88%E6%BC%82%E4%BA%AE%E7%9A%84%E4%BA%BA%E5%8F%8D%E8%80%8C%E8%B7%B3%E4%B8%8B%E5%8E%BB%E4%BA%86%23&Refer=top) `700.3K 🔥`
 1. [哈尔滨一高校全班学生成功读研](https://s.weibo.com/weibo?q=%23%E5%93%88%E5%B0%94%E6%BB%A8%E4%B8%80%E9%AB%98%E6%A0%A1%E5%85%A8%E7%8F%AD%E5%AD%A6%E7%94%9F%E6%88%90%E5%8A%9F%E8%AF%BB%E7%A0%94%23&Refer=top) `699.7K 🔥`
 1. [难听](https://s.weibo.com/weibo?q=%E9%9A%BE%E5%90%AC&Refer=top) `697.8K 🔥`
-1. [麻辣烫届的天花板](https://s.weibo.com/weibo?q=%23%E9%BA%BB%E8%BE%A3%E7%83%AB%E5%B1%8A%E7%9A%84%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `689.8K 🔥`
 
-数据更新于 2021-07-16 15:30:44
+数据更新于 2021-07-16 15:47:30
 
 <!-- END -->
 
