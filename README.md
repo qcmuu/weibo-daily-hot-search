@@ -57,7 +57,7 @@
 1. [警方回应女子拿拖鞋拍打婴儿脸](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E6%8B%BF%E6%8B%96%E9%9E%8B%E6%8B%8D%E6%89%93%E5%A9%B4%E5%84%BF%E8%84%B8%23&Refer=top) `832.0K 🔥`
 1. [美国唐人街同一地点连续两天发生袭击事件](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%94%90%E4%BA%BA%E8%A1%97%E5%90%8C%E4%B8%80%E5%9C%B0%E7%82%B9%E8%BF%9E%E7%BB%AD%E4%B8%A4%E5%A4%A9%E5%8F%91%E7%94%9F%E8%A2%AD%E5%87%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `832.0K 🔥`
 
-数据更新于 2021-07-17 15:17:26
+数据更新于 2021-07-17 15:30:30
 
 <!-- END -->
 
