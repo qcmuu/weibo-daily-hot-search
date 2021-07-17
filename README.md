@@ -50,14 +50,14 @@
 1. [黄子韬 原来拍戏打个灯都可以变黑](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E5%8E%9F%E6%9D%A5%E6%8B%8D%E6%88%8F%E6%89%93%E4%B8%AA%E7%81%AF%E9%83%BD%E5%8F%AF%E4%BB%A5%E5%8F%98%E9%BB%91&Refer=top) `918.1K 🔥`
 1. [王一博十周年与十二周年红毯对比](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%8D%81%E5%91%A8%E5%B9%B4%E4%B8%8E%E5%8D%81%E4%BA%8C%E5%91%A8%E5%B9%B4%E7%BA%A2%E6%AF%AF%E5%AF%B9%E6%AF%94%23&Refer=top) `906.8K 🔥`
 1. [一甜Elaine 吴亦凡聊天记录](https://s.weibo.com/weibo?q=%E4%B8%80%E7%94%9CElaine%20%E5%90%B4%E4%BA%A6%E5%87%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `904.8K 🔥`
+1. [奶奶为保护孙女被疯牛撞骨折](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E5%A5%B6%E4%B8%BA%E4%BF%9D%E6%8A%A4%E5%AD%99%E5%A5%B3%E8%A2%AB%E7%96%AF%E7%89%9B%E6%92%9E%E9%AA%A8%E6%8A%98%23&Refer=top) `890.7K 🔥`
 1. [骨折风穿搭](https://s.weibo.com/weibo?q=%23%E9%AA%A8%E6%8A%98%E9%A3%8E%E7%A9%BF%E6%90%AD%23&Refer=top) `886.1K 🔥`
 1. [云南消防为防止你吃毒蘑菇有多拼](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%B6%88%E9%98%B2%E4%B8%BA%E9%98%B2%E6%AD%A2%E4%BD%A0%E5%90%83%E6%AF%92%E8%98%91%E8%8F%87%E6%9C%89%E5%A4%9A%E6%8B%BC%23&Refer=top) `848.2K 🔥`
 1. [成都数十辆车让道救护车成风景线](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E6%95%B0%E5%8D%81%E8%BE%86%E8%BD%A6%E8%AE%A9%E9%81%93%E6%95%91%E6%8A%A4%E8%BD%A6%E6%88%90%E9%A3%8E%E6%99%AF%E7%BA%BF%23&Refer=top) `838.2K 🔥`
 1. [罗小黑](https://s.weibo.com/weibo?q=%E7%BD%97%E5%B0%8F%E9%BB%91&Refer=top) `836.5K 🔥`
 1. [警方回应女子拿拖鞋拍打婴儿脸](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E6%8B%BF%E6%8B%96%E9%9E%8B%E6%8B%8D%E6%89%93%E5%A9%B4%E5%84%BF%E8%84%B8%23&Refer=top) `832.0K 🔥`
-1. [美国唐人街同一地点连续两天发生袭击事件](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%94%90%E4%BA%BA%E8%A1%97%E5%90%8C%E4%B8%80%E5%9C%B0%E7%82%B9%E8%BF%9E%E7%BB%AD%E4%B8%A4%E5%A4%A9%E5%8F%91%E7%94%9F%E8%A2%AD%E5%87%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `832.0K 🔥`
 
-数据更新于 2021-07-17 15:30:30
+数据更新于 2021-07-17 15:42:22
 
 <!-- END -->
 
