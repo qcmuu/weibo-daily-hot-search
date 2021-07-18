@@ -49,15 +49,15 @@
 1. [王一博无感舞台 EXO的Lotto](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%A0%E6%84%9F%E8%88%9E%E5%8F%B0%20EXO%E7%9A%84Lotto&Refer=top) `269.7K 🔥`
 1. [小鬼说电竞行业太残酷了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%AC%BC%E8%AF%B4%E7%94%B5%E7%AB%9E%E8%A1%8C%E4%B8%9A%E5%A4%AA%E6%AE%8B%E9%85%B7%E4%BA%86%23&Refer=top) `242.1K 🔥`
 1. [LPL](https://s.weibo.com/weibo?q=LPL&Refer=top) `237.7K 🔥`
+1. [脱粉](https://s.weibo.com/weibo?q=%E8%84%B1%E7%B2%89&Refer=top) `235.6K 🔥`
 1. [写给3位航天员的出征满月信](https://s.weibo.com/weibo?q=%23%E5%86%99%E7%BB%993%E4%BD%8D%E8%88%AA%E5%A4%A9%E5%91%98%E7%9A%84%E5%87%BA%E5%BE%81%E6%BB%A1%E6%9C%88%E4%BF%A1%23&Refer=top) `229.3K 🔥`
-1. [脱粉](https://s.weibo.com/weibo?q=%E8%84%B1%E7%B2%89&Refer=top) `228.6K 🔥`
 1. [南京玄武湖罕见双色睡莲](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%8E%84%E6%AD%A6%E6%B9%96%E7%BD%95%E8%A7%81%E5%8F%8C%E8%89%B2%E7%9D%A1%E8%8E%B2%23&Refer=top) `220.9K 🔥`
 1. [部分电动牙刷清洁效果甚至不如普通牙刷](https://s.weibo.com/weibo?q=%23%E9%83%A8%E5%88%86%E7%94%B5%E5%8A%A8%E7%89%99%E5%88%B7%E6%B8%85%E6%B4%81%E6%95%88%E6%9E%9C%E7%94%9A%E8%87%B3%E4%B8%8D%E5%A6%82%E6%99%AE%E9%80%9A%E7%89%99%E5%88%B7%23&Refer=top) `217.5K 🔥`
 1. [两男孩街头玩火烧毁7辆车](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E7%94%B7%E5%AD%A9%E8%A1%97%E5%A4%B4%E7%8E%A9%E7%81%AB%E7%83%A7%E6%AF%817%E8%BE%86%E8%BD%A6%23&Refer=top) `198.8K 🔥`
 1. [柯雷天降女儿](https://s.weibo.com/weibo?q=%23%E6%9F%AF%E9%9B%B7%E5%A4%A9%E9%99%8D%E5%A5%B3%E5%84%BF%23&Refer=top) `185.9K 🔥`
 1. [爸爸花8小时给娃雕奥特曼豆腐](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E8%8A%B18%E5%B0%8F%E6%97%B6%E7%BB%99%E5%A8%83%E9%9B%95%E5%A5%A5%E7%89%B9%E6%9B%BC%E8%B1%86%E8%85%90%23&Refer=top) `185.4K 🔥`
 
-数据更新于 2021-07-19 00:47:44
+数据更新于 2021-07-19 01:09:04
 
 <!-- END -->
 
