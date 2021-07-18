@@ -55,9 +55,9 @@
 1. [王一博无感舞台 EXO的Lotto](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%A0%E6%84%9F%E8%88%9E%E5%8F%B0%20EXO%E7%9A%84Lotto&Refer=top) `269.7K 🔥`
 1. [小鬼说电竞行业太残酷了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%AC%BC%E8%AF%B4%E7%94%B5%E7%AB%9E%E8%A1%8C%E4%B8%9A%E5%A4%AA%E6%AE%8B%E9%85%B7%E4%BA%86%23&Refer=top) `242.1K 🔥`
 1. [LPL](https://s.weibo.com/weibo?q=LPL&Refer=top) `237.7K 🔥`
-1. [写给3位航天员的出征满月信](https://s.weibo.com/weibo?q=%23%E5%86%99%E7%BB%993%E4%BD%8D%E8%88%AA%E5%A4%A9%E5%91%98%E7%9A%84%E5%87%BA%E5%BE%81%E6%BB%A1%E6%9C%88%E4%BF%A1%23&Refer=top) `229.3K 🔥`
+1. [撞劳斯莱斯外卖小哥称自己是正常直行](https://s.weibo.com/weibo?q=%23%E6%92%9E%E5%8A%B3%E6%96%AF%E8%8E%B1%E6%96%AF%E5%A4%96%E5%8D%96%E5%B0%8F%E5%93%A5%E7%A7%B0%E8%87%AA%E5%B7%B1%E6%98%AF%E6%AD%A3%E5%B8%B8%E7%9B%B4%E8%A1%8C%23&Refer=top) `231.0K 🔥`
 
-数据更新于 2021-07-19 06:21:30
+数据更新于 2021-07-19 06:40:14
 
 <!-- END -->
 
