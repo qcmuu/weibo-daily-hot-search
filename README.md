@@ -21,6 +21,7 @@
 1. [管泽元五杀](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E4%BA%94%E6%9D%80%23&Refer=top) `7.2M 🔥`
 1. [女性甲状腺结节发生率约是男性的3倍](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%80%A7%E7%94%B2%E7%8A%B6%E8%85%BA%E7%BB%93%E8%8A%82%E5%8F%91%E7%94%9F%E7%8E%87%E7%BA%A6%E6%98%AF%E7%94%B7%E6%80%A7%E7%9A%843%E5%80%8D%23&Refer=top) `6.5M 🔥`
 1. [韩束直播间](https://s.weibo.com/weibo?q=%E9%9F%A9%E6%9D%9F%E7%9B%B4%E6%92%AD%E9%97%B4&Refer=top) `5.8M 🔥`
+1. [法律是道德的最低标准](https://s.weibo.com/weibo?q=%23%E6%B3%95%E5%BE%8B%E6%98%AF%E9%81%93%E5%BE%B7%E7%9A%84%E6%9C%80%E4%BD%8E%E6%A0%87%E5%87%86%23&Refer=top) `5.7M 🔥`
 1. [怒江大桥上摆满了鲜花水果](https://s.weibo.com/weibo?q=%23%E6%80%92%E6%B1%9F%E5%A4%A7%E6%A1%A5%E4%B8%8A%E6%91%86%E6%BB%A1%E4%BA%86%E9%B2%9C%E8%8A%B1%E6%B0%B4%E6%9E%9C%23&Refer=top) `5.4M 🔥`
 1. [云听终止与吴亦凡一切合作](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%90%AC%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E4%B8%80%E5%88%87%E5%90%88%E4%BD%9C%23&Refer=top) `5.3M 🔥`
 1. [网友想对都美竹说的话](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%83%B3%E5%AF%B9%E9%83%BD%E7%BE%8E%E7%AB%B9%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `5.2M 🔥`
@@ -32,7 +33,6 @@
 1. [魏雨欣吴亦凡 聊天记录](https://s.weibo.com/weibo?q=%E9%AD%8F%E9%9B%A8%E6%AC%A3%E5%90%B4%E4%BA%A6%E5%87%A1%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `3.5M 🔥`
 1. [建议男明星按照这个标准卷](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E7%94%B7%E6%98%8E%E6%98%9F%E6%8C%89%E7%85%A7%E8%BF%99%E4%B8%AA%E6%A0%87%E5%87%86%E5%8D%B7%23&Refer=top) `3.5M 🔥`
 1. [老板发福利女员工搬走一车榴莲](https://s.weibo.com/weibo?q=%23%E8%80%81%E6%9D%BF%E5%8F%91%E7%A6%8F%E5%88%A9%E5%A5%B3%E5%91%98%E5%B7%A5%E6%90%AC%E8%B5%B0%E4%B8%80%E8%BD%A6%E6%A6%B4%E8%8E%B2%23&Refer=top) `3.4M 🔥`
-1. [法律是道德的最低标准](https://s.weibo.com/weibo?q=%23%E6%B3%95%E5%BE%8B%E6%98%AF%E9%81%93%E5%BE%B7%E7%9A%84%E6%9C%80%E4%BD%8E%E6%A0%87%E5%87%86%23&Refer=top) `3.4M 🔥`
 1. [男子为当贴吧吧主向百度员工行贿宝马](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BA%E5%BD%93%E8%B4%B4%E5%90%A7%E5%90%A7%E4%B8%BB%E5%90%91%E7%99%BE%E5%BA%A6%E5%91%98%E5%B7%A5%E8%A1%8C%E8%B4%BF%E5%AE%9D%E9%A9%AC%23&Refer=top) `3.3M 🔥`
 1. [小孩子的攀比有多好笑](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E5%AD%90%E7%9A%84%E6%94%80%E6%AF%94%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%AC%91%23&Refer=top) `3.3M 🔥`
 1. [豆瓣崩了](https://s.weibo.com/weibo?q=%23%E8%B1%86%E7%93%A3%E5%B4%A9%E4%BA%86%23&Refer=top) `3.3M 🔥`
@@ -57,7 +57,7 @@
 1. [为什么印度的食物大多是糊糊](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%8D%B0%E5%BA%A6%E7%9A%84%E9%A3%9F%E7%89%A9%E5%A4%A7%E5%A4%9A%E6%98%AF%E7%B3%8A%E7%B3%8A%23&Refer=top) `1.6M 🔥`
 1. [阿富汗驻巴基斯坦大使女儿遭绑架](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A9%BB%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E5%A4%A7%E4%BD%BF%E5%A5%B3%E5%84%BF%E9%81%AD%E7%BB%91%E6%9E%B6%23&Refer=top) `1.6M 🔥`
 
-数据更新于 2021-07-19 16:44:03
+数据更新于 2021-07-19 16:57:31
 
 <!-- END -->
 
