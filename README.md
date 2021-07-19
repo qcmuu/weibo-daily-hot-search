@@ -16,6 +16,7 @@
 1. [张丹三吴亦凡 聊天记录](https://s.weibo.com/weibo?q=%E5%BC%A0%E4%B8%B9%E4%B8%89%E5%90%B4%E4%BA%A6%E5%87%A1%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `8.9M 🔥`
 1. [奶奶去世亲属在遗物中发现爷爷烈士证](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E5%A5%B6%E5%8E%BB%E4%B8%96%E4%BA%B2%E5%B1%9E%E5%9C%A8%E9%81%97%E7%89%A9%E4%B8%AD%E5%8F%91%E7%8E%B0%E7%88%B7%E7%88%B7%E7%83%88%E5%A3%AB%E8%AF%81%23&Refer=top) `8.7M 🔥`
 1. [韩束与吴亦凡解约](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E6%9D%9F%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E8%A7%A3%E7%BA%A6%23&Refer=top) `8.0M 🔥`
+1. [林更新与美女一同出游](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%9B%B4%E6%96%B0%E4%B8%8E%E7%BE%8E%E5%A5%B3%E4%B8%80%E5%90%8C%E5%87%BA%E6%B8%B8%23&Refer=top) `8.0M 🔥`
 1. [旅游博主亵渎英烈被平台永久封号](https://s.weibo.com/weibo?q=%23%E6%97%85%E6%B8%B8%E5%8D%9A%E4%B8%BB%E4%BA%B5%E6%B8%8E%E8%8B%B1%E7%83%88%E8%A2%AB%E5%B9%B3%E5%8F%B0%E6%B0%B8%E4%B9%85%E5%B0%81%E5%8F%B7%23&Refer=top) `7.6M 🔥`
 1. [朴灿烈私生活虚假传闻发帖人移送检方](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E7%81%BF%E7%83%88%E7%A7%81%E7%94%9F%E6%B4%BB%E8%99%9A%E5%81%87%E4%BC%A0%E9%97%BB%E5%8F%91%E5%B8%96%E4%BA%BA%E7%A7%BB%E9%80%81%E6%A3%80%E6%96%B9%23&Refer=top) `7.3M 🔥`
 1. [管泽元五杀](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E4%BA%94%E6%9D%80%23&Refer=top) `7.2M 🔥`
@@ -26,10 +27,10 @@
 1. [云听终止与吴亦凡一切合作](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%90%AC%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E4%B8%80%E5%88%87%E5%90%88%E4%BD%9C%23&Refer=top) `5.3M 🔥`
 1. [网友想对都美竹说的话](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%83%B3%E5%AF%B9%E9%83%BD%E7%BE%8E%E7%AB%B9%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `5.2M 🔥`
 1. [男孩开冰可乐被炸伤缝38针](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E5%BC%80%E5%86%B0%E5%8F%AF%E4%B9%90%E8%A2%AB%E7%82%B8%E4%BC%A4%E7%BC%9D38%E9%92%88%23&Refer=top) `5.1M 🔥`
-1. [林更新与美女一同出游](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%9B%B4%E6%96%B0%E4%B8%8E%E7%BE%8E%E5%A5%B3%E4%B8%80%E5%90%8C%E5%87%BA%E6%B8%B8%23&Refer=top) `5.1M 🔥`
+1. [我是真的爱你](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%98%AF%E7%9C%9F%E7%9A%84%E7%88%B1%E4%BD%A0%23&Refer=top) `4.7M 🔥`
+1. [於佳怡吴亦凡 聊天记录](https://s.weibo.com/weibo?q=%E6%96%BC%E4%BD%B3%E6%80%A1%E5%90%B4%E4%BA%A6%E5%87%A1%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `4.7M 🔥`
 1. [女孩公交被裙底偷拍径直告诉司机](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E5%85%AC%E4%BA%A4%E8%A2%AB%E8%A3%99%E5%BA%95%E5%81%B7%E6%8B%8D%E5%BE%84%E7%9B%B4%E5%91%8A%E8%AF%89%E5%8F%B8%E6%9C%BA%23&Refer=top) `4.5M 🔥`
 1. [江苏籍冠军陈若琳担任奥运会跳水裁判](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E7%B1%8D%E5%86%A0%E5%86%9B%E9%99%88%E8%8B%A5%E7%90%B3%E6%8B%85%E4%BB%BB%E5%A5%A5%E8%BF%90%E4%BC%9A%E8%B7%B3%E6%B0%B4%E8%A3%81%E5%88%A4%23&Refer=top) `4.0M 🔥`
-1. [於佳怡吴亦凡 聊天记录](https://s.weibo.com/weibo?q=%E6%96%BC%E4%BD%B3%E6%80%A1%E5%90%B4%E4%BA%A6%E5%87%A1%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `4.0M 🔥`
 1. [中国演出行业协会发声](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%BC%94%E5%87%BA%E8%A1%8C%E4%B8%9A%E5%8D%8F%E4%BC%9A%E5%8F%91%E5%A3%B0%23&Refer=top) `4.0M 🔥`
 1. [谢楠回应点赞](https://s.weibo.com/weibo?q=%E8%B0%A2%E6%A5%A0%E5%9B%9E%E5%BA%94%E7%82%B9%E8%B5%9E&Refer=top) `3.9M 🔥`
 1. [吴亦凡表哥关联的多家公司接连注销清算](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E8%A1%A8%E5%93%A5%E5%85%B3%E8%81%94%E7%9A%84%E5%A4%9A%E5%AE%B6%E5%85%AC%E5%8F%B8%E6%8E%A5%E8%BF%9E%E6%B3%A8%E9%94%80%E6%B8%85%E7%AE%97%23&Refer=top) `3.8M 🔥`
@@ -55,9 +56,8 @@
 1. [西安美院回应8考生录取2天后遭退档](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E7%BE%8E%E9%99%A2%E5%9B%9E%E5%BA%948%E8%80%83%E7%94%9F%E5%BD%95%E5%8F%962%E5%A4%A9%E5%90%8E%E9%81%AD%E9%80%80%E6%A1%A3%23&Refer=top) `2.5M 🔥`
 1. [你又不是小章 吴亦凡工作人员聊天记录](https://s.weibo.com/weibo?q=%E4%BD%A0%E5%8F%88%E4%B8%8D%E6%98%AF%E5%B0%8F%E7%AB%A0%20%E5%90%B4%E4%BA%A6%E5%87%A1%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `2.4M 🔥`
 1. [吴亦凡回应](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%9B%9E%E5%BA%94%23&Refer=top) `2.3M 🔥`
-1. [夏天开空调26度省电还是28度](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E5%A4%A9%E5%BC%80%E7%A9%BA%E8%B0%8326%E5%BA%A6%E7%9C%81%E7%94%B5%E8%BF%98%E6%98%AF28%E5%BA%A6%23&Refer=top) `2.2M 🔥`
 
-数据更新于 2021-07-19 20:00:20
+数据更新于 2021-07-19 20:46:36
 
 <!-- END -->
 
