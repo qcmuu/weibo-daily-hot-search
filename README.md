@@ -12,6 +12,7 @@
 1. [吴亦凡杭州粉丝见面会门票3000跌到300](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E6%9D%AD%E5%B7%9E%E7%B2%89%E4%B8%9D%E8%A7%81%E9%9D%A2%E4%BC%9A%E9%97%A8%E7%A5%A83000%E8%B7%8C%E5%88%B0300%23&Refer=top) `5.6M 🔥`
 1. [十三部门发文支持女性科技人才发展](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B8%89%E9%83%A8%E9%97%A8%E5%8F%91%E6%96%87%E6%94%AF%E6%8C%81%E5%A5%B3%E6%80%A7%E7%A7%91%E6%8A%80%E4%BA%BA%E6%89%8D%E5%8F%91%E5%B1%95%23&Refer=top) `5.3M 🔥`
 1. [女方生育三孩享受国家法定产假98天](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%96%B9%E7%94%9F%E8%82%B2%E4%B8%89%E5%AD%A9%E4%BA%AB%E5%8F%97%E5%9B%BD%E5%AE%B6%E6%B3%95%E5%AE%9A%E4%BA%A7%E5%81%8798%E5%A4%A9%23&Refer=top) `4.5M 🔥`
+1. [欧阳娜娜剪了短发](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E5%89%AA%E4%BA%86%E7%9F%AD%E5%8F%91%23&Refer=top) `4.4M 🔥`
 1. [皓衣行](https://s.weibo.com/weibo?q=%E7%9A%93%E8%A1%A3%E8%A1%8C&Refer=top) `4.0M 🔥`
 1. [全国最长录取通知书](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%9C%80%E9%95%BF%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `3.9M 🔥`
 1. [兰蔻恢复吴亦凡相关微博](https://s.weibo.com/weibo?q=%23%E5%85%B0%E8%94%BB%E6%81%A2%E5%A4%8D%E5%90%B4%E4%BA%A6%E5%87%A1%E7%9B%B8%E5%85%B3%E5%BE%AE%E5%8D%9A%23&Refer=top) `3.9M 🔥`
@@ -39,7 +40,6 @@
 1. [入住五星酒店被地毯下钉子扎伤脚](https://s.weibo.com/weibo?q=%23%E5%85%A5%E4%BD%8F%E4%BA%94%E6%98%9F%E9%85%92%E5%BA%97%E8%A2%AB%E5%9C%B0%E6%AF%AF%E4%B8%8B%E9%92%89%E5%AD%90%E6%89%8E%E4%BC%A4%E8%84%9A%23&Refer=top) `3.0M 🔥`
 1. [刘丹称杨幂小糯米因疫情一年没见](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%B8%B9%E7%A7%B0%E6%9D%A8%E5%B9%82%E5%B0%8F%E7%B3%AF%E7%B1%B3%E5%9B%A0%E7%96%AB%E6%83%85%E4%B8%80%E5%B9%B4%E6%B2%A1%E8%A7%81%23&Refer=top) `3.0M 🔥`
 1. [安乐传](https://s.weibo.com/weibo?q=%E5%AE%89%E4%B9%90%E4%BC%A0&Refer=top) `2.9M 🔥`
-1. [欧阳娜娜剪了短发](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E5%89%AA%E4%BA%86%E7%9F%AD%E5%8F%91%23&Refer=top) `2.9M 🔥`
 1. [毛可异](https://s.weibo.com/weibo?q=%E6%AF%9B%E5%8F%AF%E5%BC%82&Refer=top) `2.9M 🔥`
 1. [广东清远一护士感染阿尔法变异株](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E6%B8%85%E8%BF%9C%E4%B8%80%E6%8A%A4%E5%A3%AB%E6%84%9F%E6%9F%93%E9%98%BF%E5%B0%94%E6%B3%95%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `2.6M 🔥`
 1. [张陶被批捕](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%99%B6%E8%A2%AB%E6%89%B9%E6%8D%95%23&Refer=top) `2.6M 🔥`
@@ -57,7 +57,7 @@
 1. [2岁半孙女帮爷爷盖被子还要手拉手](https://s.weibo.com/weibo?q=%232%E5%B2%81%E5%8D%8A%E5%AD%99%E5%A5%B3%E5%B8%AE%E7%88%B7%E7%88%B7%E7%9B%96%E8%A2%AB%E5%AD%90%E8%BF%98%E8%A6%81%E6%89%8B%E6%8B%89%E6%89%8B%23&Refer=top) `1.5M 🔥`
 1. [抽烟男子转头看见有婴儿主动掐灭](https://s.weibo.com/weibo?q=%23%E6%8A%BD%E7%83%9F%E7%94%B7%E5%AD%90%E8%BD%AC%E5%A4%B4%E7%9C%8B%E8%A7%81%E6%9C%89%E5%A9%B4%E5%84%BF%E4%B8%BB%E5%8A%A8%E6%8E%90%E7%81%AD%23&Refer=top) `1.4M 🔥`
 
-数据更新于 2021-07-20 13:30:04
+数据更新于 2021-07-20 13:42:38
 
 <!-- END -->
 
