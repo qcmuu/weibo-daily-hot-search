@@ -49,15 +49,15 @@
 1. [郑州进入特大自然灾难一级战备状态](https://s.weibo.com/weibo?q=%E9%83%91%E5%B7%9E%E8%BF%9B%E5%85%A5%E7%89%B9%E5%A4%A7%E8%87%AA%E7%84%B6%E7%81%BE%E9%9A%BE%E4%B8%80%E7%BA%A7%E6%88%98%E5%A4%87%E7%8A%B6%E6%80%81&Refer=top) `2.2M 🔥`
 1. [郑大一附院ICU已恢复供电](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%A4%A7%E4%B8%80%E9%99%84%E9%99%A2ICU%E5%B7%B2%E6%81%A2%E5%A4%8D%E4%BE%9B%E7%94%B5%23&Refer=top) `2.2M 🔥`
 1. [一家三口掉进积水坑路人舍命救援](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%AE%B6%E4%B8%89%E5%8F%A3%E6%8E%89%E8%BF%9B%E7%A7%AF%E6%B0%B4%E5%9D%91%E8%B7%AF%E4%BA%BA%E8%88%8D%E5%91%BD%E6%95%91%E6%8F%B4%23&Refer=top) `2.1M 🔥`
+1. [郑州小时雨强突破中国大陆历史极值](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%B0%8F%E6%97%B6%E9%9B%A8%E5%BC%BA%E7%AA%81%E7%A0%B4%E4%B8%AD%E5%9B%BD%E5%A4%A7%E9%99%86%E5%8E%86%E5%8F%B2%E6%9E%81%E5%80%BC%23&Refer=top) `2.1M 🔥`
+1. [河南挺住我们来了](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%8C%BA%E4%BD%8F%E6%88%91%E4%BB%AC%E6%9D%A5%E4%BA%86%23&Refer=top) `2.1M 🔥`
 1. [去哪儿今明入住郑州酒店旅客可免费取消](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%93%AA%E5%84%BF%E4%BB%8A%E6%98%8E%E5%85%A5%E4%BD%8F%E9%83%91%E5%B7%9E%E9%85%92%E5%BA%97%E6%97%85%E5%AE%A2%E5%8F%AF%E5%85%8D%E8%B4%B9%E5%8F%96%E6%B6%88%23&Refer=top) `2.1M 🔥`
 1. [河南的雨要下多久](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E7%9A%84%E9%9B%A8%E8%A6%81%E4%B8%8B%E5%A4%9A%E4%B9%85%23&Refer=top) `2.1M 🔥`
 1. [张杰谢娜捐款100万元驰援河南](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E8%B0%A2%E5%A8%9C%E6%8D%90%E6%AC%BE100%E4%B8%87%E5%85%83%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `2.1M 🔥`
 1. [郑州地铁5号线一车厢多人被困](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%815%E5%8F%B7%E7%BA%BF%E4%B8%80%E8%BD%A6%E5%8E%A2%E5%A4%9A%E4%BA%BA%E8%A2%AB%E5%9B%B0%23&Refer=top) `2.1M 🔥`
 1. [谭松韵为河南捐款50万](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E6%9D%BE%E9%9F%B5%E4%B8%BA%E6%B2%B3%E5%8D%97%E6%8D%90%E6%AC%BE50%E4%B8%87%23&Refer=top) `2.1M 🔥`
-1. [郑州主持人小佩回忆地铁隧道脱困](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%BB%E6%8C%81%E4%BA%BA%E5%B0%8F%E4%BD%A9%E5%9B%9E%E5%BF%86%E5%9C%B0%E9%93%81%E9%9A%A7%E9%81%93%E8%84%B1%E5%9B%B0%23&Refer=top) `2.1M 🔥`
-1. [世界首富贝索斯上太空](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E9%A6%96%E5%AF%8C%E8%B4%9D%E7%B4%A2%E6%96%AF%E4%B8%8A%E5%A4%AA%E7%A9%BA%23&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-07-21 14:56:15
+数据更新于 2021-07-21 15:19:35
 
 <!-- END -->
 
