@@ -21,6 +21,7 @@
 1. [南京发现17例新冠阳性患者](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%8F%91%E7%8E%B017%E4%BE%8B%E6%96%B0%E5%86%A0%E9%98%B3%E6%80%A7%E6%82%A3%E8%80%85%23&Refer=top) `4.9M 🔥`
 1. [交通部要求汲取地铁雨水倒灌事件教训](https://s.weibo.com/weibo?q=%23%E4%BA%A4%E9%80%9A%E9%83%A8%E8%A6%81%E6%B1%82%E6%B1%B2%E5%8F%96%E5%9C%B0%E9%93%81%E9%9B%A8%E6%B0%B4%E5%80%92%E7%81%8C%E4%BA%8B%E4%BB%B6%E6%95%99%E8%AE%AD%23&Refer=top) `4.9M 🔥`
 1. [郑州暴雨已致25死7失联](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E5%B7%B2%E8%87%B425%E6%AD%BB7%E5%A4%B1%E8%81%94%23&Refer=top) `4.9M 🔥`
+1. [一网民辱骂受灾河南人民被行拘](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%BD%91%E6%B0%91%E8%BE%B1%E9%AA%82%E5%8F%97%E7%81%BE%E6%B2%B3%E5%8D%97%E4%BA%BA%E6%B0%91%E8%A2%AB%E8%A1%8C%E6%8B%98%23&Refer=top) `4.7M 🔥`
 1. [南京疫情](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%96%AB%E6%83%85%23&Refer=top) `4.7M 🔥`
 1. [郑州街头众人抱团喊口号过马路](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E8%A1%97%E5%A4%B4%E4%BC%97%E4%BA%BA%E6%8A%B1%E5%9B%A2%E5%96%8A%E5%8F%A3%E5%8F%B7%E8%BF%87%E9%A9%AC%E8%B7%AF%23&Refer=top) `4.7M 🔥`
 1. [黄子韬捐款300万元驰援河南](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E6%8D%90%E6%AC%BE300%E4%B8%87%E5%85%83%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `4.4M 🔥`
@@ -55,9 +56,8 @@
 1. [王一博随韩红爱心基金会驰援河南](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E9%9A%8F%E9%9F%A9%E7%BA%A2%E7%88%B1%E5%BF%83%E5%9F%BA%E9%87%91%E4%BC%9A%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `2.4M 🔥`
 1. [南京禄口机场](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%A6%84%E5%8F%A3%E6%9C%BA%E5%9C%BA%23&Refer=top) `2.3M 🔥`
 1. [赵立坚说相信河南人民一定能战胜灾害](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E7%9B%B8%E4%BF%A1%E6%B2%B3%E5%8D%97%E4%BA%BA%E6%B0%91%E4%B8%80%E5%AE%9A%E8%83%BD%E6%88%98%E8%83%9C%E7%81%BE%E5%AE%B3%23&Refer=top) `2.3M 🔥`
-1. [请让我上](https://s.weibo.com/weibo?q=%23%E8%AF%B7%E8%AE%A9%E6%88%91%E4%B8%8A%23&Refer=top) `2.3M 🔥`
 
-数据更新于 2021-07-21 19:59:57
+数据更新于 2021-07-21 20:38:30
 
 <!-- END -->
 
