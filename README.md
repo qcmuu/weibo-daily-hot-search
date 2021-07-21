@@ -29,6 +29,7 @@
 1. [郑州雨势再次加强](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%9B%A8%E5%8A%BF%E5%86%8D%E6%AC%A1%E5%8A%A0%E5%BC%BA%23&Refer=top) `4.3M 🔥`
 1. [腾讯宣布捐款1亿元驰援河南](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%AE%A3%E5%B8%83%E6%8D%90%E6%AC%BE1%E4%BA%BF%E5%85%83%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `4.0M 🔥`
 1. [LV总部回应邮件](https://s.weibo.com/weibo?q=%23LV%E6%80%BB%E9%83%A8%E5%9B%9E%E5%BA%94%E9%82%AE%E4%BB%B6%23&Refer=top) `3.9M 🔥`
+1. [周口泄洪](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%8F%A3%E6%B3%84%E6%B4%AA%23&Refer=top) `3.9M 🔥`
 1. [郑州地铁](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%81%23&Refer=top) `3.6M 🔥`
 1. [字母哥哭了](https://s.weibo.com/weibo?q=%23%E5%AD%97%E6%AF%8D%E5%93%A5%E5%93%AD%E4%BA%86%23&Refer=top) `3.4M 🔥`
 1. [盒马集市河南开仓抗灾](https://s.weibo.com/weibo?q=%23%E7%9B%92%E9%A9%AC%E9%9B%86%E5%B8%82%E6%B2%B3%E5%8D%97%E5%BC%80%E4%BB%93%E6%8A%97%E7%81%BE%23&Refer=top) `3.3M 🔥`
@@ -44,6 +45,7 @@
 1. [女子被丈夫从2楼推下后选择原谅](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%A2%AB%E4%B8%88%E5%A4%AB%E4%BB%8E2%E6%A5%BC%E6%8E%A8%E4%B8%8B%E5%90%8E%E9%80%89%E6%8B%A9%E5%8E%9F%E8%B0%85%23&Refer=top) `2.9M 🔥`
 1. [河南挺住我们来了](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%8C%BA%E4%BD%8F%E6%88%91%E4%BB%AC%E6%9D%A5%E4%BA%86%23&Refer=top) `2.9M 🔥`
 1. [南京鼓楼医院](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BA%AC%E9%BC%93%E6%A5%BC%E5%8C%BB%E9%99%A2&Refer=top) `2.9M 🔥`
+1. [王一博随韩红爱心基金会驰援河南](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E9%9A%8F%E9%9F%A9%E7%BA%A2%E7%88%B1%E5%BF%83%E5%9F%BA%E9%87%91%E4%BC%9A%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `2.9M 🔥`
 1. [河南这次暴雨为什么这么强](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E8%BF%99%E6%AC%A1%E6%9A%B4%E9%9B%A8%E4%B8%BA%E4%BB%80%E4%B9%88%E8%BF%99%E4%B9%88%E5%BC%BA%23&Refer=top) `2.8M 🔥`
 1. [河南暴雨辟谣消息汇总](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%9A%B4%E9%9B%A8%E8%BE%9F%E8%B0%A3%E6%B6%88%E6%81%AF%E6%B1%87%E6%80%BB%23&Refer=top) `2.7M 🔥`
 1. [郑州150名幼儿园师生被成功救出](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E150%E5%90%8D%E5%B9%BC%E5%84%BF%E5%9B%AD%E5%B8%88%E7%94%9F%E8%A2%AB%E6%88%90%E5%8A%9F%E6%95%91%E5%87%BA%23&Refer=top) `2.7M 🔥`
@@ -53,11 +55,9 @@
 1. [郑州三天下出了一年的雨](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%89%E5%A4%A9%E4%B8%8B%E5%87%BA%E4%BA%86%E4%B8%80%E5%B9%B4%E7%9A%84%E9%9B%A8%23&Refer=top) `2.5M 🔥`
 1. [郑州泄洪](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%B3%84%E6%B4%AA%23&Refer=top) `2.5M 🔥`
 1. [时代少年团向河南灾区捐款100万元](https://s.weibo.com/weibo?q=%23%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E5%90%91%E6%B2%B3%E5%8D%97%E7%81%BE%E5%8C%BA%E6%8D%90%E6%AC%BE100%E4%B8%87%E5%85%83%23&Refer=top) `2.5M 🔥`
-1. [王一博随韩红爱心基金会驰援河南](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E9%9A%8F%E9%9F%A9%E7%BA%A2%E7%88%B1%E5%BF%83%E5%9F%BA%E9%87%91%E4%BC%9A%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `2.4M 🔥`
-1. [南京禄口机场](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%A6%84%E5%8F%A3%E6%9C%BA%E5%9C%BA%23&Refer=top) `2.3M 🔥`
-1. [赵立坚说相信河南人民一定能战胜灾害](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E7%9B%B8%E4%BF%A1%E6%B2%B3%E5%8D%97%E4%BA%BA%E6%B0%91%E4%B8%80%E5%AE%9A%E8%83%BD%E6%88%98%E8%83%9C%E7%81%BE%E5%AE%B3%23&Refer=top) `2.3M 🔥`
+1. [新乡暴雨](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A1%E6%9A%B4%E9%9B%A8%23&Refer=top) `2.5M 🔥`
 
-数据更新于 2021-07-21 21:05:14
+数据更新于 2021-07-21 21:30:08
 
 <!-- END -->
 
