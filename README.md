@@ -21,10 +21,10 @@
 1. [陕西发现1只纯白色小梅花鹿](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E5%8F%91%E7%8E%B01%E5%8F%AA%E7%BA%AF%E7%99%BD%E8%89%B2%E5%B0%8F%E6%A2%85%E8%8A%B1%E9%B9%BF%23&Refer=top) `2.7M 🔥`
 1. [郑州预计23点恢复供电](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%A2%84%E8%AE%A123%E7%82%B9%E6%81%A2%E5%A4%8D%E4%BE%9B%E7%94%B5%23&Refer=top) `2.7M 🔥`
 1. [新乡暴雨](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A1%E6%9A%B4%E9%9B%A8%23&Refer=top) `2.6M 🔥`
+1. [郑州地铁5号线被困原因](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%815%E5%8F%B7%E7%BA%BF%E8%A2%AB%E5%9B%B0%E5%8E%9F%E5%9B%A0%23&Refer=top) `2.5M 🔥`
 1. [300斤举重女将这样睡纸板床](https://s.weibo.com/weibo?q=%23300%E6%96%A4%E4%B8%BE%E9%87%8D%E5%A5%B3%E5%B0%86%E8%BF%99%E6%A0%B7%E7%9D%A1%E7%BA%B8%E6%9D%BF%E5%BA%8A%23&Refer=top) `2.4M 🔥`
 1. [郑州高铁站希岸酒店涨价到2888](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%AB%98%E9%93%81%E7%AB%99%E5%B8%8C%E5%B2%B8%E9%85%92%E5%BA%97%E6%B6%A8%E4%BB%B7%E5%88%B02888%23&Refer=top) `2.4M 🔥`
 1. [郑州暴雨后人间百态](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E5%90%8E%E4%BA%BA%E9%97%B4%E7%99%BE%E6%80%81%23&Refer=top) `2.4M 🔥`
-1. [郑州地铁5号线被困原因](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%815%E5%8F%B7%E7%BA%BF%E8%A2%AB%E5%9B%B0%E5%8E%9F%E5%9B%A0%23&Refer=top) `2.4M 🔥`
 1. [山东发现首例输入性德尔塔毒株感染者](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%8F%91%E7%8E%B0%E9%A6%96%E4%BE%8B%E8%BE%93%E5%85%A5%E6%80%A7%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%E6%84%9F%E6%9F%93%E8%80%85%23&Refer=top) `2.2M 🔥`
 1. [女医生回家途中救助车祸男子婉拒千元红包](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%8C%BB%E7%94%9F%E5%9B%9E%E5%AE%B6%E9%80%94%E4%B8%AD%E6%95%91%E5%8A%A9%E8%BD%A6%E7%A5%B8%E7%94%B7%E5%AD%90%E5%A9%89%E6%8B%92%E5%8D%83%E5%85%83%E7%BA%A2%E5%8C%85&Refer=top) `2.1M 🔥`
 1. [南京疫情](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%96%AB%E6%83%85%23&Refer=top) `2.0M 🔥`
@@ -41,23 +41,23 @@
 1. [国家电网回应郑州大面积断电](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E7%94%B5%E7%BD%91%E5%9B%9E%E5%BA%94%E9%83%91%E5%B7%9E%E5%A4%A7%E9%9D%A2%E7%A7%AF%E6%96%AD%E7%94%B5%23&Refer=top) `1.6M 🔥`
 1. [昨晚的微博评论太好哭了](https://s.weibo.com/weibo?q=%23%E6%98%A8%E6%99%9A%E7%9A%84%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%E5%A4%AA%E5%A5%BD%E5%93%AD%E4%BA%86%23&Refer=top) `1.5M 🔥`
 1. [新疆百万个馕驰援河南](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E7%99%BE%E4%B8%87%E4%B8%AA%E9%A6%95%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `1.5M 🔥`
+1. [郑州邮政凌晨救出138名农民工兄弟](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%82%AE%E6%94%BF%E5%87%8C%E6%99%A8%E6%95%91%E5%87%BA138%E5%90%8D%E5%86%9C%E6%B0%91%E5%B7%A5%E5%85%84%E5%BC%9F%23&Refer=top) `1.5M 🔥`
 1. [村民下饺子招待K31列车滞留乘客](https://s.weibo.com/weibo?q=%23%E6%9D%91%E6%B0%91%E4%B8%8B%E9%A5%BA%E5%AD%90%E6%8B%9B%E5%BE%85K31%E5%88%97%E8%BD%A6%E6%BB%9E%E7%95%99%E4%B9%98%E5%AE%A2%23&Refer=top) `1.5M 🔥`
 1. [南京南站](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%8D%97%E7%AB%99%23&Refer=top) `1.5M 🔥`
-1. [郑州邮政凌晨救出138名农民工兄弟](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%82%AE%E6%94%BF%E5%87%8C%E6%99%A8%E6%95%91%E5%87%BA138%E5%90%8D%E5%86%9C%E6%B0%91%E5%B7%A5%E5%85%84%E5%BC%9F%23&Refer=top) `1.4M 🔥`
 1. [苹果居家办公至少到10月](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E5%B1%85%E5%AE%B6%E5%8A%9E%E5%85%AC%E8%87%B3%E5%B0%91%E5%88%B010%E6%9C%88%23&Refer=top) `1.4M 🔥`
 1. [中国现存KTV企业不及七年前一半](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%8E%B0%E5%AD%98KTV%E4%BC%81%E4%B8%9A%E4%B8%8D%E5%8F%8A%E4%B8%83%E5%B9%B4%E5%89%8D%E4%B8%80%E5%8D%8A%23&Refer=top) `1.3M 🔥`
-1. [为什么现在人们去KTV少了](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E7%8E%B0%E5%9C%A8%E4%BA%BA%E4%BB%AC%E5%8E%BBKTV%E5%B0%91%E4%BA%86%23&Refer=top) `1.2M 🔥`
+1. [为什么现在人们去KTV少了](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E7%8E%B0%E5%9C%A8%E4%BA%BA%E4%BB%AC%E5%8E%BBKTV%E5%B0%91%E4%BA%86%23&Refer=top) `1.3M 🔥`
+1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `1.2M 🔥`
 1. [赵立坚5连问回怼美方说谎](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A5%E8%BF%9E%E9%97%AE%E5%9B%9E%E6%80%BC%E7%BE%8E%E6%96%B9%E8%AF%B4%E8%B0%8E%23&Refer=top) `1.2M 🔥`
 1. [鹤壁暴雨](https://s.weibo.com/weibo?q=%23%E9%B9%A4%E5%A3%81%E6%9A%B4%E9%9B%A8%23&Refer=top) `1.2M 🔥`
 1. [河南舞钢发生爆炸有人员受伤](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E8%88%9E%E9%92%A2%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%E6%9C%89%E4%BA%BA%E5%91%98%E5%8F%97%E4%BC%A4%23&Refer=top) `1.2M 🔥`
 1. [合肥理发师放下剪刀驰援河南](https://s.weibo.com/weibo?q=%23%E5%90%88%E8%82%A5%E7%90%86%E5%8F%91%E5%B8%88%E6%94%BE%E4%B8%8B%E5%89%AA%E5%88%80%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `1.2M 🔥`
 1. [保定龙卷风致2死](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E5%AE%9A%E9%BE%99%E5%8D%B7%E9%A3%8E%E8%87%B42%E6%AD%BB%23&Refer=top) `1.2M 🔥`
 1. [郑州小卖部大爷为居民免费供电](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%B0%8F%E5%8D%96%E9%83%A8%E5%A4%A7%E7%88%B7%E4%B8%BA%E5%B1%85%E6%B0%91%E5%85%8D%E8%B4%B9%E4%BE%9B%E7%94%B5%23&Refer=top) `1.1M 🔥`
-1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `1.1M 🔥`
 1. [未来3小时新乡仍有暴雨](https://s.weibo.com/weibo?q=%23%E6%9C%AA%E6%9D%A53%E5%B0%8F%E6%97%B6%E6%96%B0%E4%B9%A1%E4%BB%8D%E6%9C%89%E6%9A%B4%E9%9B%A8%23&Refer=top) `1.1M 🔥`
 1. [汝州连人带车被冲走当事人已遇难](https://s.weibo.com/weibo?q=%23%E6%B1%9D%E5%B7%9E%E8%BF%9E%E4%BA%BA%E5%B8%A6%E8%BD%A6%E8%A2%AB%E5%86%B2%E8%B5%B0%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%B7%B2%E9%81%87%E9%9A%BE%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-07-22 12:42:21
+数据更新于 2021-07-22 12:43:55
 
 <!-- END -->
 
