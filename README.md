@@ -57,7 +57,7 @@
 1. [中国现存KTV企业不及七年前一半](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%8E%B0%E5%AD%98KTV%E4%BC%81%E4%B8%9A%E4%B8%8D%E5%8F%8A%E4%B8%83%E5%B9%B4%E5%89%8D%E4%B8%80%E5%8D%8A%23&Refer=top) `1.3M 🔥`
 1. [为什么现在人们去KTV少了](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E7%8E%B0%E5%9C%A8%E4%BA%BA%E4%BB%AC%E5%8E%BBKTV%E5%B0%91%E4%BA%86%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-07-22 15:53:19
+数据更新于 2021-07-22 15:57:19
 
 <!-- END -->
 
