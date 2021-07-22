@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [三个月大婴儿被埋废墟一天一夜获救](https://s.weibo.com/weibo?q=%23%E4%B8%89%E4%B8%AA%E6%9C%88%E5%A4%A7%E5%A9%B4%E5%84%BF%E8%A2%AB%E5%9F%8B%E5%BA%9F%E5%A2%9F%E4%B8%80%E5%A4%A9%E4%B8%80%E5%A4%9C%E8%8E%B7%E6%95%91%23&Refer=top) `7.7M 🔥`
+1. [网友人均30元给河南捐出1亿](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E4%BA%BA%E5%9D%8730%E5%85%83%E7%BB%99%E6%B2%B3%E5%8D%97%E6%8D%90%E5%87%BA1%E4%BA%BF%23&Refer=top) `6.9M 🔥`
 1. [河南严禁瞒报重要灾情信息](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E4%B8%A5%E7%A6%81%E7%9E%92%E6%8A%A5%E9%87%8D%E8%A6%81%E7%81%BE%E6%83%85%E4%BF%A1%E6%81%AF%23&Refer=top) `6.9M 🔥`
 1. [造假捐款要负什么法律责任](https://s.weibo.com/weibo?q=%23%E9%80%A0%E5%81%87%E6%8D%90%E6%AC%BE%E8%A6%81%E8%B4%9F%E4%BB%80%E4%B9%88%E6%B3%95%E5%BE%8B%E8%B4%A3%E4%BB%BB%23&Refer=top) `6.7M 🔥`
-1. [网友人均30元给河南捐出1亿](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E4%BA%BA%E5%9D%8730%E5%85%83%E7%BB%99%E6%B2%B3%E5%8D%97%E6%8D%90%E5%87%BA1%E4%BA%BF%23&Refer=top) `6.6M 🔥`
 1. [徐才根去世](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%89%8D%E6%A0%B9%E5%8E%BB%E4%B8%96%23&Refer=top) `6.4M 🔥`
 1. [中国不接受不尊重常识的溯源计划](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%B8%8D%E6%8E%A5%E5%8F%97%E4%B8%8D%E5%B0%8A%E9%87%8D%E5%B8%B8%E8%AF%86%E7%9A%84%E6%BA%AF%E6%BA%90%E8%AE%A1%E5%88%92%23&Refer=top) `6.0M 🔥`
 1. [孩子王 造假捐款](https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E7%8E%8B%20%E9%80%A0%E5%81%87%E6%8D%90%E6%AC%BE&Refer=top) `5.5M 🔥`
@@ -31,12 +31,13 @@
 1. [郑州预计23点恢复供电](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%A2%84%E8%AE%A123%E7%82%B9%E6%81%A2%E5%A4%8D%E4%BE%9B%E7%94%B5%23&Refer=top) `2.7M 🔥`
 1. [新乡暴雨](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A1%E6%9A%B4%E9%9B%A8%23&Refer=top) `2.6M 🔥`
 1. [郑州大妈吆喝被困群众过来吃饭](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%A4%A7%E5%A6%88%E5%90%86%E5%96%9D%E8%A2%AB%E5%9B%B0%E7%BE%A4%E4%BC%97%E8%BF%87%E6%9D%A5%E5%90%83%E9%A5%AD%23&Refer=top) `2.6M 🔥`
+1. [95后KTV老板为受灾村民提供食宿](https://s.weibo.com/weibo?q=%2395%E5%90%8EKTV%E8%80%81%E6%9D%BF%E4%B8%BA%E5%8F%97%E7%81%BE%E6%9D%91%E6%B0%91%E6%8F%90%E4%BE%9B%E9%A3%9F%E5%AE%BF%23&Refer=top) `2.6M 🔥`
 1. [300斤举重女将这样睡纸板床](https://s.weibo.com/weibo?q=%23300%E6%96%A4%E4%B8%BE%E9%87%8D%E5%A5%B3%E5%B0%86%E8%BF%99%E6%A0%B7%E7%9D%A1%E7%BA%B8%E6%9D%BF%E5%BA%8A%23&Refer=top) `2.4M 🔥`
 1. [郑州地铁通报致12死事故原因](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%81%E9%80%9A%E6%8A%A5%E8%87%B412%E6%AD%BB%E4%BA%8B%E6%95%85%E5%8E%9F%E5%9B%A0%23&Refer=top) `2.4M 🔥`
 1. [郑州高铁站希岸酒店涨价到2888](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%AB%98%E9%93%81%E7%AB%99%E5%B8%8C%E5%B2%B8%E9%85%92%E5%BA%97%E6%B6%A8%E4%BB%B7%E5%88%B02888%23&Refer=top) `2.4M 🔥`
 1. [郑州暴雨后人间百态](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E5%90%8E%E4%BA%BA%E9%97%B4%E7%99%BE%E6%80%81%23&Refer=top) `2.4M 🔥`
 1. [山东发现首例输入性德尔塔毒株感染者](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%8F%91%E7%8E%B0%E9%A6%96%E4%BE%8B%E8%BE%93%E5%85%A5%E6%80%A7%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%E6%84%9F%E6%9F%93%E8%80%85%23&Refer=top) `2.3M 🔥`
-1. [95后KTV老板为受灾村民提供食宿](https://s.weibo.com/weibo?q=%2395%E5%90%8EKTV%E8%80%81%E6%9D%BF%E4%B8%BA%E5%8F%97%E7%81%BE%E6%9D%91%E6%B0%91%E6%8F%90%E4%BE%9B%E9%A3%9F%E5%AE%BF%23&Refer=top) `2.2M 🔥`
+1. [保险理赔人员泡在水里工作](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E9%99%A9%E7%90%86%E8%B5%94%E4%BA%BA%E5%91%98%E6%B3%A1%E5%9C%A8%E6%B0%B4%E9%87%8C%E5%B7%A5%E4%BD%9C%23&Refer=top) `2.2M 🔥`
 1. [广州疫情](https://s.weibo.com/weibo?q=%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85&Refer=top) `2.2M 🔥`
 1. [K599次列车被困新乡车厢疑二次倾斜](https://s.weibo.com/weibo?q=K599%E6%AC%A1%E5%88%97%E8%BD%A6%E8%A2%AB%E5%9B%B0%E6%96%B0%E4%B9%A1%E8%BD%A6%E5%8E%A2%E7%96%91%E4%BA%8C%E6%AC%A1%E5%80%BE%E6%96%9C&Refer=top) `2.1M 🔥`
 1. [女医生回家途中救助车祸男子婉拒千元红包](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%8C%BB%E7%94%9F%E5%9B%9E%E5%AE%B6%E9%80%94%E4%B8%AD%E6%95%91%E5%8A%A9%E8%BD%A6%E7%A5%B8%E7%94%B7%E5%AD%90%E5%A9%89%E6%8B%92%E5%8D%83%E5%85%83%E7%BA%A2%E5%8C%85&Refer=top) `2.1M 🔥`
@@ -53,11 +54,10 @@
 1. [河南为啥三天下了一整年雨](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E4%B8%BA%E5%95%A5%E4%B8%89%E5%A4%A9%E4%B8%8B%E4%BA%86%E4%B8%80%E6%95%B4%E5%B9%B4%E9%9B%A8%23&Refer=top) `1.8M 🔥`
 1. [新乡市2小时降雨量超过郑州](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A1%E5%B8%822%E5%B0%8F%E6%97%B6%E9%99%8D%E9%9B%A8%E9%87%8F%E8%B6%85%E8%BF%87%E9%83%91%E5%B7%9E%23&Refer=top) `1.8M 🔥`
 1. [郑州莆田乡失联十二小时中的105人获救](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E8%8E%86%E7%94%B0%E4%B9%A1%E5%A4%B1%E8%81%94%E5%8D%81%E4%BA%8C%E5%B0%8F%E6%97%B6%E4%B8%AD%E7%9A%84105%E4%BA%BA%E8%8E%B7%E6%95%91%23&Refer=top) `1.8M 🔥`
-1. [保险理赔人员泡在水里工作](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E9%99%A9%E7%90%86%E8%B5%94%E4%BA%BA%E5%91%98%E6%B3%A1%E5%9C%A8%E6%B0%B4%E9%87%8C%E5%B7%A5%E4%BD%9C%23&Refer=top) `1.8M 🔥`
 1. [普京就河南强降雨致慰问电](https://s.weibo.com/weibo?q=%23%E6%99%AE%E4%BA%AC%E5%B0%B1%E6%B2%B3%E5%8D%97%E5%BC%BA%E9%99%8D%E9%9B%A8%E8%87%B4%E6%85%B0%E9%97%AE%E7%94%B5%23&Refer=top) `1.8M 🔥`
 1. [郑州供上千人留宿影院经理回应](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%BE%9B%E4%B8%8A%E5%8D%83%E4%BA%BA%E7%95%99%E5%AE%BF%E5%BD%B1%E9%99%A2%E7%BB%8F%E7%90%86%E5%9B%9E%E5%BA%94%23&Refer=top) `1.8M 🔥`
 
-数据更新于 2021-07-22 20:01:41
+数据更新于 2021-07-22 20:13:33
 
 <!-- END -->
 
