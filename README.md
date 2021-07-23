@@ -54,10 +54,10 @@
 1. [为啥山东什么都能支援](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E5%95%A5%E5%B1%B1%E4%B8%9C%E4%BB%80%E4%B9%88%E9%83%BD%E8%83%BD%E6%94%AF%E6%8F%B4%23&Refer=top) `2.6M 🔥`
 1. [程序员带半箱辣条参加东京奥运](https://s.weibo.com/weibo?q=%23%E7%A8%8B%E5%BA%8F%E5%91%98%E5%B8%A6%E5%8D%8A%E7%AE%B1%E8%BE%A3%E6%9D%A1%E5%8F%82%E5%8A%A0%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%23&Refer=top) `2.6M 🔥`
 1. [安徽泄洪](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%B3%84%E6%B4%AA%23&Refer=top) `2.6M 🔥`
+1. [点火仪式就这](https://s.weibo.com/weibo?q=%E7%82%B9%E7%81%AB%E4%BB%AA%E5%BC%8F%E5%B0%B1%E8%BF%99&Refer=top) `2.6M 🔥`
 1. [马克龙成东奥会唯一出席的外国政要](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%85%8B%E9%BE%99%E6%88%90%E4%B8%9C%E5%A5%A5%E4%BC%9A%E5%94%AF%E4%B8%80%E5%87%BA%E5%B8%AD%E7%9A%84%E5%A4%96%E5%9B%BD%E6%94%BF%E8%A6%81%23&Refer=top) `2.6M 🔥`
-1. [当一座都市忽然失去了互联网](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%B8%80%E5%BA%A7%E9%83%BD%E5%B8%82%E5%BF%BD%E7%84%B6%E5%A4%B1%E5%8E%BB%E4%BA%86%E4%BA%92%E8%81%94%E7%BD%91%23&Refer=top) `2.6M 🔥`
 
-数据更新于 2021-07-23 23:49:43
+数据更新于 2021-07-23 23:51:25
 
 <!-- END -->
 
