@@ -8,7 +8,7 @@
 
 1. [台风](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%A3%8E&Refer=top) `8.1M 🔥`
 1. [六公主播夺冠](https://s.weibo.com/weibo?q=%23%E5%85%AD%E5%85%AC%E4%B8%BB%E6%92%AD%E5%A4%BA%E5%86%A0%23&Refer=top) `3.1M 🔥`
-1. [杨紫 您的女儿夏雪没有让您失望](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%82%A8%E7%9A%84%E5%A5%B3%E5%84%BF%E5%A4%8F%E9%9B%AA%E6%B2%A1%E6%9C%89%E8%AE%A9%E6%82%A8%E5%A4%B1%E6%9C%9B&Refer=top) `2.8M 🔥`
+1. [杨紫 您的女儿夏雪没有让您失望](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%82%A8%E7%9A%84%E5%A5%B3%E5%84%BF%E5%A4%8F%E9%9B%AA%E6%B2%A1%E6%9C%89%E8%AE%A9%E6%82%A8%E5%A4%B1%E6%9C%9B&Refer=top) `3.0M 🔥`
 1. [向佐怒怼CNN没有道德底线](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E6%80%92%E6%80%BCCNN%E6%B2%A1%E6%9C%89%E9%81%93%E5%BE%B7%E5%BA%95%E7%BA%BF%23&Refer=top) `2.8M 🔥`
 1. [应采儿病房内追奥运会](https://s.weibo.com/weibo?q=%23%E5%BA%94%E9%87%87%E5%84%BF%E7%97%85%E6%88%BF%E5%86%85%E8%BF%BD%E5%A5%A5%E8%BF%90%E4%BC%9A%23&Refer=top) `2.4M 🔥`
 1. [张彬彬感叹央视的解说好燃](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%84%9F%E5%8F%B9%E5%A4%AE%E8%A7%86%E7%9A%84%E8%A7%A3%E8%AF%B4%E5%A5%BD%E7%87%83%23&Refer=top) `2.1M 🔥`
@@ -19,9 +19,9 @@
 1. [女老板跪地痛哭求还被冲走2万箱酒](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E8%80%81%E6%9D%BF%E8%B7%AA%E5%9C%B0%E7%97%9B%E5%93%AD%E6%B1%82%E8%BF%98%E8%A2%AB%E5%86%B2%E8%B5%B02%E4%B8%87%E7%AE%B1%E9%85%92%23&Refer=top) `2.0M 🔥`
 1. [东京奥运早中晚安排3遍中国国歌](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E6%97%A9%E4%B8%AD%E6%99%9A%E5%AE%89%E6%8E%923%E9%81%8D%E4%B8%AD%E5%9B%BD%E5%9B%BD%E6%AD%8C%23&Refer=top) `1.8M 🔥`
 1. [张雨绮 中国姑娘们了不起](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E4%B8%AD%E5%9B%BD%E5%A7%91%E5%A8%98%E4%BB%AC%E4%BA%86%E4%B8%8D%E8%B5%B7&Refer=top) `1.8M 🔥`
+1. [台风烟花 舟山](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%A3%8E%E7%83%9F%E8%8A%B1%20%E8%88%9F%E5%B1%B1&Refer=top) `1.7M 🔥`
 1. [孙一文咬了一口金牌](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%B8%80%E6%96%87%E5%92%AC%E4%BA%86%E4%B8%80%E5%8F%A3%E9%87%91%E7%89%8C%23&Refer=top) `1.6M 🔥`
 1. [日本网友对杨倩的评论](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%BD%91%E5%8F%8B%E5%AF%B9%E6%9D%A8%E5%80%A9%E7%9A%84%E8%AF%84%E8%AE%BA%23&Refer=top) `1.6M 🔥`
-1. [台风烟花 舟山](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%A3%8E%E7%83%9F%E8%8A%B1%20%E8%88%9F%E5%B1%B1&Refer=top) `1.6M 🔥`
 1. [10分钟预判他救了无数家庭](https://s.weibo.com/weibo?q=%2310%E5%88%86%E9%92%9F%E9%A2%84%E5%88%A4%E4%BB%96%E6%95%91%E4%BA%86%E6%97%A0%E6%95%B0%E5%AE%B6%E5%BA%AD%23&Refer=top) `1.5M 🔥`
 1. [河南文物局局长哭了](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%96%87%E7%89%A9%E5%B1%80%E5%B1%80%E9%95%BF%E5%93%AD%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [赵丽颖豹纹抹胸连衣裙](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E8%B1%B9%E7%BA%B9%E6%8A%B9%E8%83%B8%E8%BF%9E%E8%A1%A3%E8%A3%99%23&Refer=top) `1.4M 🔥`
@@ -55,9 +55,9 @@
 1. [象山天气](https://s.weibo.com/weibo?q=%E8%B1%A1%E5%B1%B1%E5%A4%A9%E6%B0%94&Refer=top) `633.8K 🔥`
 1. [孙一文击剑大片](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%B8%80%E6%96%87%E5%87%BB%E5%89%91%E5%A4%A7%E7%89%87%23&Refer=top) `628.4K 🔥`
 1. [浙江开放10780个避灾安置场所](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%BC%80%E6%94%BE10780%E4%B8%AA%E9%81%BF%E7%81%BE%E5%AE%89%E7%BD%AE%E5%9C%BA%E6%89%80%23&Refer=top) `626.1K 🔥`
-1. [培训机构严禁聘请境外外籍人员开展培训](https://s.weibo.com/weibo?q=%23%E5%9F%B9%E8%AE%AD%E6%9C%BA%E6%9E%84%E4%B8%A5%E7%A6%81%E8%81%98%E8%AF%B7%E5%A2%83%E5%A4%96%E5%A4%96%E7%B1%8D%E4%BA%BA%E5%91%98%E5%BC%80%E5%B1%95%E5%9F%B9%E8%AE%AD%23&Refer=top) `625.1K 🔥`
+1. [核酸检测时不要接触检测台](https://s.weibo.com/weibo?q=%23%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E6%97%B6%E4%B8%8D%E8%A6%81%E6%8E%A5%E8%A7%A6%E6%A3%80%E6%B5%8B%E5%8F%B0%23&Refer=top) `625.3K 🔥`
 
-数据更新于 2021-07-25 07:35:46
+数据更新于 2021-07-25 07:40:09
 
 <!-- END -->
 
