@@ -34,6 +34,7 @@
 1. [点火仪式就这](https://s.weibo.com/weibo?q=%23%E7%82%B9%E7%81%AB%E4%BB%AA%E5%BC%8F%E5%B0%B1%E8%BF%99%23&Refer=top) `2.6M 🔥`
 1. [腾讯被责令解除网络音乐独家版权](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E8%A2%AB%E8%B4%A3%E4%BB%A4%E8%A7%A3%E9%99%A4%E7%BD%91%E7%BB%9C%E9%9F%B3%E4%B9%90%E7%8B%AC%E5%AE%B6%E7%89%88%E6%9D%83%23&Refer=top) `2.6M 🔥`
 1. [杨倩比心](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E6%AF%94%E5%BF%83%23&Refer=top) `2.6M 🔥`
+1. [杨倩姐姐再帮我也打一个](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E5%A7%90%E5%A7%90%E5%86%8D%E5%B8%AE%E6%88%91%E4%B9%9F%E6%89%93%E4%B8%80%E4%B8%AA%23&Refer=top) `2.4M 🔥`
 1. [妻子回应丈夫开铲车救63名硕博生](https://s.weibo.com/weibo?q=%23%E5%A6%BB%E5%AD%90%E5%9B%9E%E5%BA%94%E4%B8%88%E5%A4%AB%E5%BC%80%E9%93%B2%E8%BD%A6%E6%95%9163%E5%90%8D%E7%A1%95%E5%8D%9A%E7%94%9F%23&Refer=top) `2.3M 🔥`
 1. [超级真菌致美国百余人感染](https://s.weibo.com/weibo?q=%23%E8%B6%85%E7%BA%A7%E7%9C%9F%E8%8F%8C%E8%87%B4%E7%BE%8E%E5%9B%BD%E7%99%BE%E4%BD%99%E4%BA%BA%E6%84%9F%E6%9F%93%23&Refer=top) `2.2M 🔥`
 1. [马琳鼓掌好大声](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E7%90%B3%E9%BC%93%E6%8E%8C%E5%A5%BD%E5%A4%A7%E5%A3%B0%23&Refer=top) `2.2M 🔥`
@@ -54,10 +55,9 @@
 1. [腾讯回应被解除音乐独家版权](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%9B%9E%E5%BA%94%E8%A2%AB%E8%A7%A3%E9%99%A4%E9%9F%B3%E4%B9%90%E7%8B%AC%E5%AE%B6%E7%89%88%E6%9D%83%23&Refer=top) `1.5M 🔥`
 1. [日本旗手身高差](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%97%97%E6%89%8B%E8%BA%AB%E9%AB%98%E5%B7%AE%23&Refer=top) `1.5M 🔥`
 1. [数架直升机向河南新乡空投物资](https://s.weibo.com/weibo?q=%23%E6%95%B0%E6%9E%B6%E7%9B%B4%E5%8D%87%E6%9C%BA%E5%90%91%E6%B2%B3%E5%8D%97%E6%96%B0%E4%B9%A1%E7%A9%BA%E6%8A%95%E7%89%A9%E8%B5%84%23&Refer=top) `1.5M 🔥`
-1. [曾在日本失踪的乌干达运动员已回国](https://s.weibo.com/weibo?q=%23%E6%9B%BE%E5%9C%A8%E6%97%A5%E6%9C%AC%E5%A4%B1%E8%B8%AA%E7%9A%84%E4%B9%8C%E5%B9%B2%E8%BE%BE%E8%BF%90%E5%8A%A8%E5%91%98%E5%B7%B2%E5%9B%9E%E5%9B%BD%23&Refer=top) `1.4M 🔥`
-1. [贵人鸟 捐款](https://s.weibo.com/weibo?q=%E8%B4%B5%E4%BA%BA%E9%B8%9F%20%E6%8D%90%E6%AC%BE&Refer=top) `1.4M 🔥`
+1. [今年好声音有八位导师](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%A5%BD%E5%A3%B0%E9%9F%B3%E6%9C%89%E5%85%AB%E4%BD%8D%E5%AF%BC%E5%B8%88%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-07-24 13:29:06
+数据更新于 2021-07-24 13:34:38
 
 <!-- END -->
 
