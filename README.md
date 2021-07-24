@@ -8,10 +8,10 @@
 
 1. [杨倩摘得东京奥运首金](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E6%91%98%E5%BE%97%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E9%A6%96%E9%87%91%23&Refer=top) `30.6M 🔥`
 1. [侯志慧夺下第二金](https://s.weibo.com/weibo?q=%23%E4%BE%AF%E5%BF%97%E6%85%A7%E5%A4%BA%E4%B8%8B%E7%AC%AC%E4%BA%8C%E9%87%91%23&Refer=top) `21.3M 🔥`
+1. [陈飞宇加入中国国籍](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E5%8A%A0%E5%85%A5%E4%B8%AD%E5%9B%BD%E5%9B%BD%E7%B1%8D%23&Refer=top) `8.9M 🔥`
 1. [许昕刘诗雯乒乓球混双](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%98%95%E5%88%98%E8%AF%97%E9%9B%AF%E4%B9%92%E4%B9%93%E7%90%83%E6%B7%B7%E5%8F%8C%23&Refer=top) `7.3M 🔥`
 1. [中国代表团登场](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BB%A3%E8%A1%A8%E5%9B%A2%E7%99%BB%E5%9C%BA%23&Refer=top) `7.0M 🔥`
 1. [GAI 我现在有点火爆了](https://s.weibo.com/weibo?q=GAI%20%E6%88%91%E7%8E%B0%E5%9C%A8%E6%9C%89%E7%82%B9%E7%81%AB%E7%88%86%E4%BA%86&Refer=top) `6.8M 🔥`
-1. [陈飞宇加入中国国籍](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E5%8A%A0%E5%85%A5%E4%B8%AD%E5%9B%BD%E5%9B%BD%E7%B1%8D%23&Refer=top) `6.5M 🔥`
 1. [杨倩是清华大学学生](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E6%98%AF%E6%B8%85%E5%8D%8E%E5%A4%A7%E5%AD%A6%E5%AD%A6%E7%94%9F%23&Refer=top) `6.3M 🔥`
 1. [王璐瑶仍是浙江了不起的姑娘](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E7%92%90%E7%91%B6%E4%BB%8D%E6%98%AF%E6%B5%99%E6%B1%9F%E4%BA%86%E4%B8%8D%E8%B5%B7%E7%9A%84%E5%A7%91%E5%A8%98%23&Refer=top) `5.9M 🔥`
 1. [鸿星尔克7月23日销量增长超52倍](https://s.weibo.com/weibo?q=%23%E9%B8%BF%E6%98%9F%E5%B0%94%E5%85%8B7%E6%9C%8823%E6%97%A5%E9%94%80%E9%87%8F%E5%A2%9E%E9%95%BF%E8%B6%8552%E5%80%8D%23&Refer=top) `5.7M 🔥`
@@ -57,7 +57,7 @@
 1. [地震预警](https://s.weibo.com/weibo?q=%E5%9C%B0%E9%9C%87%E9%A2%84%E8%AD%A6&Refer=top) `2.1M 🔥`
 1. [吴静钰无缘四强](https://s.weibo.com/weibo?q=%23%E5%90%B4%E9%9D%99%E9%92%B0%E6%97%A0%E7%BC%98%E5%9B%9B%E5%BC%BA%23&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-07-24 17:50:24
+数据更新于 2021-07-24 17:53:10
 
 <!-- END -->
 
