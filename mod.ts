@@ -39,7 +39,7 @@ function handleRawData(rawWords: HotWord[]) {
   /** 去重 */
   rawWords
     .sort((a, b) => b.count - a.count)
-    .filter((w) => !w.text.includes("肖战"))
+    .filter((w) => !w.text.includes("肖战钴"))
     .forEach((t) => {
       if (!wordTextSet.has(t.text)) {
         wordTextSet.add(t.text);
@@ -47,7 +47,7 @@ function handleRawData(rawWords: HotWord[]) {
       }
     });
 
-  return words.splice(0, 50);
+  return words.splice(0, 500);
 }
 
 async function main() {
