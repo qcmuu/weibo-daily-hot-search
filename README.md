@@ -70,8 +70,10 @@
 1. [周雨彤细节演技](https://s.weibo.com/weibo?q=%23%E5%91%A8%E9%9B%A8%E5%BD%A4%E7%BB%86%E8%8A%82%E6%BC%94%E6%8A%80%23&Refer=top) `149.5K 🔥`
 1. [于途80个英雄总教头](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E9%80%9480%E4%B8%AA%E8%8B%B1%E9%9B%84%E6%80%BB%E6%95%99%E5%A4%B4%23&Refer=top) `149.3K 🔥`
 1. [台风烟花](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%A3%8E%E7%83%9F%E8%8A%B1%23&Refer=top) `126.5K 🔥`
+1. [杨洋晒玉兔兵法](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E6%99%92%E7%8E%89%E5%85%94%E5%85%B5%E6%B3%95%23&Refer=top) `40.2K 🔥`
+1. [卫辉](https://s.weibo.com/weibo?q=%E5%8D%AB%E8%BE%89&Refer=top) `27.4K 🔥`
 
-数据更新于 2021-07-27 02:11:21
+数据更新于 2021-07-27 02:31:56
 
 <!-- END -->
 
