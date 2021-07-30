@@ -51,6 +51,7 @@
 1. [一个时代不会轻易结束](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E6%97%B6%E4%BB%A3%E4%B8%8D%E4%BC%9A%E8%BD%BB%E6%98%93%E7%BB%93%E6%9D%9F%23&Refer=top) `501.7K 🔥`
 1. [成都武侯区一厂房突发大火](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E6%AD%A6%E4%BE%AF%E5%8C%BA%E4%B8%80%E5%8E%82%E6%88%BF%E7%AA%81%E5%8F%91%E5%A4%A7%E7%81%AB%23&Refer=top) `499.3K 🔥`
 1. [中国女篮最燃的赛前动员](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E7%AF%AE%E6%9C%80%E7%87%83%E7%9A%84%E8%B5%9B%E5%89%8D%E5%8A%A8%E5%91%98%23&Refer=top) `497.3K 🔥`
+1. [雨衣爸爸称后悔没教女儿学游泳](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E8%A1%A3%E7%88%B8%E7%88%B8%E7%A7%B0%E5%90%8E%E6%82%94%E6%B2%A1%E6%95%99%E5%A5%B3%E5%84%BF%E5%AD%A6%E6%B8%B8%E6%B3%B3%23&Refer=top) `490.5K 🔥`
 1. [抗洪救援队返程被收千元过路费](https://s.weibo.com/weibo?q=%23%E6%8A%97%E6%B4%AA%E6%95%91%E6%8F%B4%E9%98%9F%E8%BF%94%E7%A8%8B%E8%A2%AB%E6%94%B6%E5%8D%83%E5%85%83%E8%BF%87%E8%B7%AF%E8%B4%B9%23&Refer=top) `490.5K 🔥`
 1. [龚俊吃饭好香](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E5%90%83%E9%A5%AD%E5%A5%BD%E9%A6%99&Refer=top) `485.3K 🔥`
 1. [那英李健合唱等你下课](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E6%9D%8E%E5%81%A5%E5%90%88%E5%94%B1%E7%AD%89%E4%BD%A0%E4%B8%8B%E8%AF%BE%23&Refer=top) `481.4K 🔥`
@@ -61,22 +62,21 @@
 1. [兵马俑景区附近现多辆急救车](https://s.weibo.com/weibo?q=%23%E5%85%B5%E9%A9%AC%E4%BF%91%E6%99%AF%E5%8C%BA%E9%99%84%E8%BF%91%E7%8E%B0%E5%A4%9A%E8%BE%86%E6%80%A5%E6%95%91%E8%BD%A6%23&Refer=top) `437.7K 🔥`
 1. [被张家界闭园海报破防了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%BC%A0%E5%AE%B6%E7%95%8C%E9%97%AD%E5%9B%AD%E6%B5%B7%E6%8A%A5%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `437.1K 🔥`
 1. [用最狠的态度说最卑微的话](https://s.weibo.com/weibo?q=%23%E7%94%A8%E6%9C%80%E7%8B%A0%E7%9A%84%E6%80%81%E5%BA%A6%E8%AF%B4%E6%9C%80%E5%8D%91%E5%BE%AE%E7%9A%84%E8%AF%9D%23&Refer=top) `435.9K 🔥`
-1. [雨衣爸爸称后悔没教女儿学游泳](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E8%A1%A3%E7%88%B8%E7%88%B8%E7%A7%B0%E5%90%8E%E6%82%94%E6%B2%A1%E6%95%99%E5%A5%B3%E5%84%BF%E5%AD%A6%E6%B8%B8%E6%B3%B3%23&Refer=top) `419.1K 🔥`
 1. [中国好声音](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%BD%E5%A3%B0%E9%9F%B3&Refer=top) `350.1K 🔥`
 1. [全剧唯一认真反派李美娥](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%89%A7%E5%94%AF%E4%B8%80%E8%AE%A4%E7%9C%9F%E5%8F%8D%E6%B4%BE%E6%9D%8E%E7%BE%8E%E5%A8%A5%23&Refer=top) `321.5K 🔥`
 1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `294.7K 🔥`
 1. [薇娅谢霆锋直播](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E8%B0%A2%E9%9C%86%E9%94%8B%E7%9B%B4%E6%92%AD%23&Refer=top) `288.5K 🔥`
+1. [宁静笑死我了](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%E7%AC%91%E6%AD%BB%E6%88%91%E4%BA%86&Refer=top) `286.2K 🔥`
 1. [玉楼春](https://s.weibo.com/weibo?q=%E7%8E%89%E6%A5%BC%E6%98%A5&Refer=top) `257.5K 🔥`
-1. [宁静笑死我了](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%E7%AC%91%E6%AD%BB%E6%88%91%E4%BA%86&Refer=top) `248.2K 🔥`
 1. [周也中餐厅的第一顿晚餐](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E4%B8%AD%E9%A4%90%E5%8E%85%E7%9A%84%E7%AC%AC%E4%B8%80%E9%A1%BF%E6%99%9A%E9%A4%90%23&Refer=top) `187.6K 🔥`
 1. [好声音都十年了](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%A3%B0%E9%9F%B3%E9%83%BD%E5%8D%81%E5%B9%B4%E4%BA%86%23&Refer=top) `151.3K 🔥`
-1. [女儿们的恋爱4嘉宾](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E4%BB%AC%E7%9A%84%E6%81%8B%E7%88%B14%E5%98%89%E5%AE%BE%23&Refer=top) `74.8K 🔥`
-1. [看榴莲大哭破防了](https://s.weibo.com/weibo?q=%23%E7%9C%8B%E6%A6%B4%E8%8E%B2%E5%A4%A7%E5%93%AD%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `73.8K 🔥`
-1. [罗云熙若风进军LOL手游电竞](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E8%8B%A5%E9%A3%8E%E8%BF%9B%E5%86%9BLOL%E6%89%8B%E6%B8%B8%E7%94%B5%E7%AB%9E%23&Refer=top) `73.8K 🔥`
-1. [谢霆锋状态](https://s.weibo.com/weibo?q=%E8%B0%A2%E9%9C%86%E9%94%8B%E7%8A%B6%E6%80%81&Refer=top) `43.6K 🔥`
-1. [巴西女足被淘汰](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%A5%BF%E5%A5%B3%E8%B6%B3%E8%A2%AB%E6%B7%98%E6%B1%B0%23&Refer=top) `42.5K 🔥`
+1. [女儿们的恋爱4嘉宾](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E4%BB%AC%E7%9A%84%E6%81%8B%E7%88%B14%E5%98%89%E5%AE%BE%23&Refer=top) `140.8K 🔥`
+1. [谢霆锋状态](https://s.weibo.com/weibo?q=%E8%B0%A2%E9%9C%86%E9%94%8B%E7%8A%B6%E6%80%81&Refer=top) `105.3K 🔥`
+1. [看榴莲大哭破防了](https://s.weibo.com/weibo?q=%23%E7%9C%8B%E6%A6%B4%E8%8E%B2%E5%A4%A7%E5%93%AD%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `88.0K 🔥`
+1. [罗云熙若风进军LOL手游电竞](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E8%8B%A5%E9%A3%8E%E8%BF%9B%E5%86%9BLOL%E6%89%8B%E6%B8%B8%E7%94%B5%E7%AB%9E%23&Refer=top) `81.4K 🔥`
+1. [巴西女足被淘汰](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%A5%BF%E5%A5%B3%E8%B6%B3%E8%A2%AB%E6%B7%98%E6%B1%B0%23&Refer=top) `47.0K 🔥`
 
-数据更新于 2021-07-31 06:27:41
+数据更新于 2021-07-31 06:36:52
 
 <!-- END -->
 
