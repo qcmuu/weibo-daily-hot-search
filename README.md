@@ -65,10 +65,11 @@
 1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `294.7K 🔥`
 1. [薇娅谢霆锋直播](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E8%B0%A2%E9%9C%86%E9%94%8B%E7%9B%B4%E6%92%AD%23&Refer=top) `288.5K 🔥`
 1. [玉楼春](https://s.weibo.com/weibo?q=%E7%8E%89%E6%A5%BC%E6%98%A5&Refer=top) `257.5K 🔥`
-1. [全剧唯一认真反派李美娥](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%89%A7%E5%94%AF%E4%B8%80%E8%AE%A4%E7%9C%9F%E5%8F%8D%E6%B4%BE%E6%9D%8E%E7%BE%8E%E5%A8%A5%23&Refer=top) `218.2K 🔥`
+1. [全剧唯一认真反派李美娥](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%89%A7%E5%94%AF%E4%B8%80%E8%AE%A4%E7%9C%9F%E5%8F%8D%E6%B4%BE%E6%9D%8E%E7%BE%8E%E5%A8%A5%23&Refer=top) `231.0K 🔥`
 1. [好声音都十年了](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%A3%B0%E9%9F%B3%E9%83%BD%E5%8D%81%E5%B9%B4%E4%BA%86%23&Refer=top) `151.3K 🔥`
+1. [周也中餐厅的第一顿晚餐](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E4%B8%AD%E9%A4%90%E5%8E%85%E7%9A%84%E7%AC%AC%E4%B8%80%E9%A1%BF%E6%99%9A%E9%A4%90%23&Refer=top) `139.0K 🔥`
 
-数据更新于 2021-07-31 01:35:47
+数据更新于 2021-07-31 01:36:43
 
 <!-- END -->
 
