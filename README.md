@@ -68,11 +68,11 @@
 1. [玉楼春](https://s.weibo.com/weibo?q=%E7%8E%89%E6%A5%BC%E6%98%A5&Refer=top) `257.5K 🔥`
 1. [周也中餐厅的第一顿晚餐](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E4%B8%AD%E9%A4%90%E5%8E%85%E7%9A%84%E7%AC%AC%E4%B8%80%E9%A1%BF%E6%99%9A%E9%A4%90%23&Refer=top) `187.6K 🔥`
 1. [好声音都十年了](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%A3%B0%E9%9F%B3%E9%83%BD%E5%8D%81%E5%B9%B4%E4%BA%86%23&Refer=top) `151.3K 🔥`
-1. [雨衣爸爸称后悔没教女儿学游泳](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E8%A1%A3%E7%88%B8%E7%88%B8%E7%A7%B0%E5%90%8E%E6%82%94%E6%B2%A1%E6%95%99%E5%A5%B3%E5%84%BF%E5%AD%A6%E6%B8%B8%E6%B3%B3%23&Refer=top) `98.0K 🔥`
+1. [雨衣爸爸称后悔没教女儿学游泳](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E8%A1%A3%E7%88%B8%E7%88%B8%E7%A7%B0%E5%90%8E%E6%82%94%E6%B2%A1%E6%95%99%E5%A5%B3%E5%84%BF%E5%AD%A6%E6%B8%B8%E6%B3%B3%23&Refer=top) `98.9K 🔥`
+1. [宁静笑死我了](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%E7%AC%91%E6%AD%BB%E6%88%91%E4%BA%86&Refer=top) `31.5K 🔥`
 1. [罗云熙若风进军LOL手游电竞](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E8%8B%A5%E9%A3%8E%E8%BF%9B%E5%86%9BLOL%E6%89%8B%E6%B8%B8%E7%94%B5%E7%AB%9E%23&Refer=top) `27.3K 🔥`
-1. [宁静笑死我了](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%E7%AC%91%E6%AD%BB%E6%88%91%E4%BA%86&Refer=top) `27.1K 🔥`
 
-数据更新于 2021-07-31 04:44:40
+数据更新于 2021-07-31 04:47:02
 
 <!-- END -->
 
