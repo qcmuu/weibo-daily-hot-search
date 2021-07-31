@@ -19,7 +19,7 @@
 1. [高磊失误](https://s.weibo.com/weibo?q=%E9%AB%98%E7%A3%8A%E5%A4%B1%E8%AF%AF&Refer=top) `4.9M 🔥`
 1. [江苏新增19例本土确诊](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%96%B0%E5%A2%9E19%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `4.8M 🔥`
 1. [李莎旻子隔壁老樊官宣恋情](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E9%9A%94%E5%A3%81%E8%80%81%E6%A8%8A%E5%AE%98%E5%AE%A3%E6%81%8B%E6%83%85%23&Refer=top) `4.7M 🔥`
-1. [中国女排提前无缘八强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E5%85%AB%E5%BC%BA%23&Refer=top) `4.4M 🔥`
+1. [中国女排提前无缘八强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E5%85%AB%E5%BC%BA%23&Refer=top) `4.6M 🔥`
 1. [张雨绮李柄熹官宣恋情](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%9F%84%E7%86%B9%E5%AE%98%E5%AE%A3%E6%81%8B%E6%83%85%23&Refer=top) `4.3M 🔥`
 1. [刘国梁 男单金牌是两个人共同拿下的](https://s.weibo.com/weibo?q=%E5%88%98%E5%9B%BD%E6%A2%81%20%E7%94%B7%E5%8D%95%E9%87%91%E7%89%8C%E6%98%AF%E4%B8%A4%E4%B8%AA%E4%BA%BA%E5%85%B1%E5%90%8C%E6%8B%BF%E4%B8%8B%E7%9A%84&Refer=top) `4.2M 🔥`
 1. [马龙成首位奥运男单双冠王](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E6%88%90%E9%A6%96%E4%BD%8D%E5%A5%A5%E8%BF%90%E7%94%B7%E5%8D%95%E5%8F%8C%E5%86%A0%E7%8E%8B%23&Refer=top) `4.1M 🔥`
@@ -36,6 +36,7 @@
 1. [美国游泳选手泳镜游掉了](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%B8%B8%E6%B3%B3%E9%80%89%E6%89%8B%E6%B3%B3%E9%95%9C%E6%B8%B8%E6%8E%89%E4%BA%86%23&Refer=top) `2.7M 🔥`
 1. [日本蹦床男队失误](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E8%B9%A6%E5%BA%8A%E7%94%B7%E9%98%9F%E5%A4%B1%E8%AF%AF%23&Refer=top) `2.7M 🔥`
 1. [杨舒予见到爸妈的瞬间泪崩](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E8%88%92%E4%BA%88%E8%A7%81%E5%88%B0%E7%88%B8%E5%A6%88%E7%9A%84%E7%9E%AC%E9%97%B4%E6%B3%AA%E5%B4%A9%23&Refer=top) `2.5M 🔥`
+1. [可以学习张继科不能学习张怡宁](https://s.weibo.com/weibo?q=%E5%8F%AF%E4%BB%A5%E5%AD%A6%E4%B9%A0%E5%BC%A0%E7%BB%A7%E7%A7%91%E4%B8%8D%E8%83%BD%E5%AD%A6%E4%B9%A0%E5%BC%A0%E6%80%A1%E5%AE%81&Refer=top) `2.4M 🔥`
 1. [高磊曾经把蹦床弹簧跳断](https://s.weibo.com/weibo?q=%23%E9%AB%98%E7%A3%8A%E6%9B%BE%E7%BB%8F%E6%8A%8A%E8%B9%A6%E5%BA%8A%E5%BC%B9%E7%B0%A7%E8%B7%B3%E6%96%AD%23&Refer=top) `2.4M 🔥`
 1. [原来樊振东也有腰窝](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%A8%8A%E6%8C%AF%E4%B8%9C%E4%B9%9F%E6%9C%89%E8%85%B0%E7%AA%9D%23&Refer=top) `2.4M 🔥`
 1. [宁静 我对房车没什么好印象](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%20%E6%88%91%E5%AF%B9%E6%88%BF%E8%BD%A6%E6%B2%A1%E4%BB%80%E4%B9%88%E5%A5%BD%E5%8D%B0%E8%B1%A1&Refer=top) `2.3M 🔥`
@@ -44,8 +45,7 @@
 1. [新中国第一个世界冠军](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E7%AC%AC%E4%B8%80%E4%B8%AA%E4%B8%96%E7%95%8C%E5%86%A0%E5%86%9B%23&Refer=top) `2.2M 🔥`
 1. [郑州新增1例无症状感染者](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85%23&Refer=top) `2.2M 🔥`
 1. [南京疫情](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%96%AB%E6%83%85%23&Refer=top) `2.1M 🔥`
-1. [可以学习张继科不能学习张怡宁](https://s.weibo.com/weibo?q=%E5%8F%AF%E4%BB%A5%E5%AD%A6%E4%B9%A0%E5%BC%A0%E7%BB%A7%E7%A7%91%E4%B8%8D%E8%83%BD%E5%AD%A6%E4%B9%A0%E5%BC%A0%E6%80%A1%E5%AE%81&Refer=top) `2.1M 🔥`
-1. [日本跳水失误](https://s.weibo.com/weibo?q=%E6%97%A5%E6%9C%AC%E8%B7%B3%E6%B0%B4%E5%A4%B1%E8%AF%AF&Refer=top) `2.0M 🔥`
+1. [日本跳水失误](https://s.weibo.com/weibo?q=%E6%97%A5%E6%9C%AC%E8%B7%B3%E6%B0%B4%E5%A4%B1%E8%AF%AF&Refer=top) `2.1M 🔥`
 1. [长沙新增阳性曾与北京确诊共同就餐](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%B2%99%E6%96%B0%E5%A2%9E%E9%98%B3%E6%80%A7%E6%9B%BE%E4%B8%8E%E5%8C%97%E4%BA%AC%E7%A1%AE%E8%AF%8A%E5%85%B1%E5%90%8C%E5%B0%B1%E9%A4%90%23&Refer=top) `2.0M 🔥`
 1. [奥运史上最心酸的一块金牌](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%BF%83%E9%85%B8%E7%9A%84%E4%B8%80%E5%9D%97%E9%87%91%E7%89%8C%23&Refer=top) `2.0M 🔥`
 1. [李柄熹送张雨绮小提琴当定情礼物](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%9F%84%E7%86%B9%E9%80%81%E5%BC%A0%E9%9B%A8%E7%BB%AE%E5%B0%8F%E6%8F%90%E7%90%B4%E5%BD%93%E5%AE%9A%E6%83%85%E7%A4%BC%E7%89%A9%23&Refer=top) `2.0M 🔥`
@@ -114,19 +114,19 @@
 1. [游客离开张家界须完成三次核酸检测](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E5%AE%A2%E7%A6%BB%E5%BC%80%E5%BC%A0%E5%AE%B6%E7%95%8C%E9%A1%BB%E5%AE%8C%E6%88%90%E4%B8%89%E6%AC%A1%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%23&Refer=top) `1.0M 🔥`
 1. [汪顺小时候不听话老师打电话告状](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E9%A1%BA%E5%B0%8F%E6%97%B6%E5%80%99%E4%B8%8D%E5%90%AC%E8%AF%9D%E8%80%81%E5%B8%88%E6%89%93%E7%94%B5%E8%AF%9D%E5%91%8A%E7%8A%B6%23&Refer=top) `1.0M 🔥`
 1. [朱雪莹夺冠天津队教练队友为她喝彩](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E9%9B%AA%E8%8E%B9%E5%A4%BA%E5%86%A0%E5%A4%A9%E6%B4%A5%E9%98%9F%E6%95%99%E7%BB%83%E9%98%9F%E5%8F%8B%E4%B8%BA%E5%A5%B9%E5%96%9D%E5%BD%A9%23&Refer=top) `1.0M 🔥`
+1. [李莎旻子送老樊一到二十二岁生日礼物](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E9%80%81%E8%80%81%E6%A8%8A%E4%B8%80%E5%88%B0%E4%BA%8C%E5%8D%81%E4%BA%8C%E5%B2%81%E7%94%9F%E6%97%A5%E7%A4%BC%E7%89%A9%23&Refer=top) `996.2K 🔥`
 1. [塔克拉玛干沙漠发洪水](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%85%8B%E6%8B%89%E7%8E%9B%E5%B9%B2%E6%B2%99%E6%BC%A0%E5%8F%91%E6%B4%AA%E6%B0%B4%23&Refer=top) `985.2K 🔥`
 1. [浙江疫情](https://s.weibo.com/weibo?q=%E6%B5%99%E6%B1%9F%E7%96%AB%E6%83%85&Refer=top) `984.8K 🔥`
 1. [专家回应江苏近日重型病例增多情况](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E5%9B%9E%E5%BA%94%E6%B1%9F%E8%8B%8F%E8%BF%91%E6%97%A5%E9%87%8D%E5%9E%8B%E7%97%85%E4%BE%8B%E5%A2%9E%E5%A4%9A%E6%83%85%E5%86%B5%23&Refer=top) `981.7K 🔥`
 1. [网友留言鼓励樊振东](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E7%95%99%E8%A8%80%E9%BC%93%E5%8A%B1%E6%A8%8A%E6%8C%AF%E4%B8%9C%23&Refer=top) `971.6K 🔥`
-1. [李莎旻子送老樊一到二十二岁生日礼物](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E9%80%81%E8%80%81%E6%A8%8A%E4%B8%80%E5%88%B0%E4%BA%8C%E5%8D%81%E4%BA%8C%E5%B2%81%E7%94%9F%E6%97%A5%E7%A4%BC%E7%89%A9%23&Refer=top) `945.9K 🔥`
 1. [四川新增1例本土确诊](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `943.7K 🔥`
 1. [陈清晨说争金牌](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%B8%85%E6%99%A8%E8%AF%B4%E4%BA%89%E9%87%91%E7%89%8C%23&Refer=top) `928.2K 🔥`
 1. [南京已制定机场总体消杀方案](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%B7%B2%E5%88%B6%E5%AE%9A%E6%9C%BA%E5%9C%BA%E6%80%BB%E4%BD%93%E6%B6%88%E6%9D%80%E6%96%B9%E6%A1%88%23&Refer=top) `925.2K 🔥`
 1. [进京无核酸证明将被劝返为假消息](https://s.weibo.com/weibo?q=%23%E8%BF%9B%E4%BA%AC%E6%97%A0%E6%A0%B8%E9%85%B8%E8%AF%81%E6%98%8E%E5%B0%86%E8%A2%AB%E5%8A%9D%E8%BF%94%E4%B8%BA%E5%81%87%E6%B6%88%E6%81%AF%23&Refer=top) `917.9K 🔥`
 1. [宋小宝说我不喷防晒就完了](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%B0%8F%E5%AE%9D%E8%AF%B4%E6%88%91%E4%B8%8D%E5%96%B7%E9%98%B2%E6%99%92%E5%B0%B1%E5%AE%8C%E4%BA%86%23&Refer=top) `916.4K 🔥`
 1. [联合签名](https://s.weibo.com/weibo?q=%23%E8%81%94%E5%90%88%E7%AD%BE%E5%90%8D%23&Refer=top) `912.8K 🔥`
+1. [郑州市卫健委主任被免职](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%B8%82%E5%8D%AB%E5%81%A5%E5%A7%94%E4%B8%BB%E4%BB%BB%E8%A2%AB%E5%85%8D%E8%81%8C%23&Refer=top) `901.5K 🔥`
 1. [家庭条件对孩子成才的影响有多大](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E5%BA%AD%E6%9D%A1%E4%BB%B6%E5%AF%B9%E5%AD%A9%E5%AD%90%E6%88%90%E6%89%8D%E7%9A%84%E5%BD%B1%E5%93%8D%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `879.3K 🔥`
-1. [郑州市卫健委主任被免职](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%B8%82%E5%8D%AB%E5%81%A5%E5%A7%94%E4%B8%BB%E4%BB%BB%E8%A2%AB%E5%85%8D%E8%81%8C%23&Refer=top) `868.8K 🔥`
 1. [南京暂停开放旅游景区室外区域](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E6%9A%82%E5%81%9C%E5%BC%80%E6%94%BE%E6%97%85%E6%B8%B8%E6%99%AF%E5%8C%BA%E5%AE%A4%E5%A4%96%E5%8C%BA%E5%9F%9F%23&Refer=top) `848.9K 🔥`
 1. [扬州泰州国际机场暂停所有客运航班起降](https://s.weibo.com/weibo?q=%23%E6%89%AC%E5%B7%9E%E6%B3%B0%E5%B7%9E%E5%9B%BD%E9%99%85%E6%9C%BA%E5%9C%BA%E6%9A%82%E5%81%9C%E6%89%80%E6%9C%89%E5%AE%A2%E8%BF%90%E8%88%AA%E7%8F%AD%E8%B5%B7%E9%99%8D%23&Refer=top) `837.1K 🔥`
 1. [严浩翔退出少年说唱企划](https://s.weibo.com/weibo?q=%23%E4%B8%A5%E6%B5%A9%E7%BF%94%E9%80%80%E5%87%BA%E5%B0%91%E5%B9%B4%E8%AF%B4%E5%94%B1%E4%BC%81%E5%88%92%23&Refer=top) `834.5K 🔥`
@@ -152,6 +152,7 @@
 1. [兵马俑景区附近现多辆急救车](https://s.weibo.com/weibo?q=%23%E5%85%B5%E9%A9%AC%E4%BF%91%E6%99%AF%E5%8C%BA%E9%99%84%E8%BF%91%E7%8E%B0%E5%A4%9A%E8%BE%86%E6%80%A5%E6%95%91%E8%BD%A6%23&Refer=top) `741.6K 🔥`
 1. [暴雨版红伞伞白杆杆](https://s.weibo.com/weibo?q=%23%E6%9A%B4%E9%9B%A8%E7%89%88%E7%BA%A2%E4%BC%9E%E4%BC%9E%E7%99%BD%E6%9D%86%E6%9D%86%23&Refer=top) `730.2K 🔥`
 1. [美国混合接力队恢复决赛资格](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%B7%B7%E5%90%88%E6%8E%A5%E5%8A%9B%E9%98%9F%E6%81%A2%E5%A4%8D%E5%86%B3%E8%B5%9B%E8%B5%84%E6%A0%BC%23&Refer=top) `728.1K 🔥`
+1. [男子举重81公斤级决赛](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E4%B8%BE%E9%87%8D81%E5%85%AC%E6%96%A4%E7%BA%A7%E5%86%B3%E8%B5%9B&Refer=top) `726.7K 🔥`
 1. [李荣浩周杰伦合唱默](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8D%A3%E6%B5%A9%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%90%88%E5%94%B1%E9%BB%98%23&Refer=top) `719.7K 🔥`
 1. [郑州新增无症状曾在产科就诊](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%96%B0%E5%A2%9E%E6%97%A0%E7%97%87%E7%8A%B6%E6%9B%BE%E5%9C%A8%E4%BA%A7%E7%A7%91%E5%B0%B1%E8%AF%8A%23&Refer=top) `706.4K 🔥`
 1. [郑州疫情](https://s.weibo.com/weibo?q=%E9%83%91%E5%B7%9E%E7%96%AB%E6%83%85&Refer=top) `702.4K 🔥`
@@ -164,7 +165,6 @@
 1. [广州呼吁市民非必要不出省](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%91%BC%E5%90%81%E5%B8%82%E6%B0%91%E9%9D%9E%E5%BF%85%E8%A6%81%E4%B8%8D%E5%87%BA%E7%9C%81%23&Refer=top) `683.1K 🔥`
 1. [张雨绮李柄熹同拉一把小提琴](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%9F%84%E7%86%B9%E5%90%8C%E6%8B%89%E4%B8%80%E6%8A%8A%E5%B0%8F%E6%8F%90%E7%90%B4%23&Refer=top) `681.7K 🔥`
 1. [谌龙晋级男单四强](https://s.weibo.com/weibo?q=%23%E8%B0%8C%E9%BE%99%E6%99%8B%E7%BA%A7%E7%94%B7%E5%8D%95%E5%9B%9B%E5%BC%BA%23&Refer=top) `680.1K 🔥`
-1. [男子举重81公斤级决赛](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E4%B8%BE%E9%87%8D81%E5%85%AC%E6%96%A4%E7%BA%A7%E5%86%B3%E8%B5%9B&Refer=top) `679.4K 🔥`
 1. [许凯发博斥私生](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E5%87%AF%E5%8F%91%E5%8D%9A%E6%96%A5%E7%A7%81%E7%94%9F%23&Refer=top) `678.6K 🔥`
 1. [乡村教师用废品做万件体育器材](https://s.weibo.com/weibo?q=%23%E4%B9%A1%E6%9D%91%E6%95%99%E5%B8%88%E7%94%A8%E5%BA%9F%E5%93%81%E5%81%9A%E4%B8%87%E4%BB%B6%E4%BD%93%E8%82%B2%E5%99%A8%E6%9D%90%23&Refer=top) `677.9K 🔥`
 1. [蹦床比赛摄影师是如何拍摄的](https://s.weibo.com/weibo?q=%23%E8%B9%A6%E5%BA%8A%E6%AF%94%E8%B5%9B%E6%91%84%E5%BD%B1%E5%B8%88%E6%98%AF%E5%A6%82%E4%BD%95%E6%8B%8D%E6%91%84%E7%9A%84%23&Refer=top) `676.4K 🔥`
@@ -183,14 +183,16 @@
 1. [中餐厅](https://s.weibo.com/weibo?q=%E4%B8%AD%E9%A4%90%E5%8E%85&Refer=top) `665.4K 🔥`
 1. [扬州棋牌室](https://s.weibo.com/weibo?q=%E6%89%AC%E5%B7%9E%E6%A3%8B%E7%89%8C%E5%AE%A4&Refer=top) `663.5K 🔥`
 1. [陈清晨贾一凡VS金昭映孔熙容](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%B8%85%E6%99%A8%E8%B4%BE%E4%B8%80%E5%87%A1VS%E9%87%91%E6%98%AD%E6%98%A0%E5%AD%94%E7%86%99%E5%AE%B9%23&Refer=top) `660.3K 🔥`
+1. [美游泳选手失金称比赛不干净](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E6%B8%B8%E6%B3%B3%E9%80%89%E6%89%8B%E5%A4%B1%E9%87%91%E7%A7%B0%E6%AF%94%E8%B5%9B%E4%B8%8D%E5%B9%B2%E5%87%80%23&Refer=top) `656.7K 🔥`
 1. [陈滢的解说](https://s.weibo.com/weibo?q=%E9%99%88%E6%BB%A2%E7%9A%84%E8%A7%A3%E8%AF%B4&Refer=top) `656.3K 🔥`
+1. [孙颖莎和巴赫换徽章](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E5%92%8C%E5%B7%B4%E8%B5%AB%E6%8D%A2%E5%BE%BD%E7%AB%A0%23&Refer=top) `652.7K 🔥`
+1. [希望朱婷好好养伤](https://s.weibo.com/weibo?q=%E5%B8%8C%E6%9C%9B%E6%9C%B1%E5%A9%B7%E5%A5%BD%E5%A5%BD%E5%85%BB%E4%BC%A4&Refer=top) `651.5K 🔥`
 1. [张雨霏劳模](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E9%9C%8F%E5%8A%B3%E6%A8%A1&Refer=top) `648.6K 🔥`
 1. [国乒中国的骄傲](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E4%B8%AD%E5%9B%BD%E7%9A%84%E9%AA%84%E5%82%B2%23&Refer=top) `646.7K 🔥`
 1. [成都封控小区为1岁宝宝庆生](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%B0%81%E6%8E%A7%E5%B0%8F%E5%8C%BA%E4%B8%BA1%E5%B2%81%E5%AE%9D%E5%AE%9D%E5%BA%86%E7%94%9F%23&Refer=top) `642.0K 🔥`
 1. [助手提醒拜登下巴上有东西](https://s.weibo.com/weibo?q=%E5%8A%A9%E6%89%8B%E6%8F%90%E9%86%92%E6%8B%9C%E7%99%BB%E4%B8%8B%E5%B7%B4%E4%B8%8A%E6%9C%89%E4%B8%9C%E8%A5%BF&Refer=top) `640.9K 🔥`
 1. [银川新增1例确诊病例](https://s.weibo.com/weibo?q=%E9%93%B6%E5%B7%9D%E6%96%B0%E5%A2%9E1%E4%BE%8B%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B&Refer=top) `638.1K 🔥`
 1. [张家界新增1例确诊曾带团观看魅力湘西](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AE%B6%E7%95%8C%E6%96%B0%E5%A2%9E1%E4%BE%8B%E7%A1%AE%E8%AF%8A%E6%9B%BE%E5%B8%A6%E5%9B%A2%E8%A7%82%E7%9C%8B%E9%AD%85%E5%8A%9B%E6%B9%98%E8%A5%BF%23&Refer=top) `632.4K 🔥`
-1. [希望朱婷好好养伤](https://s.weibo.com/weibo?q=%E5%B8%8C%E6%9C%9B%E6%9C%B1%E5%A9%B7%E5%A5%BD%E5%A5%BD%E5%85%BB%E4%BC%A4&Refer=top) `626.8K 🔥`
 1. [宁静笑死我了](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%E7%AC%91%E6%AD%BB%E6%88%91%E4%BA%86&Refer=top) `626.6K 🔥`
 1. [张哲瀚看奥运高尔夫直播](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E7%9C%8B%E5%A5%A5%E8%BF%90%E9%AB%98%E5%B0%94%E5%A4%AB%E7%9B%B4%E6%92%AD%23&Refer=top) `624.0K 🔥`
 1. [小朋友的奥运梦有多辛苦](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%9C%8B%E5%8F%8B%E7%9A%84%E5%A5%A5%E8%BF%90%E6%A2%A6%E6%9C%89%E5%A4%9A%E8%BE%9B%E8%8B%A6%23&Refer=top) `620.1K 🔥`
@@ -208,7 +210,6 @@
 1. [南京累计报告本土确诊190例](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BA%AC%E7%B4%AF%E8%AE%A1%E6%8A%A5%E5%91%8A%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A190%E4%BE%8B&Refer=top) `590.8K 🔥`
 1. [请吃饭的姐姐定档0806](https://s.weibo.com/weibo?q=%23%E8%AF%B7%E5%90%83%E9%A5%AD%E7%9A%84%E5%A7%90%E5%A7%90%E5%AE%9A%E6%A1%A30806%23&Refer=top) `590.4K 🔥`
 1. [马龙3届奥运传奇回顾](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%993%E5%B1%8A%E5%A5%A5%E8%BF%90%E4%BC%A0%E5%A5%87%E5%9B%9E%E9%A1%BE%23&Refer=top) `581.5K 🔥`
-1. [美游泳选手失金称比赛不干净](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E6%B8%B8%E6%B3%B3%E9%80%89%E6%89%8B%E5%A4%B1%E9%87%91%E7%A7%B0%E6%AF%94%E8%B5%9B%E4%B8%8D%E5%B9%B2%E5%87%80%23&Refer=top) `580.2K 🔥`
 1. [吉克隽逸再唱阿杰鲁](https://s.weibo.com/weibo?q=%23%E5%90%89%E5%85%8B%E9%9A%BD%E9%80%B8%E5%86%8D%E5%94%B1%E9%98%BF%E6%9D%B0%E9%B2%81%23&Refer=top) `575.8K 🔥`
 1. [你是我的荣耀](https://s.weibo.com/weibo?q=%E4%BD%A0%E6%98%AF%E6%88%91%E7%9A%84%E8%8D%A3%E8%80%80&Refer=top) `569.8K 🔥`
 1. [西安大雁塔北广场喷泉表演暂停](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%A4%A7%E9%9B%81%E5%A1%94%E5%8C%97%E5%B9%BF%E5%9C%BA%E5%96%B7%E6%B3%89%E8%A1%A8%E6%BC%94%E6%9A%82%E5%81%9C%23&Refer=top) `566.1K 🔥`
@@ -216,9 +217,11 @@
 1. [陈清晨看起来比教练更像教练](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%B8%85%E6%99%A8%E7%9C%8B%E8%B5%B7%E6%9D%A5%E6%AF%94%E6%95%99%E7%BB%83%E6%9B%B4%E5%83%8F%E6%95%99%E7%BB%83%23&Refer=top) `561.4K 🔥`
 1. [女歌词作家王健去世](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%AD%8C%E8%AF%8D%E4%BD%9C%E5%AE%B6%E7%8E%8B%E5%81%A5%E5%8E%BB%E4%B8%96%23&Refer=top) `557.9K 🔥`
 1. [南京通报新增6例本土病例详情](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E9%80%9A%E6%8A%A5%E6%96%B0%E5%A2%9E6%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%97%85%E4%BE%8B%E8%AF%A6%E6%83%85%23&Refer=top) `554.9K 🔥`
+1. [国乒传奇永不落幕](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E4%BC%A0%E5%A5%87%E6%B0%B8%E4%B8%8D%E8%90%BD%E5%B9%95%23&Refer=top) `539.1K 🔥`
 1. [南京市新增本土确诊病例6例](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BA%AC%E5%B8%82%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B6%E4%BE%8B&Refer=top) `534.3K 🔥`
 1. [马龙转圈比心有多可爱](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E8%BD%AC%E5%9C%88%E6%AF%94%E5%BF%83%E6%9C%89%E5%A4%9A%E5%8F%AF%E7%88%B1%23&Refer=top) `533.4K 🔥`
 1. [莱德基好强](https://s.weibo.com/weibo?q=%23%E8%8E%B1%E5%BE%B7%E5%9F%BA%E5%A5%BD%E5%BC%BA%23&Refer=top) `531.9K 🔥`
+1. [马斯克称苹果收费是互联网全球税](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E6%96%AF%E5%85%8B%E7%A7%B0%E8%8B%B9%E6%9E%9C%E6%94%B6%E8%B4%B9%E6%98%AF%E4%BA%92%E8%81%94%E7%BD%91%E5%85%A8%E7%90%83%E7%A8%8E%23&Refer=top) `531.0K 🔥`
 1. [刘国梁观众席解说](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E8%A7%82%E4%BC%97%E5%B8%AD%E8%A7%A3%E8%AF%B4%23&Refer=top) `526.4K 🔥`
 1. [巴西多地出现罕见降雪](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%A5%BF%E5%A4%9A%E5%9C%B0%E5%87%BA%E7%8E%B0%E7%BD%95%E8%A7%81%E9%99%8D%E9%9B%AA%23&Refer=top) `522.0K 🔥`
 1. [俩萌娃看马龙奥运领奖隔屏敬礼](https://s.weibo.com/weibo?q=%23%E4%BF%A9%E8%90%8C%E5%A8%83%E7%9C%8B%E9%A9%AC%E9%BE%99%E5%A5%A5%E8%BF%90%E9%A2%86%E5%A5%96%E9%9A%94%E5%B1%8F%E6%95%AC%E7%A4%BC%23&Refer=top) `509.7K 🔥`
@@ -263,7 +266,6 @@
 1. [国乒队队歌听上瘾了](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E9%98%9F%E9%98%9F%E6%AD%8C%E5%90%AC%E4%B8%8A%E7%98%BE%E4%BA%86%23&Refer=top) `353.9K 🔥`
 1. [中国好声音](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%BD%E5%A3%B0%E9%9F%B3&Refer=top) `350.1K 🔥`
 1. [徐嘉余爸爸看比赛紧张到握拳](https://s.weibo.com/weibo?q=%23%E5%BE%90%E5%98%89%E4%BD%99%E7%88%B8%E7%88%B8%E7%9C%8B%E6%AF%94%E8%B5%9B%E7%B4%A7%E5%BC%A0%E5%88%B0%E6%8F%A1%E6%8B%B3%23&Refer=top) `331.5K 🔥`
-1. [孙颖莎和巴赫换徽章](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E5%92%8C%E5%B7%B4%E8%B5%AB%E6%8D%A2%E5%BE%BD%E7%AB%A0%23&Refer=top) `302.7K 🔥`
 1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `294.7K 🔥`
 1. [奥运奖牌榜](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E5%A5%96%E7%89%8C%E6%A6%9C%23&Refer=top) `294.1K 🔥`
 1. [云南新增境外输入确诊病例9例](https://s.weibo.com/weibo?q=%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E%E5%A2%83%E5%A4%96%E8%BE%93%E5%85%A5%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B9%E4%BE%8B&Refer=top) `293.9K 🔥`
@@ -289,7 +291,7 @@
 1. [历届好声音导师隔空合唱](https://s.weibo.com/weibo?q=%23%E5%8E%86%E5%B1%8A%E5%A5%BD%E5%A3%B0%E9%9F%B3%E5%AF%BC%E5%B8%88%E9%9A%94%E7%A9%BA%E5%90%88%E5%94%B1%23&Refer=top) `130.4K 🔥`
 1. [危地马拉选手赢球后的感人场面](https://s.weibo.com/weibo?q=%23%E5%8D%B1%E5%9C%B0%E9%A9%AC%E6%8B%89%E9%80%89%E6%89%8B%E8%B5%A2%E7%90%83%E5%90%8E%E7%9A%84%E6%84%9F%E4%BA%BA%E5%9C%BA%E9%9D%A2%23&Refer=top) `129.3K 🔥`
 
-数据更新于 2021-07-31 15:43:29
+数据更新于 2021-07-31 15:45:34
 
 <!-- END -->
 
