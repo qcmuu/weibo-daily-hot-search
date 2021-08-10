@@ -8,17 +8,18 @@
 
 1. [吴亦凡 洛杉矶女粉丝](https://s.weibo.com/weibo?q=%E5%90%B4%E4%BA%A6%E5%87%A1%20%E6%B4%9B%E6%9D%89%E7%9F%B6%E5%A5%B3%E7%B2%89%E4%B8%9D&Refer=top) `3.9M 🔥`
 1. [阿里女员工醉酒饭店店员发声](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%87%8C%E5%A5%B3%E5%91%98%E5%B7%A5%E9%86%89%E9%85%92%E9%A5%AD%E5%BA%97%E5%BA%97%E5%91%98%E5%8F%91%E5%A3%B0%23&Refer=top) `1.7M 🔥`
-1. [雷军删掉所有炒股软件](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E5%86%9B%E5%88%A0%E6%8E%89%E6%89%80%E6%9C%89%E7%82%92%E8%82%A1%E8%BD%AF%E4%BB%B6%23&Refer=top) `1.3M 🔥`
+1. [雷军删掉所有炒股软件](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E5%86%9B%E5%88%A0%E6%8E%89%E6%89%80%E6%9C%89%E7%82%92%E8%82%A1%E8%BD%AF%E4%BB%B6%23&Refer=top) `1.4M 🔥`
 1. [苏炳添旅游计划被内蒙古文旅厅接收到了](https://s.weibo.com/weibo?q=%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%97%85%E6%B8%B8%E8%AE%A1%E5%88%92%E8%A2%AB%E5%86%85%E8%92%99%E5%8F%A4%E6%96%87%E6%97%85%E5%8E%85%E6%8E%A5%E6%94%B6%E5%88%B0%E4%BA%86&Refer=top) `1.1M 🔥`
+1. [孙颖莎说世界排名说明不了什么](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E8%AF%B4%E4%B8%96%E7%95%8C%E6%8E%92%E5%90%8D%E8%AF%B4%E6%98%8E%E4%B8%8D%E4%BA%86%E4%BB%80%E4%B9%88%23&Refer=top) `1.1M 🔥`
 1. [福原爱说这是第一次认真观看奥运](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%8E%9F%E7%88%B1%E8%AF%B4%E8%BF%99%E6%98%AF%E7%AC%AC%E4%B8%80%E6%AC%A1%E8%AE%A4%E7%9C%9F%E8%A7%82%E7%9C%8B%E5%A5%A5%E8%BF%90%23&Refer=top) `981.0K 🔥`
 1. [陈露谈与霍尊九年恋情](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%9C%B2%E8%B0%88%E4%B8%8E%E9%9C%8D%E5%B0%8A%E4%B9%9D%E5%B9%B4%E6%81%8B%E6%83%85%23&Refer=top) `969.2K 🔥`
 1. [长沙两位新冠肺炎康复者成功捐献血浆](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%B2%99%E4%B8%A4%E4%BD%8D%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E5%BA%B7%E5%A4%8D%E8%80%85%E6%88%90%E5%8A%9F%E6%8D%90%E7%8C%AE%E8%A1%80%E6%B5%86%23&Refer=top) `931.8K 🔥`
 1. [原来我很爱你](https://s.weibo.com/weibo?q=%E5%8E%9F%E6%9D%A5%E6%88%91%E5%BE%88%E7%88%B1%E4%BD%A0&Refer=top) `908.8K 🔥`
+1. [Hero放出当天比赛语音](https://s.weibo.com/weibo?q=%23Hero%E6%94%BE%E5%87%BA%E5%BD%93%E5%A4%A9%E6%AF%94%E8%B5%9B%E8%AF%AD%E9%9F%B3%23&Refer=top) `879.3K 🔥`
 1. [小米向首批用户赠送1999元红包](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%B1%B3%E5%90%91%E9%A6%96%E6%89%B9%E7%94%A8%E6%88%B7%E8%B5%A0%E9%80%811999%E5%85%83%E7%BA%A2%E5%8C%85%23&Refer=top) `764.9K 🔥`
 1. [美国抗疫八个全球第一](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%8A%97%E7%96%AB%E5%85%AB%E4%B8%AA%E5%85%A8%E7%90%83%E7%AC%AC%E4%B8%80%23&Refer=top) `726.9K 🔥`
 1. [恒大考虑出售恒大汽车](https://s.weibo.com/weibo?q=%23%E6%81%92%E5%A4%A7%E8%80%83%E8%99%91%E5%87%BA%E5%94%AE%E6%81%92%E5%A4%A7%E6%B1%BD%E8%BD%A6%23&Refer=top) `705.1K 🔥`
 1. [全红婵选拔赛前3周才学完跳水动作](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E9%80%89%E6%8B%94%E8%B5%9B%E5%89%8D3%E5%91%A8%E6%89%8D%E5%AD%A6%E5%AE%8C%E8%B7%B3%E6%B0%B4%E5%8A%A8%E4%BD%9C%23&Refer=top) `690.2K 🔥`
-1. [Hero放出当天比赛语音](https://s.weibo.com/weibo?q=%23Hero%E6%94%BE%E5%87%BA%E5%BD%93%E5%A4%A9%E6%AF%94%E8%B5%9B%E8%AF%AD%E9%9F%B3%23&Refer=top) `647.6K 🔥`
 1. [男子冒充被救女孩哥哥直播](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%86%92%E5%85%85%E8%A2%AB%E6%95%91%E5%A5%B3%E5%AD%A9%E5%93%A5%E5%93%A5%E7%9B%B4%E6%92%AD%23&Refer=top) `638.0K 🔥`
 1. [秦皇岛获救三女子追悼会跪谢](https://s.weibo.com/weibo?q=%23%E7%A7%A6%E7%9A%87%E5%B2%9B%E8%8E%B7%E6%95%91%E4%B8%89%E5%A5%B3%E5%AD%90%E8%BF%BD%E6%82%BC%E4%BC%9A%E8%B7%AA%E8%B0%A2%23&Refer=top) `617.5K 🔥`
 1. [杨子说黄圣依马后炮](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%AD%90%E8%AF%B4%E9%BB%84%E5%9C%A3%E4%BE%9D%E9%A9%AC%E5%90%8E%E7%82%AE%23&Refer=top) `585.6K 🔥`
@@ -39,6 +40,8 @@
 1. [王昭君七夕节皮肤](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%98%AD%E5%90%9B%E4%B8%83%E5%A4%95%E8%8A%82%E7%9A%AE%E8%82%A4%23&Refer=top) `360.6K 🔥`
 1. [许昕直播太好笑了](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%98%95%E7%9B%B4%E6%92%AD%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `355.3K 🔥`
 1. [小米平板5价格](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%B1%B3%E5%B9%B3%E6%9D%BF5%E4%BB%B7%E6%A0%BC%23&Refer=top) `346.1K 🔥`
+1. [福原爱竹内亮互彪中文](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%8E%9F%E7%88%B1%E7%AB%B9%E5%86%85%E4%BA%AE%E4%BA%92%E5%BD%AA%E4%B8%AD%E6%96%87%23&Refer=top) `335.4K 🔥`
+1. [杭州一药店因向发烧人员出售退烧药被查](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E4%B8%80%E8%8D%AF%E5%BA%97%E5%9B%A0%E5%90%91%E5%8F%91%E7%83%A7%E4%BA%BA%E5%91%98%E5%87%BA%E5%94%AE%E9%80%80%E7%83%A7%E8%8D%AF%E8%A2%AB%E6%9F%A5%23&Refer=top) `324.0K 🔥`
 1. [东京奥运会总支出超200亿美元](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E6%80%BB%E6%94%AF%E5%87%BA%E8%B6%85200%E4%BA%BF%E7%BE%8E%E5%85%83%23&Refer=top) `290.4K 🔥`
 1. [迪丽热巴微表情大师](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%BE%AE%E8%A1%A8%E6%83%85%E5%A4%A7%E5%B8%88%23&Refer=top) `282.9K 🔥`
 1. [能嫁给樊振东的办法](https://s.weibo.com/weibo?q=%23%E8%83%BD%E5%AB%81%E7%BB%99%E6%A8%8A%E6%8C%AF%E4%B8%9C%E7%9A%84%E5%8A%9E%E6%B3%95%23&Refer=top) `278.6K 🔥`
@@ -46,6 +49,7 @@
 1. [杜淳说因为离家太久蛋饺已经不认识自己](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B7%B3%E8%AF%B4%E5%9B%A0%E4%B8%BA%E7%A6%BB%E5%AE%B6%E5%A4%AA%E4%B9%85%E8%9B%8B%E9%A5%BA%E5%B7%B2%E7%BB%8F%E4%B8%8D%E8%AE%A4%E8%AF%86%E8%87%AA%E5%B7%B1%23&Refer=top) `262.0K 🔥`
 1. [于途肖奈都是宜兴人](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E9%80%94%E8%82%96%E5%A5%88%E9%83%BD%E6%98%AF%E5%AE%9C%E5%85%B4%E4%BA%BA%23&Refer=top) `258.3K 🔥`
 1. [苏念衾求婚](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%BF%B5%E8%A1%BE%E6%B1%82%E5%A9%9A%23&Refer=top) `258.2K 🔥`
+1. [纽约州州长科莫宣布辞职](https://s.weibo.com/weibo?q=%E7%BA%BD%E7%BA%A6%E5%B7%9E%E5%B7%9E%E9%95%BF%E7%A7%91%E8%8E%AB%E5%AE%A3%E5%B8%83%E8%BE%9E%E8%81%8C&Refer=top) `247.2K 🔥`
 1. [雷军和苏炳添长得有点像](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E5%86%9B%E5%92%8C%E8%8B%8F%E7%82%B3%E6%B7%BB%E9%95%BF%E5%BE%97%E6%9C%89%E7%82%B9%E5%83%8F%23&Refer=top) `241.1K 🔥`
 1. [乔夕辰简亦繁伞下吻](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%A4%95%E8%BE%B0%E7%AE%80%E4%BA%A6%E7%B9%81%E4%BC%9E%E4%B8%8B%E5%90%BB%23&Refer=top) `234.1K 🔥`
 1. [吴月红孙世杰婚姻危机](https://s.weibo.com/weibo?q=%23%E5%90%B4%E6%9C%88%E7%BA%A2%E5%AD%99%E4%B8%96%E6%9D%B0%E5%A9%9A%E5%A7%BB%E5%8D%B1%E6%9C%BA%23&Refer=top) `231.5K 🔥`
@@ -57,12 +61,15 @@
 1. [浙江健康码可查看行程卡](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%81%A5%E5%BA%B7%E7%A0%81%E5%8F%AF%E6%9F%A5%E7%9C%8B%E8%A1%8C%E7%A8%8B%E5%8D%A1%23&Refer=top) `202.0K 🔥`
 1. [脱口秀大会4首播快乐地狱](https://s.weibo.com/weibo?q=%23%E8%84%B1%E5%8F%A3%E7%A7%80%E5%A4%A7%E4%BC%9A4%E9%A6%96%E6%92%AD%E5%BF%AB%E4%B9%90%E5%9C%B0%E7%8B%B1%23&Refer=top) `201.1K 🔥`
 1. [医生解读如何科学减肥](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E8%A7%A3%E8%AF%BB%E5%A6%82%E4%BD%95%E7%A7%91%E5%AD%A6%E5%87%8F%E8%82%A5%23&Refer=top) `192.9K 🔥`
+1. [全国中高风险地区一览](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E4%B8%AD%E9%AB%98%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA%E4%B8%80%E8%A7%88%23&Refer=top) `172.0K 🔥`
+1. [玉楼春](https://s.weibo.com/weibo?q=%E7%8E%89%E6%A5%BC%E6%98%A5&Refer=top) `142.7K 🔥`
+1. [我在他乡挺好的](https://s.weibo.com/weibo?q=%E6%88%91%E5%9C%A8%E4%BB%96%E4%B9%A1%E6%8C%BA%E5%A5%BD%E7%9A%84&Refer=top) `96.7K 🔥`
 1. [小米发布会](https://s.weibo.com/weibo?q=%E5%B0%8F%E7%B1%B3%E5%8F%91%E5%B8%83%E4%BC%9A&Refer=top) `82.2K 🔥`
 1. [柳碧云被江梅刁难](https://s.weibo.com/weibo?q=%23%E6%9F%B3%E7%A2%A7%E4%BA%91%E8%A2%AB%E6%B1%9F%E6%A2%85%E5%88%81%E9%9A%BE%23&Refer=top) `54.4K 🔥`
 1. [脱口秀大会](https://s.weibo.com/weibo?q=%E8%84%B1%E5%8F%A3%E7%A7%80%E5%A4%A7%E4%BC%9A&Refer=top) `44.7K 🔥`
 1. [扫黑风暴](https://s.weibo.com/weibo?q=%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4&Refer=top) `44.4K 🔥`
 
-数据更新于 2021-08-11 07:02:32
+数据更新于 2021-08-11 07:39:09
 
 <!-- END -->
 
