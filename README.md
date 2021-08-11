@@ -62,13 +62,14 @@
 1. [北京昌平某确诊病例密接1751人](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%98%8C%E5%B9%B3%E6%9F%90%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E5%AF%86%E6%8E%A51751%E4%BA%BA%23&Refer=top) `173.5K 🔥`
 1. [张智霖说袁咏仪是节目组的卧底](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%99%BA%E9%9C%96%E8%AF%B4%E8%A2%81%E5%92%8F%E4%BB%AA%E6%98%AF%E8%8A%82%E7%9B%AE%E7%BB%84%E7%9A%84%E5%8D%A7%E5%BA%95%23&Refer=top) `167.3K 🔥`
 1. [直击成都封闭区解封](https://s.weibo.com/weibo?q=%23%E7%9B%B4%E5%87%BB%E6%88%90%E9%83%BD%E5%B0%81%E9%97%AD%E5%8C%BA%E8%A7%A3%E5%B0%81%23&Refer=top) `142.0K 🔥`
+1. [邓超微博评论区太搞笑了](https://s.weibo.com/weibo?q=%23%E9%82%93%E8%B6%85%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%E5%8C%BA%E5%A4%AA%E6%90%9E%E7%AC%91%E4%BA%86%23&Refer=top) `123.9K 🔥`
 1. [洪成成恋爱风景论](https://s.weibo.com/weibo?q=%23%E6%B4%AA%E6%88%90%E6%88%90%E6%81%8B%E7%88%B1%E9%A3%8E%E6%99%AF%E8%AE%BA%23&Refer=top) `105.4K 🔥`
 1. [黄西 脱口秀大会](https://s.weibo.com/weibo?q=%E9%BB%84%E8%A5%BF%20%E8%84%B1%E5%8F%A3%E7%A7%80%E5%A4%A7%E4%BC%9A&Refer=top) `101.7K 🔥`
-1. [刘奕君演技细节](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A5%95%E5%90%9B%E6%BC%94%E6%8A%80%E7%BB%86%E8%8A%82%23&Refer=top) `78.5K 🔥`
+1. [刘奕君演技细节](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A5%95%E5%90%9B%E6%BC%94%E6%8A%80%E7%BB%86%E8%8A%82%23&Refer=top) `89.0K 🔥`
 1. [你是我的荣耀](https://s.weibo.com/weibo?q=%E4%BD%A0%E6%98%AF%E6%88%91%E7%9A%84%E8%8D%A3%E8%80%80&Refer=top) `60.9K 🔥`
 1. [我说晚安等于社会性睡眠](https://s.weibo.com/weibo?q=%23%E6%88%91%E8%AF%B4%E6%99%9A%E5%AE%89%E7%AD%89%E4%BA%8E%E7%A4%BE%E4%BC%9A%E6%80%A7%E7%9D%A1%E7%9C%A0%23&Refer=top) `10.1K 🔥`
 
-数据更新于 2021-08-12 06:27:31
+数据更新于 2021-08-12 06:36:43
 
 <!-- END -->
 
