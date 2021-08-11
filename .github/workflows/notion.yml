@@ -1,2 +1,11 @@
 - name: Notion Documentation Sync
+  # You may pin to the exact commit or the version.
+  # uses: imnotjames/notion-docs-sync@ca5c768e18c7f9457584fc8003909762f73bbcad
   uses: imnotjames/notion-docs-sync@v0.0.10
+  with:
+    # The path to publish.
+    docs_path: # default is ./docs/
+    # The Notion URL to publish to.
+    notion_url: ${{ secrets.NOTION_URL }}
+    # The Notion Access Token to publish with.
+    notion_token: ${{ secrets.NOTION_TOKEN }}
