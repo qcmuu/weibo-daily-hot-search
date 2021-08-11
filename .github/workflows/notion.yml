@@ -4,7 +4,7 @@
   uses: imnotjames/notion-docs-sync@v0.0.10
   with:
     # The path to publish.
-    docs_path: # default is ./docs/
+    docs_path: ./archives # default is ./docs/
     # The Notion URL to publish to.
     notion_url: ${{ secrets.NOTION_URL }}
     # The Notion Access Token to publish with.
