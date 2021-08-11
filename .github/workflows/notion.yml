@@ -1,0 +1,2 @@
+- name: Notion Documentation Sync
+  uses: imnotjames/notion-docs-sync@v0.0.10
