@@ -42,8 +42,9 @@
 1. [目前未接到任何有关在阿中国公民伤亡报告](https://s.weibo.com/weibo?q=%23%E7%9B%AE%E5%89%8D%E6%9C%AA%E6%8E%A5%E5%88%B0%E4%BB%BB%E4%BD%95%E6%9C%89%E5%85%B3%E5%9C%A8%E9%98%BF%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E4%BC%A4%E4%BA%A1%E6%8A%A5%E5%91%8A%23&Refer=top) `1.8M 🔥`
 1. [迪丽热巴说自己比乔晶晶成熟](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%AF%B4%E8%87%AA%E5%B7%B1%E6%AF%94%E4%B9%94%E6%99%B6%E6%99%B6%E6%88%90%E7%86%9F%23&Refer=top) `1.8M 🔥`
 1. [塔利班希望阿富汗逃亡民众留下来](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%B8%8C%E6%9C%9B%E9%98%BF%E5%AF%8C%E6%B1%97%E9%80%83%E4%BA%A1%E6%B0%91%E4%BC%97%E7%95%99%E4%B8%8B%E6%9D%A5%23&Refer=top) `1.8M 🔥`
-1. [她让全世界知道了南京大屠杀](https://s.weibo.com/weibo?q=%23%E5%A5%B9%E8%AE%A9%E5%85%A8%E4%B8%96%E7%95%8C%E7%9F%A5%E9%81%93%E4%BA%86%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%9D%80%23&Refer=top) `1.6M 🔥`
+1. [原来女娲真的会偏心](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%A5%B3%E5%A8%B2%E7%9C%9F%E7%9A%84%E4%BC%9A%E5%81%8F%E5%BF%83%23&Refer=top) `1.6M 🔥`
 1. [喀布尔机场至少5人死亡](https://s.weibo.com/weibo?q=%23%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA%E8%87%B3%E5%B0%915%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.6M 🔥`
+1. [她让全世界知道了南京大屠杀](https://s.weibo.com/weibo?q=%23%E5%A5%B9%E8%AE%A9%E5%85%A8%E4%B8%96%E7%95%8C%E7%9F%A5%E9%81%93%E4%BA%86%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%B1%A0%E6%9D%80%23&Refer=top) `1.6M 🔥`
 1. [济南大润发发臭隔夜肉洗了再卖](https://s.weibo.com/weibo?q=%23%E6%B5%8E%E5%8D%97%E5%A4%A7%E6%B6%A6%E5%8F%91%E5%8F%91%E8%87%AD%E9%9A%94%E5%A4%9C%E8%82%89%E6%B4%97%E4%BA%86%E5%86%8D%E5%8D%96%23&Refer=top) `1.6M 🔥`
 1. [全运会](https://s.weibo.com/weibo?q=%E5%85%A8%E8%BF%90%E4%BC%9A&Refer=top) `1.5M 🔥`
 1. [吉林一男子乘出租车偶遇300多斤老虎](https://s.weibo.com/weibo?q=%E5%90%89%E6%9E%97%E4%B8%80%E7%94%B7%E5%AD%90%E4%B9%98%E5%87%BA%E7%A7%9F%E8%BD%A6%E5%81%B6%E9%81%87300%E5%A4%9A%E6%96%A4%E8%80%81%E8%99%8E&Refer=top) `1.5M 🔥`
@@ -68,7 +69,6 @@
 1. [孙红雷51岁状态](https://s.weibo.com/weibo?q=%23%E5%AD%99%E7%BA%A2%E9%9B%B751%E5%B2%81%E7%8A%B6%E6%80%81%23&Refer=top) `1.2M 🔥`
 1. [塔利班称在阿外国公民不会受到威胁](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E7%A7%B0%E5%9C%A8%E9%98%BF%E5%A4%96%E5%9B%BD%E5%85%AC%E6%B0%91%E4%B8%8D%E4%BC%9A%E5%8F%97%E5%88%B0%E5%A8%81%E8%83%81%23&Refer=top) `1.1M 🔥`
 1. [马龙说2019年接受手术是冒险但值得](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E8%AF%B42019%E5%B9%B4%E6%8E%A5%E5%8F%97%E6%89%8B%E6%9C%AF%E6%98%AF%E5%86%92%E9%99%A9%E4%BD%86%E5%80%BC%E5%BE%97%23&Refer=top) `1.1M 🔥`
-1. [原来女娲真的会偏心](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%A5%B3%E5%A8%B2%E7%9C%9F%E7%9A%84%E4%BC%9A%E5%81%8F%E5%BF%83%23&Refer=top) `1.1M 🔥`
 1. [Red Velvet回归](https://s.weibo.com/weibo?q=Red%20Velvet%E5%9B%9E%E5%BD%92&Refer=top) `1.1M 🔥`
 1. [你是我的荣耀](https://s.weibo.com/weibo?q=%E4%BD%A0%E6%98%AF%E6%88%91%E7%9A%84%E8%8D%A3%E8%80%80&Refer=top) `1.1M 🔥`
 1. [江苏疫情](https://s.weibo.com/weibo?q=%E6%B1%9F%E8%8B%8F%E7%96%AB%E6%83%85&Refer=top) `1.1M 🔥`
@@ -164,6 +164,7 @@
 1. [尼格买提手术室外流泪等候](https://s.weibo.com/weibo?q=%23%E5%B0%BC%E6%A0%BC%E4%B9%B0%E6%8F%90%E6%89%8B%E6%9C%AF%E5%AE%A4%E5%A4%96%E6%B5%81%E6%B3%AA%E7%AD%89%E5%80%99%23&Refer=top) `555.4K 🔥`
 1. [临汾聚仙饭店坍塌事故调查报告](https://s.weibo.com/weibo?q=%23%E4%B8%B4%E6%B1%BE%E8%81%9A%E4%BB%99%E9%A5%AD%E5%BA%97%E5%9D%8D%E5%A1%8C%E4%BA%8B%E6%95%85%E8%B0%83%E6%9F%A5%E6%8A%A5%E5%91%8A%23&Refer=top) `547.7K 🔥`
 1. [杨洋说撒老师辛苦了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E8%AF%B4%E6%92%92%E8%80%81%E5%B8%88%E8%BE%9B%E8%8B%A6%E4%BA%86%23&Refer=top) `547.3K 🔥`
+1. [女子七夕被催婚坐13楼欲外欲轻生](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%83%E5%A4%95%E8%A2%AB%E5%82%AC%E5%A9%9A%E5%9D%9013%E6%A5%BC%E6%AC%B2%E5%A4%96%E6%AC%B2%E8%BD%BB%E7%94%9F%23&Refer=top) `542.2K 🔥`
 1. [凤小岳妻子怀孕9个月引产](https://s.weibo.com/weibo?q=%23%E5%87%A4%E5%B0%8F%E5%B2%B3%E5%A6%BB%E5%AD%90%E6%80%80%E5%AD%959%E4%B8%AA%E6%9C%88%E5%BC%95%E4%BA%A7%23&Refer=top) `539.5K 🔥`
 1. [感染炭疽病毒什么症状](https://s.weibo.com/weibo?q=%23%E6%84%9F%E6%9F%93%E7%82%AD%E7%96%BD%E7%97%85%E6%AF%92%E4%BB%80%E4%B9%88%E7%97%87%E7%8A%B6%23&Refer=top) `536.3K 🔥`
 1. [大爷带一排小黄鸭过马路](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%88%B7%E5%B8%A6%E4%B8%80%E6%8E%92%E5%B0%8F%E9%BB%84%E9%B8%AD%E8%BF%87%E9%A9%AC%E8%B7%AF%23&Refer=top) `532.7K 🔥`
@@ -218,11 +219,11 @@
 1. [河南新增6例本土确诊](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%96%B0%E5%A2%9E6%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `360.5K 🔥`
 1. [实拍阿富汗首都混乱景象](https://s.weibo.com/weibo?q=%23%E5%AE%9E%E6%8B%8D%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A6%96%E9%83%BD%E6%B7%B7%E4%B9%B1%E6%99%AF%E8%B1%A1%23&Refer=top) `360.1K 🔥`
 1. [美国在阿富汗20年花了2万亿美元](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%9720%E5%B9%B4%E8%8A%B1%E4%BA%862%E4%B8%87%E4%BA%BF%E7%BE%8E%E5%85%83%23&Refer=top) `357.4K 🔥`
+1. [外交部回应阿富汗局势](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B1%80%E5%8A%BF&Refer=top) `349.9K 🔥`
 1. [开了美颜后的许昕](https://s.weibo.com/weibo?q=%23%E5%BC%80%E4%BA%86%E7%BE%8E%E9%A2%9C%E5%90%8E%E7%9A%84%E8%AE%B8%E6%98%95%23&Refer=top) `346.9K 🔥`
 1. [阿富汗喀布尔机场发生骚乱](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA%E5%8F%91%E7%94%9F%E9%AA%9A%E4%B9%B1%23&Refer=top) `342.9K 🔥`
 1. [张彬彬被念叨崩溃了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E8%A2%AB%E5%BF%B5%E5%8F%A8%E5%B4%A9%E6%BA%83%E4%BA%86%23&Refer=top) `342.8K 🔥`
 1. [施廷懋说喜欢收集金牌](https://s.weibo.com/weibo?q=%23%E6%96%BD%E5%BB%B7%E6%87%8B%E8%AF%B4%E5%96%9C%E6%AC%A2%E6%94%B6%E9%9B%86%E9%87%91%E7%89%8C%23&Refer=top) `342.6K 🔥`
-1. [女子七夕被催婚坐13楼欲外欲轻生](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%83%E5%A4%95%E8%A2%AB%E5%82%AC%E5%A9%9A%E5%9D%9013%E6%A5%BC%E6%AC%B2%E5%A4%96%E6%AC%B2%E8%BD%BB%E7%94%9F%23&Refer=top) `342.3K 🔥`
 1. [阿富汗总统将辞职](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%B0%86%E8%BE%9E%E8%81%8C%23&Refer=top) `339.0K 🔥`
 1. [梅西球衣24小时卖100万件](https://s.weibo.com/weibo?q=%23%E6%A2%85%E8%A5%BF%E7%90%83%E8%A1%A324%E5%B0%8F%E6%97%B6%E5%8D%96100%E4%B8%87%E4%BB%B6%23&Refer=top) `327.7K 🔥`
 1. [李庚希一眼入戏](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%BA%9A%E5%B8%8C%E4%B8%80%E7%9C%BC%E5%85%A5%E6%88%8F&Refer=top) `326.0K 🔥`
@@ -239,11 +240,11 @@
 1. [多国驻阿富汗人员加紧撤离](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9B%BD%E9%A9%BB%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E5%91%98%E5%8A%A0%E7%B4%A7%E6%92%A4%E7%A6%BB%23&Refer=top) `276.3K 🔥`
 1. [官方通报男子公园驾车撞人致2死6伤](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E7%94%B7%E5%AD%90%E5%85%AC%E5%9B%AD%E9%A9%BE%E8%BD%A6%E6%92%9E%E4%BA%BA%E8%87%B42%E6%AD%BB6%E4%BC%A4%23&Refer=top) `275.2K 🔥`
 1. [蔚来车主自动驾驶车祸行驶数据公布](https://s.weibo.com/weibo?q=%23%E8%94%9A%E6%9D%A5%E8%BD%A6%E4%B8%BB%E8%87%AA%E5%8A%A8%E9%A9%BE%E9%A9%B6%E8%BD%A6%E7%A5%B8%E8%A1%8C%E9%A9%B6%E6%95%B0%E6%8D%AE%E5%85%AC%E5%B8%83%23&Refer=top) `267.4K 🔥`
+1. [中方回应世卫秘书处关于下阶段溯源声明](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%9B%9E%E5%BA%94%E4%B8%96%E5%8D%AB%E7%A7%98%E4%B9%A6%E5%A4%84%E5%85%B3%E4%BA%8E%E4%B8%8B%E9%98%B6%E6%AE%B5%E6%BA%AF%E6%BA%90%E5%A3%B0%E6%98%8E%23&Refer=top) `266.7K 🔥`
 1. [孙兴慜破门](https://s.weibo.com/weibo?q=%E5%AD%99%E5%85%B4%E6%85%9C%E7%A0%B4%E9%97%A8&Refer=top) `266.2K 🔥`
 1. [职场人听见这些话要警惕](https://s.weibo.com/weibo?q=%23%E8%81%8C%E5%9C%BA%E4%BA%BA%E5%90%AC%E8%A7%81%E8%BF%99%E4%BA%9B%E8%AF%9D%E8%A6%81%E8%AD%A6%E6%83%95%23&Refer=top) `258.7K 🔥`
 1. [被猫咪的背影萌到了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%8C%AB%E5%92%AA%E7%9A%84%E8%83%8C%E5%BD%B1%E8%90%8C%E5%88%B0%E4%BA%86%23&Refer=top) `254.4K 🔥`
 1. [出水芙蓉们隔离期间这么练](https://s.weibo.com/weibo?q=%23%E5%87%BA%E6%B0%B4%E8%8A%99%E8%93%89%E4%BB%AC%E9%9A%94%E7%A6%BB%E6%9C%9F%E9%97%B4%E8%BF%99%E4%B9%88%E7%BB%83%23&Refer=top) `252.3K 🔥`
-1. [外交部回应阿富汗局势](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B1%80%E5%8A%BF&Refer=top) `248.8K 🔥`
 1. [如何看待父母在孩子面前说脏话](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E7%9C%8B%E5%BE%85%E7%88%B6%E6%AF%8D%E5%9C%A8%E5%AD%A9%E5%AD%90%E9%9D%A2%E5%89%8D%E8%AF%B4%E8%84%8F%E8%AF%9D%23&Refer=top) `245.9K 🔥`
 1. [快船灰熊达成交易](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E8%88%B9%E7%81%B0%E7%86%8A%E8%BE%BE%E6%88%90%E4%BA%A4%E6%98%93%23&Refer=top) `244.3K 🔥`
 1. [翟潇闻演技细节](https://s.weibo.com/weibo?q=%23%E7%BF%9F%E6%BD%87%E9%97%BB%E6%BC%94%E6%8A%80%E7%BB%86%E8%8A%82%23&Refer=top) `241.5K 🔥`
@@ -258,7 +259,7 @@
 1. [31省区市新增13例本土确诊病例](https://s.weibo.com/weibo?q=%2331%E7%9C%81%E5%8C%BA%E5%B8%82%E6%96%B0%E5%A2%9E13%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%23&Refer=top) `190.4K 🔥`
 1. [一图看懂最新防疫要点](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%9B%BE%E7%9C%8B%E6%87%82%E6%9C%80%E6%96%B0%E9%98%B2%E7%96%AB%E8%A6%81%E7%82%B9%23&Refer=top) `158.2K 🔥`
 
-数据更新于 2021-08-16 19:09:59
+数据更新于 2021-08-16 19:18:35
 
 <!-- END -->
 
