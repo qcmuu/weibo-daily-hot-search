@@ -57,13 +57,14 @@
 1. [还是山鸡哥厉害啊](https://s.weibo.com/weibo?q=%23%E8%BF%98%E6%98%AF%E5%B1%B1%E9%B8%A1%E5%93%A5%E5%8E%89%E5%AE%B3%E5%95%8A%23&Refer=top) `303.9K 🔥`
 1. [霍尊转账记录](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%B0%8A%E8%BD%AC%E8%B4%A6%E8%AE%B0%E5%BD%95%23&Refer=top) `300.2K 🔥`
 1. [宝可梦](https://s.weibo.com/weibo?q=%E5%AE%9D%E5%8F%AF%E6%A2%A6&Refer=top) `294.3K 🔥`
+1. [吉娜开口就是老妹儿啊](https://s.weibo.com/weibo?q=%23%E5%90%89%E5%A8%9C%E5%BC%80%E5%8F%A3%E5%B0%B1%E6%98%AF%E8%80%81%E5%A6%B9%E5%84%BF%E5%95%8A%23&Refer=top) `288.7K 🔥`
 1. [上海与宁德时代签约](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%8E%E5%AE%81%E5%BE%B7%E6%97%B6%E4%BB%A3%E7%AD%BE%E7%BA%A6%23&Refer=top) `280.0K 🔥`
 1. [天龙八部豆瓣评分](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E9%BE%99%E5%85%AB%E9%83%A8%E8%B1%86%E7%93%A3%E8%AF%84%E5%88%86%23&Refer=top) `279.2K 🔥`
 1. [南京一高校院长涉嫌婚内出轨](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E4%B8%80%E9%AB%98%E6%A0%A1%E9%99%A2%E9%95%BF%E6%B6%89%E5%AB%8C%E5%A9%9A%E5%86%85%E5%87%BA%E8%BD%A8%23&Refer=top) `274.6K 🔥`
 1. [山东烧烤battle大赏](https://s.weibo.com/weibo?q=%E5%B1%B1%E4%B8%9C%E7%83%A7%E7%83%A4battle%E5%A4%A7%E8%B5%8F&Refer=top) `196.4K 🔥`
 1. [周生如故](https://s.weibo.com/weibo?q=%E5%91%A8%E7%94%9F%E5%A6%82%E6%95%85&Refer=top) `149.3K 🔥`
 
-数据更新于 2021-08-19 00:54:44
+数据更新于 2021-08-19 01:05:17
 
 <!-- END -->
 
