@@ -65,8 +65,9 @@
 1. [钟汉良复古solo舞台好帅](https://s.weibo.com/weibo?q=%23%E9%92%9F%E6%B1%89%E8%89%AF%E5%A4%8D%E5%8F%A4solo%E8%88%9E%E5%8F%B0%E5%A5%BD%E5%B8%85%23&Refer=top) `159.9K 🔥`
 1. [周生如故](https://s.weibo.com/weibo?q=%E5%91%A8%E7%94%9F%E5%A6%82%E6%95%85&Refer=top) `149.3K 🔥`
 1. [818](https://s.weibo.com/weibo?q=818&Refer=top) `113.0K 🔥`
+1. [阿富汗](https://s.weibo.com/weibo?q=%E9%98%BF%E5%AF%8C%E6%B1%97&Refer=top) `98.2K 🔥`
 
-数据更新于 2021-08-19 01:51:30
+数据更新于 2021-08-19 01:53:48
 
 <!-- END -->
 
