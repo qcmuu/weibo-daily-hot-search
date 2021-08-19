@@ -66,8 +66,9 @@
 1. [高明远培养麦佳](https://s.weibo.com/weibo?q=%E9%AB%98%E6%98%8E%E8%BF%9C%E5%9F%B9%E5%85%BB%E9%BA%A6%E4%BD%B3&Refer=top) `148.8K 🔥`
 1. [每日上班前的心理建设](https://s.weibo.com/weibo?q=%23%E6%AF%8F%E6%97%A5%E4%B8%8A%E7%8F%AD%E5%89%8D%E7%9A%84%E5%BF%83%E7%90%86%E5%BB%BA%E8%AE%BE%23&Refer=top) `122.1K 🔥`
 1. [RNG LNG](https://s.weibo.com/weibo?q=RNG%20LNG&Refer=top) `47.1K 🔥`
+1. [林彦俊告别苏念衾](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%BD%A6%E4%BF%8A%E5%91%8A%E5%88%AB%E8%8B%8F%E5%BF%B5%E8%A1%BE%23&Refer=top) `16.4K 🔥`
 
-数据更新于 2021-08-20 03:27:46
+数据更新于 2021-08-20 03:33:36
 
 <!-- END -->
 
