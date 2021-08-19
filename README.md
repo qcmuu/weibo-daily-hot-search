@@ -37,7 +37,7 @@
 1. [总台CGTN专访阿富汗塔利班发言人](https://s.weibo.com/weibo?q=%23%E6%80%BB%E5%8F%B0CGTN%E4%B8%93%E8%AE%BF%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%8F%91%E8%A8%80%E4%BA%BA%23&Refer=top) `514.2K 🔥`
 1. [国乒女队直播太好笑了](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E5%A5%B3%E9%98%9F%E7%9B%B4%E6%92%AD%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `514.1K 🔥`
 1. [女生千万不要买的鞋](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E4%B9%B0%E7%9A%84%E9%9E%8B%23&Refer=top) `514.0K 🔥`
-1. [黄子韬劝粉丝玩游戏不要花钱](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%8A%9D%E7%B2%89%E4%B8%9D%E7%8E%A9%E6%B8%B8%E6%88%8F%E4%B8%8D%E8%A6%81%E8%8A%B1%E9%92%B1%23&Refer=top) `497.4K 🔥`
+1. [黄子韬劝粉丝玩游戏不要花钱](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%8A%9D%E7%B2%89%E4%B8%9D%E7%8E%A9%E6%B8%B8%E6%88%8F%E4%B8%8D%E8%A6%81%E8%8A%B1%E9%92%B1%23&Refer=top) `507.7K 🔥`
 1. [裴伟是内鬼吧](https://s.weibo.com/weibo?q=%E8%A3%B4%E4%BC%9F%E6%98%AF%E5%86%85%E9%AC%BC%E5%90%A7&Refer=top) `471.4K 🔥`
 1. [早上只喝水不吃饭会有什么危害](https://s.weibo.com/weibo?q=%23%E6%97%A9%E4%B8%8A%E5%8F%AA%E5%96%9D%E6%B0%B4%E4%B8%8D%E5%90%83%E9%A5%AD%E4%BC%9A%E6%9C%89%E4%BB%80%E4%B9%88%E5%8D%B1%E5%AE%B3%23&Refer=top) `460.6K 🔥`
 1. [龚俊直播](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E7%9B%B4%E6%92%AD%23&Refer=top) `414.9K 🔥`
@@ -52,17 +52,18 @@
 1. [洪成成对马子佳说你对我的好能感受到](https://s.weibo.com/weibo?q=%E6%B4%AA%E6%88%90%E6%88%90%E5%AF%B9%E9%A9%AC%E5%AD%90%E4%BD%B3%E8%AF%B4%E4%BD%A0%E5%AF%B9%E6%88%91%E7%9A%84%E5%A5%BD%E8%83%BD%E6%84%9F%E5%8F%97%E5%88%B0&Refer=top) `284.2K 🔥`
 1. [余生请多指教四季概念篇预告](https://s.weibo.com/weibo?q=%23%E4%BD%99%E7%94%9F%E8%AF%B7%E5%A4%9A%E6%8C%87%E6%95%99%E5%9B%9B%E5%AD%A3%E6%A6%82%E5%BF%B5%E7%AF%87%E9%A2%84%E5%91%8A%23&Refer=top) `266.8K 🔥`
 1. [杨倩全红婵商标注册申请被依法驳回](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%95%86%E6%A0%87%E6%B3%A8%E5%86%8C%E7%94%B3%E8%AF%B7%E8%A2%AB%E4%BE%9D%E6%B3%95%E9%A9%B3%E5%9B%9E%23&Refer=top) `265.3K 🔥`
+1. [王嘉尔演出服是自己剪的](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E6%BC%94%E5%87%BA%E6%9C%8D%E6%98%AF%E8%87%AA%E5%B7%B1%E5%89%AA%E7%9A%84%23&Refer=top) `255.5K 🔥`
 1. [谢震业用腹肌开瓶盖](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E9%9C%87%E4%B8%9A%E7%94%A8%E8%85%B9%E8%82%8C%E5%BC%80%E7%93%B6%E7%9B%96%23&Refer=top) `251.7K 🔥`
 1. [乔一成救乔三丽](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E6%95%91%E4%B9%94%E4%B8%89%E4%B8%BD%23&Refer=top) `244.2K 🔥`
-1. [王嘉尔演出服是自己剪的](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E6%BC%94%E5%87%BA%E6%9C%8D%E6%98%AF%E8%87%AA%E5%B7%B1%E5%89%AA%E7%9A%84%23&Refer=top) `232.8K 🔥`
+1. [东部战区军演震动台湾](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E9%83%A8%E6%88%98%E5%8C%BA%E5%86%9B%E6%BC%94%E9%9C%87%E5%8A%A8%E5%8F%B0%E6%B9%BE%23&Refer=top) `243.7K 🔥`
 1. [周生辰教科书式对待前女友](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E8%BE%B0%E6%95%99%E7%A7%91%E4%B9%A6%E5%BC%8F%E5%AF%B9%E5%BE%85%E5%89%8D%E5%A5%B3%E5%8F%8B%23&Refer=top) `230.5K 🔥`
 1. [洪成成对马子佳说我很幸福](https://s.weibo.com/weibo?q=%23%E6%B4%AA%E6%88%90%E6%88%90%E5%AF%B9%E9%A9%AC%E5%AD%90%E4%BD%B3%E8%AF%B4%E6%88%91%E5%BE%88%E5%B9%B8%E7%A6%8F%23&Refer=top) `229.7K 🔥`
-1. [东部战区军演震动台湾](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E9%83%A8%E6%88%98%E5%8C%BA%E5%86%9B%E6%BC%94%E9%9C%87%E5%8A%A8%E5%8F%B0%E6%B9%BE%23&Refer=top) `226.1K 🔥`
 1. [柳碧云被婆婆扇耳光](https://s.weibo.com/weibo?q=%23%E6%9F%B3%E7%A2%A7%E4%BA%91%E8%A2%AB%E5%A9%86%E5%A9%86%E6%89%87%E8%80%B3%E5%85%89%23&Refer=top) `224.8K 🔥`
 1. [周生辰时宜在恋爱边缘疯狂试探](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E8%BE%B0%E6%97%B6%E5%AE%9C%E5%9C%A8%E6%81%8B%E7%88%B1%E8%BE%B9%E7%BC%98%E7%96%AF%E7%8B%82%E8%AF%95%E6%8E%A2%23&Refer=top) `213.9K 🔥`
 1. [小车摄像头被新手司机贴鬼影照报复](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%BD%A6%E6%91%84%E5%83%8F%E5%A4%B4%E8%A2%AB%E6%96%B0%E6%89%8B%E5%8F%B8%E6%9C%BA%E8%B4%B4%E9%AC%BC%E5%BD%B1%E7%85%A7%E6%8A%A5%E5%A4%8D%23&Refer=top) `202.7K 🔥`
+1. [刘雨昕尼格买提合唱小幸运](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%A8%E6%98%95%E5%B0%BC%E6%A0%BC%E4%B9%B0%E6%8F%90%E5%90%88%E5%94%B1%E5%B0%8F%E5%B9%B8%E8%BF%90%23&Refer=top) `152.1K 🔥`
 
-数据更新于 2021-08-20 00:51:23
+数据更新于 2021-08-20 00:58:46
 
 <!-- END -->
 
