@@ -67,8 +67,9 @@
 1. [上海新增2例新冠确诊](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%96%B0%E5%A2%9E2%E4%BE%8B%E6%96%B0%E5%86%A0%E7%A1%AE%E8%AF%8A%23&Refer=top) `227.8K 🔥`
 1. [王皓 训练的时候抱得动樊振东](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%9A%93%20%E8%AE%AD%E7%BB%83%E7%9A%84%E6%97%B6%E5%80%99%E6%8A%B1%E5%BE%97%E5%8A%A8%E6%A8%8A%E6%8C%AF%E4%B8%9C&Refer=top) `227.3K 🔥`
 1. [中国空间站大门钥匙](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E7%A9%BA%E9%97%B4%E7%AB%99%E5%A4%A7%E9%97%A8%E9%92%A5%E5%8C%99&Refer=top) `158.7K 🔥`
+1. [Girls Planet 999](https://s.weibo.com/weibo?q=Girls%20Planet%20999&Refer=top) `104.4K 🔥`
 
-数据更新于 2021-08-21 01:15:05
+数据更新于 2021-08-21 01:28:42
 
 <!-- END -->
 
