@@ -76,7 +76,7 @@
 1. [韩宇battle制胜分](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%AE%87battle%E5%88%B6%E8%83%9C%E5%88%86&Refer=top) `13.8K 🔥`
 1. [TTG GK](https://s.weibo.com/weibo?q=TTG%20GK&Refer=top) `11.4K 🔥`
 
-数据更新于 2021-08-22 04:44:28
+数据更新于 2021-08-22 04:46:02
 
 <!-- END -->
 
