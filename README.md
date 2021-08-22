@@ -68,13 +68,13 @@
 1. [司机喝酒庆祝女儿考上大学被查](https://s.weibo.com/weibo?q=%E5%8F%B8%E6%9C%BA%E5%96%9D%E9%85%92%E5%BA%86%E7%A5%9D%E5%A5%B3%E5%84%BF%E8%80%83%E4%B8%8A%E5%A4%A7%E5%AD%A6%E8%A2%AB%E6%9F%A5&Refer=top) `203.3K 🔥`
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `154.6K 🔥`
 1. [张彬彬拿错瓢心态崩了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%8B%BF%E9%94%99%E7%93%A2%E5%BF%83%E6%80%81%E5%B4%A9%E4%BA%86%23&Refer=top) `147.1K 🔥`
-1. [乔峰错杀阿朱](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%B3%B0%E9%94%99%E6%9D%80%E9%98%BF%E6%9C%B1%23&Refer=top) `141.2K 🔥`
+1. [乔峰错杀阿朱](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%B3%B0%E9%94%99%E6%9D%80%E9%98%BF%E6%9C%B1%23&Refer=top) `143.6K 🔥`
 1. [如何看待撒娇式育儿](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E7%9C%8B%E5%BE%85%E6%92%92%E5%A8%87%E5%BC%8F%E8%82%B2%E5%84%BF%23&Refer=top) `132.4K 🔥`
 1. [新款防护服自带空调可控制温度](https://s.weibo.com/weibo?q=%E6%96%B0%E6%AC%BE%E9%98%B2%E6%8A%A4%E6%9C%8D%E8%87%AA%E5%B8%A6%E7%A9%BA%E8%B0%83%E5%8F%AF%E6%8E%A7%E5%88%B6%E6%B8%A9%E5%BA%A6&Refer=top) `99.9K 🔥`
-1. [偷手机后进派出所送还求表扬](https://s.weibo.com/weibo?q=%23%E5%81%B7%E6%89%8B%E6%9C%BA%E5%90%8E%E8%BF%9B%E6%B4%BE%E5%87%BA%E6%89%80%E9%80%81%E8%BF%98%E6%B1%82%E8%A1%A8%E6%89%AC%23&Refer=top) `77.6K 🔥`
-1. [南安普顿 曼联](https://s.weibo.com/weibo?q=%E5%8D%97%E5%AE%89%E6%99%AE%E9%A1%BF%20%E6%9B%BC%E8%81%94&Refer=top) `39.1K 🔥`
+1. [偷手机后进派出所送还求表扬](https://s.weibo.com/weibo?q=%23%E5%81%B7%E6%89%8B%E6%9C%BA%E5%90%8E%E8%BF%9B%E6%B4%BE%E5%87%BA%E6%89%80%E9%80%81%E8%BF%98%E6%B1%82%E8%A1%A8%E6%89%AC%23&Refer=top) `77.8K 🔥`
+1. [南安普顿 曼联](https://s.weibo.com/weibo?q=%E5%8D%97%E5%AE%89%E6%99%AE%E9%A1%BF%20%E6%9B%BC%E8%81%94&Refer=top) `39.3K 🔥`
 
-数据更新于 2021-08-23 06:45:21
+数据更新于 2021-08-23 06:46:54
 
 <!-- END -->
 
