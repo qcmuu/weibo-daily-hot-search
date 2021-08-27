@@ -128,7 +128,7 @@
 1. [秘书否认卡尔扎伊被塔利班软禁](https://s.weibo.com/weibo?q=%23%E7%A7%98%E4%B9%A6%E5%90%A6%E8%AE%A4%E5%8D%A1%E5%B0%94%E6%89%8E%E4%BC%8A%E8%A2%AB%E5%A1%94%E5%88%A9%E7%8F%AD%E8%BD%AF%E7%A6%81%23&Refer=top) `194.5K 🔥`
 1. [阿富汗前总统卡尔扎伊被软禁](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%89%8D%E6%80%BB%E7%BB%9F%E5%8D%A1%E5%B0%94%E6%89%8E%E4%BC%8A%E8%A2%AB%E8%BD%AF%E7%A6%81%23&Refer=top) `112.9K 🔥`
 
-数据更新于 2021-08-27 11:55:35
+数据更新于 2021-08-27 11:55:53
 
 <!-- END -->
 
