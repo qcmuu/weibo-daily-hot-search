@@ -37,6 +37,7 @@
 1. [9张图记住这个八月](https://s.weibo.com/weibo?q=%239%E5%BC%A0%E5%9B%BE%E8%AE%B0%E4%BD%8F%E8%BF%99%E4%B8%AA%E5%85%AB%E6%9C%88%23&Refer=top) `1.1M 🔥`
 1. [500余名天安门广场卫士退役向国旗敬礼](https://s.weibo.com/weibo?q=%23500%E4%BD%99%E5%90%8D%E5%A4%A9%E5%AE%89%E9%97%A8%E5%B9%BF%E5%9C%BA%E5%8D%AB%E5%A3%AB%E9%80%80%E5%BD%B9%E5%90%91%E5%9B%BD%E6%97%97%E6%95%AC%E7%A4%BC%23&Refer=top) `1.1M 🔥`
 1. [云南虫谷](https://s.weibo.com/weibo?q=%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7&Refer=top) `1.1M 🔥`
+1. [巨人教育宣布倒闭](https://s.weibo.com/weibo?q=%23%E5%B7%A8%E4%BA%BA%E6%95%99%E8%82%B2%E5%AE%A3%E5%B8%83%E5%80%92%E9%97%AD%23&Refer=top) `1.1M 🔥`
 1. [日本已连续9年增加国防预算](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%B7%B2%E8%BF%9E%E7%BB%AD9%E5%B9%B4%E5%A2%9E%E5%8A%A0%E5%9B%BD%E9%98%B2%E9%A2%84%E7%AE%97%23&Refer=top) `1.1M 🔥`
 1. [山东省出现炭疽死亡病例](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E7%9C%81%E5%87%BA%E7%8E%B0%E7%82%AD%E7%96%BD%E6%AD%BB%E4%BA%A1%E7%97%85%E4%BE%8B%23&Refer=top) `1.1M 🔥`
 1. [塔利班人员持枪录制节目](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E4%BA%BA%E5%91%98%E6%8C%81%E6%9E%AA%E5%BD%95%E5%88%B6%E8%8A%82%E7%9B%AE%23&Refer=top) `1.1M 🔥`
@@ -47,7 +48,6 @@
 1. [耿爽说应追究美在阿富汗滥杀无辜的刑责](https://s.weibo.com/weibo?q=%23%E8%80%BF%E7%88%BD%E8%AF%B4%E5%BA%94%E8%BF%BD%E7%A9%B6%E7%BE%8E%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E6%BB%A5%E6%9D%80%E6%97%A0%E8%BE%9C%E7%9A%84%E5%88%91%E8%B4%A3%23&Refer=top) `992.1K 🔥`
 1. [最后一架美军机撤离阿富汗](https://s.weibo.com/weibo?q=%23%E6%9C%80%E5%90%8E%E4%B8%80%E6%9E%B6%E7%BE%8E%E5%86%9B%E6%9C%BA%E6%92%A4%E7%A6%BB%E9%98%BF%E5%AF%8C%E6%B1%97%23&Refer=top) `960.5K 🔥`
 1. [李阳被曝家暴后仍在开课](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%98%B3%E8%A2%AB%E6%9B%9D%E5%AE%B6%E6%9A%B4%E5%90%8E%E4%BB%8D%E5%9C%A8%E5%BC%80%E8%AF%BE%23&Refer=top) `933.8K 🔥`
-1. [巨人教育宣布倒闭](https://s.weibo.com/weibo?q=%23%E5%B7%A8%E4%BA%BA%E6%95%99%E8%82%B2%E5%AE%A3%E5%B8%83%E5%80%92%E9%97%AD%23&Refer=top) `916.8K 🔥`
 1. [被全世界禁养的猫](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%85%A8%E4%B8%96%E7%95%8C%E7%A6%81%E5%85%BB%E7%9A%84%E7%8C%AB%23&Refer=top) `914.0K 🔥`
 1. [少年回应三年前倒挂6次救女孩](https://s.weibo.com/weibo?q=%23%E5%B0%91%E5%B9%B4%E5%9B%9E%E5%BA%94%E4%B8%89%E5%B9%B4%E5%89%8D%E5%80%92%E6%8C%826%E6%AC%A1%E6%95%91%E5%A5%B3%E5%AD%A9%23&Refer=top) `898.1K 🔥`
 1. [微博打击政务央媒官微下刷量控评账号](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E6%89%93%E5%87%BB%E6%94%BF%E5%8A%A1%E5%A4%AE%E5%AA%92%E5%AE%98%E5%BE%AE%E4%B8%8B%E5%88%B7%E9%87%8F%E6%8E%A7%E8%AF%84%E8%B4%A6%E5%8F%B7%23&Refer=top) `887.4K 🔥`
@@ -152,6 +152,7 @@
 1. [塔利班特种部队进入喀布尔机场](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E7%89%B9%E7%A7%8D%E9%83%A8%E9%98%9F%E8%BF%9B%E5%85%A5%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA&Refer=top) `506.5K 🔥`
 1. [残奥会游泳奖牌榜超多五星红旗](https://s.weibo.com/weibo?q=%23%E6%AE%8B%E5%A5%A5%E4%BC%9A%E6%B8%B8%E6%B3%B3%E5%A5%96%E7%89%8C%E6%A6%9C%E8%B6%85%E5%A4%9A%E4%BA%94%E6%98%9F%E7%BA%A2%E6%97%97%23&Refer=top) `503.9K 🔥`
 1. [刘海弄成了申公豹](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%B7%E5%BC%84%E6%88%90%E4%BA%86%E7%94%B3%E5%85%AC%E8%B1%B9%23&Refer=top) `502.9K 🔥`
+1. [爸妈每天早起准备的便当](https://s.weibo.com/weibo?q=%23%E7%88%B8%E5%A6%88%E6%AF%8F%E5%A4%A9%E6%97%A9%E8%B5%B7%E5%87%86%E5%A4%87%E7%9A%84%E4%BE%BF%E5%BD%93%23&Refer=top) `502.0K 🔥`
 1. [乔一成送叶小朗出国](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E9%80%81%E5%8F%B6%E5%B0%8F%E6%9C%97%E5%87%BA%E5%9B%BD%23&Refer=top) `498.8K 🔥`
 1. [提前用完生活费是啥体验](https://s.weibo.com/weibo?q=%23%E6%8F%90%E5%89%8D%E7%94%A8%E5%AE%8C%E7%94%9F%E6%B4%BB%E8%B4%B9%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `497.3K 🔥`
 1. [石磊为了结婚有多努力](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E7%A3%8A%E4%B8%BA%E4%BA%86%E7%BB%93%E5%A9%9A%E6%9C%89%E5%A4%9A%E5%8A%AA%E5%8A%9B%23&Refer=top) `489.7K 🔥`
@@ -170,7 +171,6 @@
 1. [老师的开学恐惧症更严重](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B8%88%E7%9A%84%E5%BC%80%E5%AD%A6%E6%81%90%E6%83%A7%E7%97%87%E6%9B%B4%E4%B8%A5%E9%87%8D%23&Refer=top) `472.4K 🔥`
 1. [商场回应小米之家30秒遭洗劫](https://s.weibo.com/weibo?q=%23%E5%95%86%E5%9C%BA%E5%9B%9E%E5%BA%94%E5%B0%8F%E7%B1%B3%E4%B9%8B%E5%AE%B630%E7%A7%92%E9%81%AD%E6%B4%97%E5%8A%AB%23&Refer=top) `471.1K 🔥`
 1. [北京中学上课时间不早于8点](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%B8%AD%E5%AD%A6%E4%B8%8A%E8%AF%BE%E6%97%B6%E9%97%B4%E4%B8%8D%E6%97%A9%E4%BA%8E8%E7%82%B9%23&Refer=top) `470.7K 🔥`
-1. [爸妈每天早起准备的便当](https://s.weibo.com/weibo?q=%23%E7%88%B8%E5%A6%88%E6%AF%8F%E5%A4%A9%E6%97%A9%E8%B5%B7%E5%87%86%E5%A4%87%E7%9A%84%E4%BE%BF%E5%BD%93%23&Refer=top) `469.6K 🔥`
 1. [重紫全员变装](https://s.weibo.com/weibo?q=%23%E9%87%8D%E7%B4%AB%E5%85%A8%E5%91%98%E5%8F%98%E8%A3%85%23&Refer=top) `459.1K 🔥`
 1. [杨洋迪丽热巴你是我的荣耀庆功宴](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BD%A0%E6%98%AF%E6%88%91%E7%9A%84%E8%8D%A3%E8%80%80%E5%BA%86%E5%8A%9F%E5%AE%B4%23&Refer=top) `458.7K 🔥`
 1. [多部门紧急联合救助遭遗弃小象](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E9%83%A8%E9%97%A8%E7%B4%A7%E6%80%A5%E8%81%94%E5%90%88%E6%95%91%E5%8A%A9%E9%81%AD%E9%81%97%E5%BC%83%E5%B0%8F%E8%B1%A1%23&Refer=top) `454.8K 🔥`
@@ -202,18 +202,19 @@
 1. [熊孩子把暑假作业藏床底疯玩两个月](https://s.weibo.com/weibo?q=%23%E7%86%8A%E5%AD%A9%E5%AD%90%E6%8A%8A%E6%9A%91%E5%81%87%E4%BD%9C%E4%B8%9A%E8%97%8F%E5%BA%8A%E5%BA%95%E7%96%AF%E7%8E%A9%E4%B8%A4%E4%B8%AA%E6%9C%88%23&Refer=top) `357.2K 🔥`
 1. [老人做饭按克称重每年节约粮食100多斤](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E5%81%9A%E9%A5%AD%E6%8C%89%E5%85%8B%E7%A7%B0%E9%87%8D%E6%AF%8F%E5%B9%B4%E8%8A%82%E7%BA%A6%E7%B2%AE%E9%A3%9F100%E5%A4%9A%E6%96%A4%23&Refer=top) `347.8K 🔥`
 1. [19岁尿毒症女孩直播维生](https://s.weibo.com/weibo?q=%2319%E5%B2%81%E5%B0%BF%E6%AF%92%E7%97%87%E5%A5%B3%E5%AD%A9%E7%9B%B4%E6%92%AD%E7%BB%B4%E7%94%9F%23&Refer=top) `347.4K 🔥`
+1. [长期沉迷网游改变孩子大脑结构](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%9C%9F%E6%B2%89%E8%BF%B7%E7%BD%91%E6%B8%B8%E6%94%B9%E5%8F%98%E5%AD%A9%E5%AD%90%E5%A4%A7%E8%84%91%E7%BB%93%E6%9E%84%23&Refer=top) `345.0K 🔥`
 1. [消防员家有马蜂窝报警结果自己上阵](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E5%AE%B6%E6%9C%89%E9%A9%AC%E8%9C%82%E7%AA%9D%E6%8A%A5%E8%AD%A6%E7%BB%93%E6%9E%9C%E8%87%AA%E5%B7%B1%E4%B8%8A%E9%98%B5%23&Refer=top) `342.8K 🔥`
 1. [与君歌](https://s.weibo.com/weibo?q=%E4%B8%8E%E5%90%9B%E6%AD%8C&Refer=top) `340.9K 🔥`
-1. [长期沉迷网游改变孩子大脑结构](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%9C%9F%E6%B2%89%E8%BF%B7%E7%BD%91%E6%B8%B8%E6%94%B9%E5%8F%98%E5%AD%A9%E5%AD%90%E5%A4%A7%E8%84%91%E7%BB%93%E6%9E%84%23&Refer=top) `340.2K 🔥`
 1. [自己活得还不如一只猫](https://s.weibo.com/weibo?q=%23%E8%87%AA%E5%B7%B1%E6%B4%BB%E5%BE%97%E8%BF%98%E4%B8%8D%E5%A6%82%E4%B8%80%E5%8F%AA%E7%8C%AB%23&Refer=top) `336.7K 🔥`
+1. [小伙徒步西藏遇棕熊民房内躲雨](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E5%BE%92%E6%AD%A5%E8%A5%BF%E8%97%8F%E9%81%87%E6%A3%95%E7%86%8A%E6%B0%91%E6%88%BF%E5%86%85%E8%BA%B2%E9%9B%A8%23&Refer=top) `335.1K 🔥`
 1. [律师称蔡徐坤专辑预售涉嫌违法](https://s.weibo.com/weibo?q=%23%E5%BE%8B%E5%B8%88%E7%A7%B0%E8%94%A1%E5%BE%90%E5%9D%A4%E4%B8%93%E8%BE%91%E9%A2%84%E5%94%AE%E6%B6%89%E5%AB%8C%E8%BF%9D%E6%B3%95%23&Refer=top) `332.9K 🔥`
 1. [城市更新不大规模强制性搬迁居民](https://s.weibo.com/weibo?q=%23%E5%9F%8E%E5%B8%82%E6%9B%B4%E6%96%B0%E4%B8%8D%E5%A4%A7%E8%A7%84%E6%A8%A1%E5%BC%BA%E5%88%B6%E6%80%A7%E6%90%AC%E8%BF%81%E5%B1%85%E6%B0%91%23&Refer=top) `331.8K 🔥`
 1. [拜登迎接美军遗体时偷偷看表](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E8%BF%8E%E6%8E%A5%E7%BE%8E%E5%86%9B%E9%81%97%E4%BD%93%E6%97%B6%E5%81%B7%E5%81%B7%E7%9C%8B%E8%A1%A8%23&Refer=top) `327.6K 🔥`
 1. [全面深化改革委员会第二十一次会议](https://s.weibo.com/weibo?q=%E5%85%A8%E9%9D%A2%E6%B7%B1%E5%8C%96%E6%94%B9%E9%9D%A9%E5%A7%94%E5%91%98%E4%BC%9A%E7%AC%AC%E4%BA%8C%E5%8D%81%E4%B8%80%E6%AC%A1%E4%BC%9A%E8%AE%AE&Refer=top) `322.6K 🔥`
-1. [小伙徒步西藏遇棕熊民房内躲雨](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E5%BE%92%E6%AD%A5%E8%A5%BF%E8%97%8F%E9%81%87%E6%A3%95%E7%86%8A%E6%B0%91%E6%88%BF%E5%86%85%E8%BA%B2%E9%9B%A8%23&Refer=top) `322.4K 🔥`
 1. [魔鬼鱼小时候能有多可爱](https://s.weibo.com/weibo?q=%23%E9%AD%94%E9%AC%BC%E9%B1%BC%E5%B0%8F%E6%97%B6%E5%80%99%E8%83%BD%E6%9C%89%E5%A4%9A%E5%8F%AF%E7%88%B1%23&Refer=top) `319.6K 🔥`
 1. [玉楼春](https://s.weibo.com/weibo?q=%E7%8E%89%E6%A5%BC%E6%98%A5&Refer=top) `318.2K 🔥`
 1. [北京义务教育双减工作发布会](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%B9%89%E5%8A%A1%E6%95%99%E8%82%B2%E5%8F%8C%E5%87%8F%E5%B7%A5%E4%BD%9C%E5%8F%91%E5%B8%83%E4%BC%9A%23&Refer=top) `315.1K 🔥`
+1. [乔七七当爹](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%83%E4%B8%83%E5%BD%93%E7%88%B9%23&Refer=top) `314.6K 🔥`
 1. [夏末日落有多浪漫](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E6%9C%AB%E6%97%A5%E8%90%BD%E6%9C%89%E5%A4%9A%E6%B5%AA%E6%BC%AB%23&Refer=top) `313.9K 🔥`
 1. [中秋人类高质量月饼](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%A7%8B%E4%BA%BA%E7%B1%BB%E9%AB%98%E8%B4%A8%E9%87%8F%E6%9C%88%E9%A5%BC%23&Refer=top) `297.8K 🔥`
 1. [乔二强马素芹重逢](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%BA%8C%E5%BC%BA%E9%A9%AC%E7%B4%A0%E8%8A%B9%E9%87%8D%E9%80%A2%23&Refer=top) `296.7K 🔥`
@@ -223,14 +224,15 @@
 1. [婆婆的镯子婆媳关系](https://s.weibo.com/weibo?q=%23%E5%A9%86%E5%A9%86%E7%9A%84%E9%95%AF%E5%AD%90%E5%A9%86%E5%AA%B3%E5%85%B3%E7%B3%BB%23&Refer=top) `292.3K 🔥`
 1. [内蒙古一高校为新生准备400碗下车面](https://s.weibo.com/weibo?q=%23%E5%86%85%E8%92%99%E5%8F%A4%E4%B8%80%E9%AB%98%E6%A0%A1%E4%B8%BA%E6%96%B0%E7%94%9F%E5%87%86%E5%A4%87400%E7%A2%97%E4%B8%8B%E8%BD%A6%E9%9D%A2%23&Refer=top) `289.8K 🔥`
 1. [日本新冠无需住院标准被曝存问题](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%96%B0%E5%86%A0%E6%97%A0%E9%9C%80%E4%BD%8F%E9%99%A2%E6%A0%87%E5%87%86%E8%A2%AB%E6%9B%9D%E5%AD%98%E9%97%AE%E9%A2%98%23&Refer=top) `285.4K 🔥`
+1. [鬼吹灯之云南虫谷观后感](https://s.weibo.com/weibo?q=%23%E9%AC%BC%E5%90%B9%E7%81%AF%E4%B9%8B%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E8%A7%82%E5%90%8E%E6%84%9F%23&Refer=top) `285.0K 🔥`
 1. [家长说过最伤人的话](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%95%BF%E8%AF%B4%E8%BF%87%E6%9C%80%E4%BC%A4%E4%BA%BA%E7%9A%84%E8%AF%9D%23&Refer=top) `275.0K 🔥`
 1. [苏筱的理想之城](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%AD%B1%E7%9A%84%E7%90%86%E6%83%B3%E4%B9%8B%E5%9F%8E%23&Refer=top) `274.9K 🔥`
 1. [当扫黑风暴遇见云南虫谷](https://s.weibo.com/weibo?q=%23%E5%BD%93%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4%E9%81%87%E8%A7%81%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%23&Refer=top) `274.4K 🔥`
 1. [孙俪配音vlog](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%BF%AA%E9%85%8D%E9%9F%B3vlog%23&Refer=top) `274.3K 🔥`
+1. [广州实施二手房参考价](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%AE%9E%E6%96%BD%E4%BA%8C%E6%89%8B%E6%88%BF%E5%8F%82%E8%80%83%E4%BB%B7%23&Refer=top) `274.0K 🔥`
 1. [家长的疏忽是儿童走失的主要原因](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%95%BF%E7%9A%84%E7%96%8F%E5%BF%BD%E6%98%AF%E5%84%BF%E7%AB%A5%E8%B5%B0%E5%A4%B1%E7%9A%84%E4%B8%BB%E8%A6%81%E5%8E%9F%E5%9B%A0%23&Refer=top) `262.5K 🔥`
 1. [黄继光战友回忆抗美援朝](https://s.weibo.com/weibo?q=%23%E9%BB%84%E7%BB%A7%E5%85%89%E6%88%98%E5%8F%8B%E5%9B%9E%E5%BF%86%E6%8A%97%E7%BE%8E%E6%8F%B4%E6%9C%9D%23&Refer=top) `262.4K 🔥`
 1. [周生如故连麦直播](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E5%A6%82%E6%95%85%E8%BF%9E%E9%BA%A6%E7%9B%B4%E6%92%AD%23&Refer=top) `259.4K 🔥`
-1. [广州实施二手房参考价](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%AE%9E%E6%96%BD%E4%BA%8C%E6%89%8B%E6%88%BF%E5%8F%82%E8%80%83%E4%BB%B7%23&Refer=top) `254.4K 🔥`
 1. [辽篮续约赵继伟](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E7%AF%AE%E7%BB%AD%E7%BA%A6%E8%B5%B5%E7%BB%A7%E4%BC%9F%23&Refer=top) `253.9K 🔥`
 1. [丁真的山谷音乐会](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%E7%9A%84%E5%B1%B1%E8%B0%B7%E9%9F%B3%E4%B9%90%E4%BC%9A&Refer=top) `253.9K 🔥`
 1. [重紫慕玉撑伞定妆照](https://s.weibo.com/weibo?q=%23%E9%87%8D%E7%B4%AB%E6%85%95%E7%8E%89%E6%92%91%E4%BC%9E%E5%AE%9A%E5%A6%86%E7%85%A7%23&Refer=top) `252.4K 🔥`
@@ -266,7 +268,7 @@
 1. [怎样克服开学焦虑](https://s.weibo.com/weibo?q=%23%E6%80%8E%E6%A0%B7%E5%85%8B%E6%9C%8D%E5%BC%80%E5%AD%A6%E7%84%A6%E8%99%91%23&Refer=top) `50.6K 🔥`
 1. [3分钟回顾美国20年阿富汗战争](https://s.weibo.com/weibo?q=%233%E5%88%86%E9%92%9F%E5%9B%9E%E9%A1%BE%E7%BE%8E%E5%9B%BD20%E5%B9%B4%E9%98%BF%E5%AF%8C%E6%B1%97%E6%88%98%E4%BA%89%23&Refer=top) `50.4K 🔥`
 
-数据更新于 2021-08-31 23:08:17
+数据更新于 2021-08-31 23:09:46
 
 <!-- END -->
 
