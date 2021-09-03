@@ -59,14 +59,14 @@
 1. [顶楼3](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC3&Refer=top) `187.6K 🔥`
 1. [德云斗笑社延期](https://s.weibo.com/weibo?q=%E5%BE%B7%E4%BA%91%E6%96%97%E7%AC%91%E7%A4%BE%E5%BB%B6%E6%9C%9F&Refer=top) `186.9K 🔥`
 1. [盲足队员的鼻梁没有一个完好的](https://s.weibo.com/weibo?q=%23%E7%9B%B2%E8%B6%B3%E9%98%9F%E5%91%98%E7%9A%84%E9%BC%BB%E6%A2%81%E6%B2%A1%E6%9C%89%E4%B8%80%E4%B8%AA%E5%AE%8C%E5%A5%BD%E7%9A%84%23&Refer=top) `178.5K 🔥`
-1. [唐宫夜宴中国女团天花板](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AE%AB%E5%A4%9C%E5%AE%B4%E4%B8%AD%E5%9B%BD%E5%A5%B3%E5%9B%A2%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `97.6K 🔥`
-1. [会道歉的爸爸有多幸福](https://s.weibo.com/weibo?q=%23%E4%BC%9A%E9%81%93%E6%AD%89%E7%9A%84%E7%88%B8%E7%88%B8%E6%9C%89%E5%A4%9A%E5%B9%B8%E7%A6%8F%23&Refer=top) `64.9K 🔥`
-1. [美军撤离阿富汗前射击平民画面曝光](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B%E6%92%A4%E7%A6%BB%E9%98%BF%E5%AF%8C%E6%B1%97%E5%89%8D%E5%B0%84%E5%87%BB%E5%B9%B3%E6%B0%91%E7%94%BB%E9%9D%A2%E6%9B%9D%E5%85%89%23&Refer=top) `51.8K 🔥`
-1. [外地人在新疆当老师有多难](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%9C%B0%E4%BA%BA%E5%9C%A8%E6%96%B0%E7%96%86%E5%BD%93%E8%80%81%E5%B8%88%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `51.6K 🔥`
-1. [乔四美戚成钢开书店](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E6%88%9A%E6%88%90%E9%92%A2%E5%BC%80%E4%B9%A6%E5%BA%97%23&Refer=top) `42.0K 🔥`
+1. [唐宫夜宴中国女团天花板](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AE%AB%E5%A4%9C%E5%AE%B4%E4%B8%AD%E5%9B%BD%E5%A5%B3%E5%9B%A2%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `131.6K 🔥`
+1. [会道歉的爸爸有多幸福](https://s.weibo.com/weibo?q=%23%E4%BC%9A%E9%81%93%E6%AD%89%E7%9A%84%E7%88%B8%E7%88%B8%E6%9C%89%E5%A4%9A%E5%B9%B8%E7%A6%8F%23&Refer=top) `76.0K 🔥`
+1. [美军撤离阿富汗前射击平民画面曝光](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B%E6%92%A4%E7%A6%BB%E9%98%BF%E5%AF%8C%E6%B1%97%E5%89%8D%E5%B0%84%E5%87%BB%E5%B9%B3%E6%B0%91%E7%94%BB%E9%9D%A2%E6%9B%9D%E5%85%89%23&Refer=top) `59.5K 🔥`
+1. [外地人在新疆当老师有多难](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%9C%B0%E4%BA%BA%E5%9C%A8%E6%96%B0%E7%96%86%E5%BD%93%E8%80%81%E5%B8%88%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `58.9K 🔥`
+1. [乔四美戚成钢开书店](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E6%88%9A%E6%88%90%E9%92%A2%E5%BC%80%E4%B9%A6%E5%BA%97%23&Refer=top) `54.7K 🔥`
 1. [东京残奥会](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E4%BC%9A%23&Refer=top) `13.8K 🔥`
 
-数据更新于 2021-09-04 06:15:00
+数据更新于 2021-09-04 06:27:03
 
 <!-- END -->
 
