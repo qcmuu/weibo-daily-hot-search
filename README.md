@@ -7,14 +7,14 @@
 <!-- BEGIN -->
 
 1. [喜茶店员拿错饮料顾客喝下后入院洗胃](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%BA%97%E5%91%98%E6%8B%BF%E9%94%99%E9%A5%AE%E6%96%99%E9%A1%BE%E5%AE%A2%E5%96%9D%E4%B8%8B%E5%90%8E%E5%85%A5%E9%99%A2%E6%B4%97%E8%83%83%23&Refer=top) `2.2M 🔥`
-1. [喜茶发文致歉](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%8F%91%E6%96%87%E8%87%B4%E6%AD%89%23&Refer=top) `1.2M 🔥`
+1. [喜茶发文致歉](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%8F%91%E6%96%87%E8%87%B4%E6%AD%89%23&Refer=top) `1.4M 🔥`
 1. [人类高质量宵夜](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E9%AB%98%E8%B4%A8%E9%87%8F%E5%AE%B5%E5%A4%9C%23&Refer=top) `1.2M 🔥`
+1. [钢铁厂工人被烧红的钢条击倒](https://s.weibo.com/weibo?q=%23%E9%92%A2%E9%93%81%E5%8E%82%E5%B7%A5%E4%BA%BA%E8%A2%AB%E7%83%A7%E7%BA%A2%E7%9A%84%E9%92%A2%E6%9D%A1%E5%87%BB%E5%80%92%23&Refer=top) `1.1M 🔥`
 1. [非师范生有必要考教资吗](https://s.weibo.com/weibo?q=%23%E9%9D%9E%E5%B8%88%E8%8C%83%E7%94%9F%E6%9C%89%E5%BF%85%E8%A6%81%E8%80%83%E6%95%99%E8%B5%84%E5%90%97%23&Refer=top) `983.3K 🔥`
-1. [钢铁厂工人被烧红的钢条击倒](https://s.weibo.com/weibo?q=%23%E9%92%A2%E9%93%81%E5%8E%82%E5%B7%A5%E4%BA%BA%E8%A2%AB%E7%83%A7%E7%BA%A2%E7%9A%84%E9%92%A2%E6%9D%A1%E5%87%BB%E5%80%92%23&Refer=top) `913.6K 🔥`
 1. [扫黑风暴](https://s.weibo.com/weibo?q=%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4&Refer=top) `847.6K 🔥`
 1. [乔四美经商头脑](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E7%BB%8F%E5%95%86%E5%A4%B4%E8%84%91%23&Refer=top) `736.9K 🔥`
+1. [桂林米粉有多难做](https://s.weibo.com/weibo?q=%23%E6%A1%82%E6%9E%97%E7%B1%B3%E7%B2%89%E6%9C%89%E5%A4%9A%E9%9A%BE%E5%81%9A%23&Refer=top) `605.5K 🔥`
 1. [军用卡车的含义太戳人了](https://s.weibo.com/weibo?q=%23%E5%86%9B%E7%94%A8%E5%8D%A1%E8%BD%A6%E7%9A%84%E5%90%AB%E4%B9%89%E5%A4%AA%E6%88%B3%E4%BA%BA%E4%BA%86%23&Refer=top) `601.3K 🔥`
-1. [桂林米粉有多难做](https://s.weibo.com/weibo?q=%23%E6%A1%82%E6%9E%97%E7%B1%B3%E7%B2%89%E6%9C%89%E5%A4%9A%E9%9A%BE%E5%81%9A%23&Refer=top) `594.8K 🔥`
 1. [立陶宛已召回其驻华大使](https://s.weibo.com/weibo?q=%23%E7%AB%8B%E9%99%B6%E5%AE%9B%E5%B7%B2%E5%8F%AC%E5%9B%9E%E5%85%B6%E9%A9%BB%E5%8D%8E%E5%A4%A7%E4%BD%BF%23&Refer=top) `593.5K 🔥`
 1. [北京两名女孩吸笑气1小时吸了200多瓶](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%B8%A4%E5%90%8D%E5%A5%B3%E5%AD%A9%E5%90%B8%E7%AC%91%E6%B0%941%E5%B0%8F%E6%97%B6%E5%90%B8%E4%BA%86200%E5%A4%9A%E7%93%B6%23&Refer=top) `585.7K 🔥`
 1. [气血不足的人有多累](https://s.weibo.com/weibo?q=%23%E6%B0%94%E8%A1%80%E4%B8%8D%E8%B6%B3%E7%9A%84%E4%BA%BA%E6%9C%89%E5%A4%9A%E7%B4%AF%23&Refer=top) `579.4K 🔥`
@@ -30,7 +30,7 @@
 1. [女子曝离职后遭公司广告内涵](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%9B%9D%E7%A6%BB%E8%81%8C%E5%90%8E%E9%81%AD%E5%85%AC%E5%8F%B8%E5%B9%BF%E5%91%8A%E5%86%85%E6%B6%B5%23&Refer=top) `418.7K 🔥`
 1. [残奥会中国队已夺184块奖牌](https://s.weibo.com/weibo?q=%23%E6%AE%8B%E5%A5%A5%E4%BC%9A%E4%B8%AD%E5%9B%BD%E9%98%9F%E5%B7%B2%E5%A4%BA184%E5%9D%97%E5%A5%96%E7%89%8C%23&Refer=top) `387.6K 🔥`
 1. [乔二强马素芹开饭店](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%BA%8C%E5%BC%BA%E9%A9%AC%E7%B4%A0%E8%8A%B9%E5%BC%80%E9%A5%AD%E5%BA%97%23&Refer=top) `367.6K 🔥`
-1. [大湾区全体社恐](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B9%BE%E5%8C%BA%E5%85%A8%E4%BD%93%E7%A4%BE%E6%81%90%23&Refer=top) `341.9K 🔥`
+1. [大湾区全体社恐](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B9%BE%E5%8C%BA%E5%85%A8%E4%BD%93%E7%A4%BE%E6%81%90%23&Refer=top) `342.0K 🔥`
 1. [土耳其少女坐大摆锤呕吐被呛死](https://s.weibo.com/weibo?q=%23%E5%9C%9F%E8%80%B3%E5%85%B6%E5%B0%91%E5%A5%B3%E5%9D%90%E5%A4%A7%E6%91%86%E9%94%A4%E5%91%95%E5%90%90%E8%A2%AB%E5%91%9B%E6%AD%BB%23&Refer=top) `338.6K 🔥`
 1. [2022研考时间确定](https://s.weibo.com/weibo?q=%232022%E7%A0%94%E8%80%83%E6%97%B6%E9%97%B4%E7%A1%AE%E5%AE%9A%23&Refer=top) `293.0K 🔥`
 1. [樊振东刘诗雯最新训练视频来了](https://s.weibo.com/weibo?q=%23%E6%A8%8A%E6%8C%AF%E4%B8%9C%E5%88%98%E8%AF%97%E9%9B%AF%E6%9C%80%E6%96%B0%E8%AE%AD%E7%BB%83%E8%A7%86%E9%A2%91%E6%9D%A5%E4%BA%86%23&Refer=top) `275.9K 🔥`
@@ -57,7 +57,7 @@
 1. [德云斗笑社延期](https://s.weibo.com/weibo?q=%E5%BE%B7%E4%BA%91%E6%96%97%E7%AC%91%E7%A4%BE%E5%BB%B6%E6%9C%9F&Refer=top) `186.9K 🔥`
 1. [盲足队员的鼻梁没有一个完好的](https://s.weibo.com/weibo?q=%23%E7%9B%B2%E8%B6%B3%E9%98%9F%E5%91%98%E7%9A%84%E9%BC%BB%E6%A2%81%E6%B2%A1%E6%9C%89%E4%B8%80%E4%B8%AA%E5%AE%8C%E5%A5%BD%E7%9A%84%23&Refer=top) `178.5K 🔥`
 
-数据更新于 2021-09-04 00:06:37
+数据更新于 2021-09-04 00:13:27
 
 <!-- END -->
 
