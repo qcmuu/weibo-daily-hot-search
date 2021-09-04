@@ -10,11 +10,11 @@
 1. [1岁女婴嘴唇上翻被查出白血病](https://s.weibo.com/weibo?q=%231%E5%B2%81%E5%A5%B3%E5%A9%B4%E5%98%B4%E5%94%87%E4%B8%8A%E7%BF%BB%E8%A2%AB%E6%9F%A5%E5%87%BA%E7%99%BD%E8%A1%80%E7%97%85%23&Refer=top) `4.2M 🔥`
 1. [用人单位涉嫌就业性别歧视将被约谈](https://s.weibo.com/weibo?q=%23%E7%94%A8%E4%BA%BA%E5%8D%95%E4%BD%8D%E6%B6%89%E5%AB%8C%E5%B0%B1%E4%B8%9A%E6%80%A7%E5%88%AB%E6%AD%A7%E8%A7%86%E5%B0%86%E8%A2%AB%E7%BA%A6%E8%B0%88%23&Refer=top) `3.2M 🔥`
 1. [央视主播说漂亮国这事干得可真不漂亮](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E8%AF%B4%E6%BC%82%E4%BA%AE%E5%9B%BD%E8%BF%99%E4%BA%8B%E5%B9%B2%E5%BE%97%E5%8F%AF%E7%9C%9F%E4%B8%8D%E6%BC%82%E4%BA%AE%23&Refer=top) `3.2M 🔥`
+1. [王者荣耀崩了](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%B4%A9%E4%BA%86&Refer=top) `2.6M 🔥`
 1. [人类高质量宵夜](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E9%AB%98%E8%B4%A8%E9%87%8F%E5%AE%B5%E5%A4%9C%23&Refer=top) `2.3M 🔥`
 1. [98年小伙误入传销当街抱交警求助](https://s.weibo.com/weibo?q=%2398%E5%B9%B4%E5%B0%8F%E4%BC%99%E8%AF%AF%E5%85%A5%E4%BC%A0%E9%94%80%E5%BD%93%E8%A1%97%E6%8A%B1%E4%BA%A4%E8%AD%A6%E6%B1%82%E5%8A%A9%23&Refer=top) `2.2M 🔥`
 1. [喜茶店员拿错饮料顾客喝下后入院洗胃](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%BA%97%E5%91%98%E6%8B%BF%E9%94%99%E9%A5%AE%E6%96%99%E9%A1%BE%E5%AE%A2%E5%96%9D%E4%B8%8B%E5%90%8E%E5%85%A5%E9%99%A2%E6%B4%97%E8%83%83%23&Refer=top) `2.2M 🔥`
 1. [旅客机上突发疾病遇9位华西专家](https://s.weibo.com/weibo?q=%23%E6%97%85%E5%AE%A2%E6%9C%BA%E4%B8%8A%E7%AA%81%E5%8F%91%E7%96%BE%E7%97%85%E9%81%879%E4%BD%8D%E5%8D%8E%E8%A5%BF%E4%B8%93%E5%AE%B6%23&Refer=top) `2.2M 🔥`
-1. [王者荣耀崩了](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%B4%A9%E4%BA%86&Refer=top) `1.9M 🔥`
 1. [女生因病休学一年后考上清华](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%9B%A0%E7%97%85%E4%BC%91%E5%AD%A6%E4%B8%80%E5%B9%B4%E5%90%8E%E8%80%83%E4%B8%8A%E6%B8%85%E5%8D%8E%23&Refer=top) `1.7M 🔥`
 1. [扫黑庆功宴一人一道家乡菜](https://s.weibo.com/weibo?q=%23%E6%89%AB%E9%BB%91%E5%BA%86%E5%8A%9F%E5%AE%B4%E4%B8%80%E4%BA%BA%E4%B8%80%E9%81%93%E5%AE%B6%E4%B9%A1%E8%8F%9C%23&Refer=top) `1.6M 🔥`
 1. [一生一世定档](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.6M 🔥`
@@ -152,6 +152,7 @@
 1. [乔家的儿女预告](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%AE%B6%E7%9A%84%E5%84%BF%E5%A5%B3%E9%A2%84%E5%91%8A%23&Refer=top) `244.4K 🔥`
 1. [街道办事处迷惑行为](https://s.weibo.com/weibo?q=%23%E8%A1%97%E9%81%93%E5%8A%9E%E4%BA%8B%E5%A4%84%E8%BF%B7%E6%83%91%E8%A1%8C%E4%B8%BA%23&Refer=top) `243.2K 🔥`
 1. [小乔丹加盟湖人](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%B9%94%E4%B8%B9%E5%8A%A0%E7%9B%9F%E6%B9%96%E4%BA%BA%23&Refer=top) `243.1K 🔥`
+1. [德州一小学迎13对双胞胎新生](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B7%9E%E4%B8%80%E5%B0%8F%E5%AD%A6%E8%BF%8E13%E5%AF%B9%E5%8F%8C%E8%83%9E%E8%83%8E%E6%96%B0%E7%94%9F%23&Refer=top) `241.4K 🔥`
 1. [看中餐厅看饿了](https://s.weibo.com/weibo?q=%E7%9C%8B%E4%B8%AD%E9%A4%90%E5%8E%85%E7%9C%8B%E9%A5%BF%E4%BA%86&Refer=top) `240.4K 🔥`
 1. [外地人在新疆当老师有多难](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%9C%B0%E4%BA%BA%E5%9C%A8%E6%96%B0%E7%96%86%E5%BD%93%E8%80%81%E5%B8%88%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `239.0K 🔥`
 1. [物业爬出9楼窗外拿灭火器灭火](https://s.weibo.com/weibo?q=%23%E7%89%A9%E4%B8%9A%E7%88%AC%E5%87%BA9%E6%A5%BC%E7%AA%97%E5%A4%96%E6%8B%BF%E7%81%AD%E7%81%AB%E5%99%A8%E7%81%AD%E7%81%AB%23&Refer=top) `236.2K 🔥`
@@ -166,7 +167,7 @@
 1. [宋清远人间清醒](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E6%B8%85%E8%BF%9C%E4%BA%BA%E9%97%B4%E6%B8%85%E9%86%92%23&Refer=top) `214.8K 🔥`
 1. [宋雨琦VaVa摇滚迪斯科舞台](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E9%9B%A8%E7%90%A6VaVa%E6%91%87%E6%BB%9A%E8%BF%AA%E6%96%AF%E7%A7%91%E8%88%9E%E5%8F%B0%23&Refer=top) `214.4K 🔥`
 1. [乔四美戚成钢开书店](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E6%88%9A%E6%88%90%E9%92%A2%E5%BC%80%E4%B9%A6%E5%BA%97%23&Refer=top) `214.2K 🔥`
-1. [德州一小学迎13对双胞胎新生](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B7%9E%E4%B8%80%E5%B0%8F%E5%AD%A6%E8%BF%8E13%E5%AF%B9%E5%8F%8C%E8%83%9E%E8%83%8E%E6%96%B0%E7%94%9F%23&Refer=top) `210.9K 🔥`
+1. [只有头和屁股的小狗](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E6%9C%89%E5%A4%B4%E5%92%8C%E5%B1%81%E8%82%A1%E7%9A%84%E5%B0%8F%E7%8B%97%23&Refer=top) `213.9K 🔥`
 1. [31省区市新增1例本土确诊](https://s.weibo.com/weibo?q=%2331%E7%9C%81%E5%8C%BA%E5%B8%82%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `208.1K 🔥`
 1. [31岁的郑涛残奥会4金4破纪录](https://s.weibo.com/weibo?q=%2331%E5%B2%81%E7%9A%84%E9%83%91%E6%B6%9B%E6%AE%8B%E5%A5%A5%E4%BC%9A4%E9%87%914%E7%A0%B4%E7%BA%AA%E5%BD%95%23&Refer=top) `208.0K 🔥`
 1. [原来遮龙寨族长是渡边太君](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%81%AE%E9%BE%99%E5%AF%A8%E6%97%8F%E9%95%BF%E6%98%AF%E6%B8%A1%E8%BE%B9%E5%A4%AA%E5%90%9B%23&Refer=top) `203.7K 🔥`
@@ -179,7 +180,6 @@
 1. [大有可为的我定档](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%9C%89%E5%8F%AF%E4%B8%BA%E7%9A%84%E6%88%91%E5%AE%9A%E6%A1%A3%23&Refer=top) `195.1K 🔥`
 1. [人类幼崽的胆子能有多大](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%B9%BC%E5%B4%BD%E7%9A%84%E8%83%86%E5%AD%90%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `194.8K 🔥`
 1. [1.7亿建的关公像再花1.55亿搬走](https://s.weibo.com/weibo?q=%231.7%E4%BA%BF%E5%BB%BA%E7%9A%84%E5%85%B3%E5%85%AC%E5%83%8F%E5%86%8D%E8%8A%B11.55%E4%BA%BF%E6%90%AC%E8%B5%B0%23&Refer=top) `192.0K 🔥`
-1. [只有头和屁股的小狗](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E6%9C%89%E5%A4%B4%E5%92%8C%E5%B1%81%E8%82%A1%E7%9A%84%E5%B0%8F%E7%8B%97%23&Refer=top) `190.2K 🔥`
 1. [刘翠青残奥女子200米T11夺冠](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%BF%A0%E9%9D%92%E6%AE%8B%E5%A5%A5%E5%A5%B3%E5%AD%90200%E7%B1%B3T11%E5%A4%BA%E5%86%A0%23&Refer=top) `188.4K 🔥`
 1. [印度电视台连线阿塔发言人被打脸](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E7%94%B5%E8%A7%86%E5%8F%B0%E8%BF%9E%E7%BA%BF%E9%98%BF%E5%A1%94%E5%8F%91%E8%A8%80%E4%BA%BA%E8%A2%AB%E6%89%93%E8%84%B8%23&Refer=top) `187.8K 🔥`
 1. [顶楼3](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC3&Refer=top) `187.6K 🔥`
@@ -206,7 +206,7 @@
 1. [宁静教丁真唱山歌](https://s.weibo.com/weibo?q=%23%E5%AE%81%E9%9D%99%E6%95%99%E4%B8%81%E7%9C%9F%E5%94%B1%E5%B1%B1%E6%AD%8C%23&Refer=top) `87.6K 🔥`
 1. [东京残奥会](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E4%BC%9A%23&Refer=top) `13.8K 🔥`
 
-数据更新于 2021-09-04 21:06:30
+数据更新于 2021-09-04 21:08:59
 
 <!-- END -->
 
