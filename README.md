@@ -7,10 +7,10 @@
 <!-- BEGIN -->
 
 1. [王者荣耀崩了](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%B4%A9%E4%BA%86%23&Refer=top) `2.5M 🔥`
+1. [央视曝职业学校收费乱象](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E8%81%8C%E4%B8%9A%E5%AD%A6%E6%A0%A1%E6%94%B6%E8%B4%B9%E4%B9%B1%E8%B1%A1%23&Refer=top) `1.5M 🔥`
 1. [男子半夜疼醒竟因蟑螂钻进耳朵](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%8D%8A%E5%A4%9C%E7%96%BC%E9%86%92%E7%AB%9F%E5%9B%A0%E8%9F%91%E8%9E%82%E9%92%BB%E8%BF%9B%E8%80%B3%E6%9C%B5%23&Refer=top) `1.4M 🔥`
 1. [一块月饼相当于一餐热卡需求](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%9D%97%E6%9C%88%E9%A5%BC%E7%9B%B8%E5%BD%93%E4%BA%8E%E4%B8%80%E9%A4%90%E7%83%AD%E5%8D%A1%E9%9C%80%E6%B1%82%23&Refer=top) `1.4M 🔥`
 1. [黑龙江致15死车祸遇难者家属发声](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E8%87%B415%E6%AD%BB%E8%BD%A6%E7%A5%B8%E9%81%87%E9%9A%BE%E8%80%85%E5%AE%B6%E5%B1%9E%E5%8F%91%E5%A3%B0%23&Refer=top) `1.3M 🔥`
-1. [央视曝职业学校收费乱象](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E8%81%8C%E4%B8%9A%E5%AD%A6%E6%A0%A1%E6%94%B6%E8%B4%B9%E4%B9%B1%E8%B1%A1%23&Refer=top) `1.3M 🔥`
 1. [手机居然被白鲸捡回来了](https://s.weibo.com/weibo?q=%23%E6%89%8B%E6%9C%BA%E5%B1%85%E7%84%B6%E8%A2%AB%E7%99%BD%E9%B2%B8%E6%8D%A1%E5%9B%9E%E6%9D%A5%E4%BA%86%23&Refer=top) `1.2M 🔥`
 1. [广州新增本土无症状1例](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E6%97%A0%E7%97%87%E7%8A%B61%E4%BE%8B%23&Refer=top) `871.1K 🔥`
 1. [千万别去有宠物的公司上班](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E5%88%AB%E5%8E%BB%E6%9C%89%E5%AE%A0%E7%89%A9%E7%9A%84%E5%85%AC%E5%8F%B8%E4%B8%8A%E7%8F%AD%23&Refer=top) `865.2K 🔥`
@@ -65,12 +65,13 @@
 1. [男子高铁偷拍乘务员裙底被抓现行](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E9%AB%98%E9%93%81%E5%81%B7%E6%8B%8D%E4%B9%98%E5%8A%A1%E5%91%98%E8%A3%99%E5%BA%95%E8%A2%AB%E6%8A%93%E7%8E%B0%E8%A1%8C%23&Refer=top) `119.8K 🔥`
 1. [8年老兵退伍与母亲相拥而泣](https://s.weibo.com/weibo?q=%238%E5%B9%B4%E8%80%81%E5%85%B5%E9%80%80%E4%BC%8D%E4%B8%8E%E6%AF%8D%E4%BA%B2%E7%9B%B8%E6%8B%A5%E8%80%8C%E6%B3%A3%23&Refer=top) `119.0K 🔥`
 1. [勃利县交通事故15名遇难者身份已确定](https://s.weibo.com/weibo?q=%23%E5%8B%83%E5%88%A9%E5%8E%BF%E4%BA%A4%E9%80%9A%E4%BA%8B%E6%95%8515%E5%90%8D%E9%81%87%E9%9A%BE%E8%80%85%E8%BA%AB%E4%BB%BD%E5%B7%B2%E7%A1%AE%E5%AE%9A%23&Refer=top) `118.7K 🔥`
-1. [被许嵩薛之谦戴佩妮跳舞笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%AE%B8%E5%B5%A9%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%88%B4%E4%BD%A9%E5%A6%AE%E8%B7%B3%E8%88%9E%E7%AC%91%E6%AD%BB%23&Refer=top) `110.2K 🔥`
-1. [十堰一地5000群众转移](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E4%B8%80%E5%9C%B05000%E7%BE%A4%E4%BC%97%E8%BD%AC%E7%A7%BB%23&Refer=top) `99.6K 🔥`
-1. [刘宪华popping创意](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%AA%E5%8D%8Epopping%E5%88%9B%E6%84%8F%23&Refer=top) `88.5K 🔥`
+1. [被许嵩薛之谦戴佩妮跳舞笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%AE%B8%E5%B5%A9%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%88%B4%E4%BD%A9%E5%A6%AE%E8%B7%B3%E8%88%9E%E7%AC%91%E6%AD%BB%23&Refer=top) `115.9K 🔥`
+1. [十堰一地5000群众转移](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E4%B8%80%E5%9C%B05000%E7%BE%A4%E4%BC%97%E8%BD%AC%E7%A7%BB%23&Refer=top) `105.3K 🔥`
+1. [刘宪华popping创意](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%AA%E5%8D%8Epopping%E5%88%9B%E6%84%8F%23&Refer=top) `96.1K 🔥`
+1. [毛不易若有缘由首唱舞台](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E4%B8%8D%E6%98%93%E8%8B%A5%E6%9C%89%E7%BC%98%E7%94%B1%E9%A6%96%E5%94%B1%E8%88%9E%E5%8F%B0%23&Refer=top) `72.0K 🔥`
 1. [日本为啥打死不认错](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%BA%E5%95%A5%E6%89%93%E6%AD%BB%E4%B8%8D%E8%AE%A4%E9%94%99%23&Refer=top) `20.1K 🔥`
 
-数据更新于 2021-09-05 07:35:05
+数据更新于 2021-09-05 07:39:26
 
 <!-- END -->
 
