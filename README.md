@@ -123,11 +123,11 @@
 1. [唐艺昕分享项南方同款金桔酱vlog](https://s.weibo.com/weibo?q=%23%E5%94%90%E8%89%BA%E6%98%95%E5%88%86%E4%BA%AB%E9%A1%B9%E5%8D%97%E6%96%B9%E5%90%8C%E6%AC%BE%E9%87%91%E6%A1%94%E9%85%B1vlog%23&Refer=top) `280.2K 🔥`
 1. [胡彦斌看得好通透](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%BD%A6%E6%96%8C%E7%9C%8B%E5%BE%97%E5%A5%BD%E9%80%9A%E9%80%8F%23&Refer=top) `272.7K 🔥`
 1. [撒贝宁尼格买提是有多能聊](https://s.weibo.com/weibo?q=%23%E6%92%92%E8%B4%9D%E5%AE%81%E5%B0%BC%E6%A0%BC%E4%B9%B0%E6%8F%90%E6%98%AF%E6%9C%89%E5%A4%9A%E8%83%BD%E8%81%8A%23&Refer=top) `266.9K 🔥`
+1. [小孩子多害怕扎针](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E5%AD%90%E5%A4%9A%E5%AE%B3%E6%80%95%E6%89%8E%E9%92%88%23&Refer=top) `265.2K 🔥`
 1. [白宇演技代入感](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%AE%87%E6%BC%94%E6%8A%80%E4%BB%A3%E5%85%A5%E6%84%9F%23&Refer=top) `262.8K 🔥`
 1. [我的砍价女王太好笑了吧](https://s.weibo.com/weibo?q=%23%E6%88%91%E7%9A%84%E7%A0%8D%E4%BB%B7%E5%A5%B3%E7%8E%8B%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%E5%90%A7%23&Refer=top) `259.8K 🔥`
 1. [男子10米高桥上练跳水被罚200元](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%9010%E7%B1%B3%E9%AB%98%E6%A1%A5%E4%B8%8A%E7%BB%83%E8%B7%B3%E6%B0%B4%E8%A2%AB%E7%BD%9A200%E5%85%83%23&Refer=top) `259.1K 🔥`
 1. [何洛洛无效喂小熊猫](https://s.weibo.com/weibo?q=%23%E4%BD%95%E6%B4%9B%E6%B4%9B%E6%97%A0%E6%95%88%E5%96%82%E5%B0%8F%E7%86%8A%E7%8C%AB%23&Refer=top) `257.0K 🔥`
-1. [小孩子多害怕扎针](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E5%AD%90%E5%A4%9A%E5%AE%B3%E6%80%95%E6%89%8E%E9%92%88%23&Refer=top) `255.8K 🔥`
 1. [羽毛球男子双打WH级中国队夺金](https://s.weibo.com/weibo?q=%23%E7%BE%BD%E6%AF%9B%E7%90%83%E7%94%B7%E5%AD%90%E5%8F%8C%E6%89%93WH%E7%BA%A7%E4%B8%AD%E5%9B%BD%E9%98%9F%E5%A4%BA%E9%87%91%23&Refer=top) `253.5K 🔥`
 1. [东京残奥闭幕式中国旗手张雪梅](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E9%97%AD%E5%B9%95%E5%BC%8F%E4%B8%AD%E5%9B%BD%E6%97%97%E6%89%8B%E5%BC%A0%E9%9B%AA%E6%A2%85%23&Refer=top) `253.1K 🔥`
 1. [东京残奥闭幕式](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E9%97%AD%E5%B9%95%E5%BC%8F%23&Refer=top) `246.2K 🔥`
@@ -161,6 +161,7 @@
 1. [1950他们正年轻票房捐老兵](https://s.weibo.com/weibo?q=%231950%E4%BB%96%E4%BB%AC%E6%AD%A3%E5%B9%B4%E8%BD%BB%E7%A5%A8%E6%88%BF%E6%8D%90%E8%80%81%E5%85%B5%23&Refer=top) `160.2K 🔥`
 1. [德州一小学迎13对双胞胎新生](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B7%9E%E4%B8%80%E5%B0%8F%E5%AD%A6%E8%BF%8E13%E5%AF%B9%E5%8F%8C%E8%83%9E%E8%83%8E%E6%96%B0%E7%94%9F%23&Refer=top) `154.8K 🔥`
 1. [刘伯明介绍太空餐厅](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E4%BB%8B%E7%BB%8D%E5%A4%AA%E7%A9%BA%E9%A4%90%E5%8E%85%23&Refer=top) `146.3K 🔥`
+1. [谢霆锋退出加拿大国籍](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E9%9C%86%E9%94%8B%E9%80%80%E5%87%BA%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%9B%BD%E7%B1%8D%23&Refer=top) `139.5K 🔥`
 1. [46名奥运健儿获全国五一劳动奖](https://s.weibo.com/weibo?q=%2346%E5%90%8D%E5%A5%A5%E8%BF%90%E5%81%A5%E5%84%BF%E8%8E%B7%E5%85%A8%E5%9B%BD%E4%BA%94%E4%B8%80%E5%8A%B3%E5%8A%A8%E5%A5%96%23&Refer=top) `135.9K 🔥`
 1. [章子怡新片阵容曝光](https://s.weibo.com/weibo?q=%23%E7%AB%A0%E5%AD%90%E6%80%A1%E6%96%B0%E7%89%87%E9%98%B5%E5%AE%B9%E6%9B%9D%E5%85%89%23&Refer=top) `135.1K 🔥`
 1. [说唱听我的双子星绑定赛](https://s.weibo.com/weibo?q=%23%E8%AF%B4%E5%94%B1%E5%90%AC%E6%88%91%E7%9A%84%E5%8F%8C%E5%AD%90%E6%98%9F%E7%BB%91%E5%AE%9A%E8%B5%9B%23&Refer=top) `133.2K 🔥`
@@ -178,7 +179,7 @@
 1. [毛不易若有缘由首唱舞台](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E4%B8%8D%E6%98%93%E8%8B%A5%E6%9C%89%E7%BC%98%E7%94%B1%E9%A6%96%E5%94%B1%E8%88%9E%E5%8F%B0%23&Refer=top) `99.6K 🔥`
 1. [黄潇风雨行舞台意境](https://s.weibo.com/weibo?q=%E9%BB%84%E6%BD%87%E9%A3%8E%E9%9B%A8%E8%A1%8C%E8%88%9E%E5%8F%B0%E6%84%8F%E5%A2%83&Refer=top) `75.2K 🔥`
 
-数据更新于 2021-09-05 19:12:24
+数据更新于 2021-09-05 19:21:24
 
 <!-- END -->
 
