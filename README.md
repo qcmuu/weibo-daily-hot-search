@@ -63,7 +63,7 @@
 1. [蓝盈莹妈妈沉浸式追婆婆的镯子](https://s.weibo.com/weibo?q=%23%E8%93%9D%E7%9B%88%E8%8E%B9%E5%A6%88%E5%A6%88%E6%B2%89%E6%B5%B8%E5%BC%8F%E8%BF%BD%E5%A9%86%E5%A9%86%E7%9A%84%E9%95%AF%E5%AD%90%23&Refer=top) `83.9K 🔥`
 1. [43个国家和地区报告感染缪毒株病例](https://s.weibo.com/weibo?q=%2343%E4%B8%AA%E5%9B%BD%E5%AE%B6%E5%92%8C%E5%9C%B0%E5%8C%BA%E6%8A%A5%E5%91%8A%E6%84%9F%E6%9F%93%E7%BC%AA%E6%AF%92%E6%A0%AA%E7%97%85%E4%BE%8B%23&Refer=top) `17.6K 🔥`
 
-数据更新于 2021-09-07 02:28:03
+数据更新于 2021-09-07 02:35:41
 
 <!-- END -->
 
