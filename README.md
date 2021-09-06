@@ -58,9 +58,10 @@
 1. [张真源清唱匆匆那年](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%9C%9F%E6%BA%90%E6%B8%85%E5%94%B1%E5%8C%86%E5%8C%86%E9%82%A3%E5%B9%B4%23&Refer=top) `137.7K 🔥`
 1. [全运会](https://s.weibo.com/weibo?q=%E5%85%A8%E8%BF%90%E4%BC%9A&Refer=top) `137.1K 🔥`
 1. [时宜搭讪](https://s.weibo.com/weibo?q=%23%E6%97%B6%E5%AE%9C%E6%90%AD%E8%AE%AA%23&Refer=top) `133.8K 🔥`
-1. [见过最离谱的厕所设计](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E7%A6%BB%E8%B0%B1%E7%9A%84%E5%8E%95%E6%89%80%E8%AE%BE%E8%AE%A1%23&Refer=top) `55.3K 🔥`
+1. [见过最离谱的厕所设计](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E7%A6%BB%E8%B0%B1%E7%9A%84%E5%8E%95%E6%89%80%E8%AE%BE%E8%AE%A1%23&Refer=top) `60.9K 🔥`
+1. [学生时代相互暗恋图鉴](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E7%94%9F%E6%97%B6%E4%BB%A3%E7%9B%B8%E4%BA%92%E6%9A%97%E6%81%8B%E5%9B%BE%E9%89%B4%23&Refer=top) `53.2K 🔥`
 
-数据更新于 2021-09-07 01:36:14
+数据更新于 2021-09-07 01:39:21
 
 <!-- END -->
 
