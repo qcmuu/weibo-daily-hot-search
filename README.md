@@ -43,6 +43,7 @@
 1. [路怒症被孩子治好了](https://s.weibo.com/weibo?q=%23%E8%B7%AF%E6%80%92%E7%97%87%E8%A2%AB%E5%AD%A9%E5%AD%90%E6%B2%BB%E5%A5%BD%E4%BA%86%23&Refer=top) `572.3K 🔥`
 1. [北大两次发函要求福建一学校更名](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E4%B8%A4%E6%AC%A1%E5%8F%91%E5%87%BD%E8%A6%81%E6%B1%82%E7%A6%8F%E5%BB%BA%E4%B8%80%E5%AD%A6%E6%A0%A1%E6%9B%B4%E5%90%8D%23&Refer=top) `567.7K 🔥`
 1. [吴磊新剧酒瓶砸头卖电脑](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E6%96%B0%E5%89%A7%E9%85%92%E7%93%B6%E7%A0%B8%E5%A4%B4%E5%8D%96%E7%94%B5%E8%84%91%23&Refer=top) `566.0K 🔥`
+1. [三人组的友谊能长久吗](https://s.weibo.com/weibo?q=%23%E4%B8%89%E4%BA%BA%E7%BB%84%E7%9A%84%E5%8F%8B%E8%B0%8A%E8%83%BD%E9%95%BF%E4%B9%85%E5%90%97%23&Refer=top) `565.3K 🔥`
 1. [把削发器当成了梳子](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E5%89%8A%E5%8F%91%E5%99%A8%E5%BD%93%E6%88%90%E4%BA%86%E6%A2%B3%E5%AD%90%23&Refer=top) `550.4K 🔥`
 1. [云南虫谷雪莉杨炸死不死虫](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E9%9B%AA%E8%8E%89%E6%9D%A8%E7%82%B8%E6%AD%BB%E4%B8%8D%E6%AD%BB%E8%99%AB%23&Refer=top) `542.6K 🔥`
 1. [鱼儿的典藏版皮肤](https://s.weibo.com/weibo?q=%23%E9%B1%BC%E5%84%BF%E7%9A%84%E5%85%B8%E8%97%8F%E7%89%88%E7%9A%AE%E8%82%A4%23&Refer=top) `539.4K 🔥`
@@ -94,7 +95,6 @@
 1. [红衣闪婆笑声太吓人了](https://s.weibo.com/weibo?q=%23%E7%BA%A2%E8%A1%A3%E9%97%AA%E5%A9%86%E7%AC%91%E5%A3%B0%E5%A4%AA%E5%90%93%E4%BA%BA%E4%BA%86%23&Refer=top) `254.0K 🔥`
 1. [上美影厂的冬奥会宣传片](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E7%BE%8E%E5%BD%B1%E5%8E%82%E7%9A%84%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%AE%A3%E4%BC%A0%E7%89%87%23&Refer=top) `249.4K 🔥`
 1. [周生辰开窍了](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E8%BE%B0%E5%BC%80%E7%AA%8D%E4%BA%86%23&Refer=top) `246.5K 🔥`
-1. [三人组的友谊能长久吗](https://s.weibo.com/weibo?q=%23%E4%B8%89%E4%BA%BA%E7%BB%84%E7%9A%84%E5%8F%8B%E8%B0%8A%E8%83%BD%E9%95%BF%E4%B9%85%E5%90%97%23&Refer=top) `242.5K 🔥`
 1. [林更新吴奇隆戏中戏](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%9B%B4%E6%96%B0%E5%90%B4%E5%A5%87%E9%9A%86%E6%88%8F%E4%B8%AD%E6%88%8F%23&Refer=top) `235.4K 🔥`
 1. [如何评价云南虫谷的村民线](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E8%AF%84%E4%BB%B7%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E7%9A%84%E6%9D%91%E6%B0%91%E7%BA%BF%23&Refer=top) `232.4K 🔥`
 1. [王一博和机器人聊天太好笑了](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%92%8C%E6%9C%BA%E5%99%A8%E4%BA%BA%E8%81%8A%E5%A4%A9%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `231.5K 🔥`
@@ -121,7 +121,7 @@
 1. [时宜搭讪](https://s.weibo.com/weibo?q=%23%E6%97%B6%E5%AE%9C%E6%90%AD%E8%AE%AA%23&Refer=top) `133.8K 🔥`
 1. [43个国家和地区报告感染缪毒株病例](https://s.weibo.com/weibo?q=%2343%E4%B8%AA%E5%9B%BD%E5%AE%B6%E5%92%8C%E5%9C%B0%E5%8C%BA%E6%8A%A5%E5%91%8A%E6%84%9F%E6%9F%93%E7%BC%AA%E6%AF%92%E6%A0%AA%E7%97%85%E4%BE%8B%23&Refer=top) `45.8K 🔥`
 
-数据更新于 2021-09-07 13:55:37
+数据更新于 2021-09-07 14:05:09
 
 <!-- END -->
 
