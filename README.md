@@ -15,7 +15,7 @@
 1. [阿富汗塔利班新政府官员名单公布](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E6%96%B0%E6%94%BF%E5%BA%9C%E5%AE%98%E5%91%98%E5%90%8D%E5%8D%95%E5%85%AC%E5%B8%83%23&Refer=top) `1.0M 🔥`
 1. [蛏子天生就要被吃掉](https://s.weibo.com/weibo?q=%23%E8%9B%8F%E5%AD%90%E5%A4%A9%E7%94%9F%E5%B0%B1%E8%A6%81%E8%A2%AB%E5%90%83%E6%8E%89%23&Refer=top) `913.9K 🔥`
 1. [张家齐陈芋汐模仿许昕打球](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AE%B6%E9%BD%90%E9%99%88%E8%8A%8B%E6%B1%90%E6%A8%A1%E4%BB%BF%E8%AE%B8%E6%98%95%E6%89%93%E7%90%83%23&Refer=top) `904.0K 🔥`
-1. [相亲相到了初恋](https://s.weibo.com/weibo?q=%23%E7%9B%B8%E4%BA%B2%E7%9B%B8%E5%88%B0%E4%BA%86%E5%88%9D%E6%81%8B%23&Refer=top) `847.6K 🔥`
+1. [相亲相到了初恋](https://s.weibo.com/weibo?q=%23%E7%9B%B8%E4%BA%B2%E7%9B%B8%E5%88%B0%E4%BA%86%E5%88%9D%E6%81%8B%23&Refer=top) `880.8K 🔥`
 1. [阿富汗塔利班宣布组建新政府](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%AE%A3%E5%B8%83%E7%BB%84%E5%BB%BA%E6%96%B0%E6%94%BF%E5%BA%9C%23&Refer=top) `832.8K 🔥`
 1. [男子箱子内藏女尸打车被识破](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%AE%B1%E5%AD%90%E5%86%85%E8%97%8F%E5%A5%B3%E5%B0%B8%E6%89%93%E8%BD%A6%E8%A2%AB%E8%AF%86%E7%A0%B4%23&Refer=top) `774.1K 🔥`
 1. [国足丢球](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B3%E4%B8%A2%E7%90%83&Refer=top) `730.6K 🔥`
@@ -36,11 +36,11 @@
 1. [广东人的冰箱是什么样的](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E4%BA%BA%E7%9A%84%E5%86%B0%E7%AE%B1%E6%98%AF%E4%BB%80%E4%B9%88%E6%A0%B7%E7%9A%84%23&Refer=top) `407.5K 🔥`
 1. [国足vs日本大名单](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B3vs%E6%97%A5%E6%9C%AC%E5%A4%A7%E5%90%8D%E5%8D%95&Refer=top) `353.6K 🔥`
 1. [何广智的段子太好笑了](https://s.weibo.com/weibo?q=%23%E4%BD%95%E5%B9%BF%E6%99%BA%E7%9A%84%E6%AE%B5%E5%AD%90%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `330.1K 🔥`
+1. [男生用东西有多费](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E7%94%A8%E4%B8%9C%E8%A5%BF%E6%9C%89%E5%A4%9A%E8%B4%B9%23&Refer=top) `325.3K 🔥`
 1. [全红婵的亲笔签名](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E7%9A%84%E4%BA%B2%E7%AC%94%E7%AD%BE%E5%90%8D%23&Refer=top) `314.1K 🔥`
 1. [回学校发现宿舍床没了](https://s.weibo.com/weibo?q=%23%E5%9B%9E%E5%AD%A6%E6%A0%A1%E5%8F%91%E7%8E%B0%E5%AE%BF%E8%88%8D%E5%BA%8A%E6%B2%A1%E4%BA%86%23&Refer=top) `312.0K 🔥`
+1. [研究生选对导师有多重要](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E9%80%89%E5%AF%B9%E5%AF%BC%E5%B8%88%E6%9C%89%E5%A4%9A%E9%87%8D%E8%A6%81%23&Refer=top) `311.2K 🔥`
 1. [无线网密码可以有多离谱](https://s.weibo.com/weibo?q=%23%E6%97%A0%E7%BA%BF%E7%BD%91%E5%AF%86%E7%A0%81%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E7%A6%BB%E8%B0%B1%23&Refer=top) `305.2K 🔥`
-1. [男生用东西有多费](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E7%94%A8%E4%B8%9C%E8%A5%BF%E6%9C%89%E5%A4%9A%E8%B4%B9%23&Refer=top) `305.0K 🔥`
-1. [研究生选对导师有多重要](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E9%80%89%E5%AF%B9%E5%AF%BC%E5%B8%88%E6%9C%89%E5%A4%9A%E9%87%8D%E8%A6%81%23&Refer=top) `299.6K 🔥`
 1. [汪文斌正告台湾当局](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E6%96%87%E6%96%8C%E6%AD%A3%E5%91%8A%E5%8F%B0%E6%B9%BE%E5%BD%93%E5%B1%80%23&Refer=top) `291.9K 🔥`
 1. [重庆警犬入学](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E8%AD%A6%E7%8A%AC%E5%85%A5%E5%AD%A6%23&Refer=top) `279.2K 🔥`
 1. [深圳赛格广场大厦恢复使用](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E8%B5%9B%E6%A0%BC%E5%B9%BF%E5%9C%BA%E5%A4%A7%E5%8E%A6%E6%81%A2%E5%A4%8D%E4%BD%BF%E7%94%A8%23&Refer=top) `263.9K 🔥`
@@ -66,13 +66,14 @@
 1. [回到家被治愈的瞬间](https://s.weibo.com/weibo?q=%23%E5%9B%9E%E5%88%B0%E5%AE%B6%E8%A2%AB%E6%B2%BB%E6%84%88%E7%9A%84%E7%9E%AC%E9%97%B4%23&Refer=top) `133.6K 🔥`
 1. [我国超9.69亿人完成新冠疫苗全程接种](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E8%B6%859.69%E4%BA%BF%E4%BA%BA%E5%AE%8C%E6%88%90%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%85%A8%E7%A8%8B%E6%8E%A5%E7%A7%8D%23&Refer=top) `128.6K 🔥`
 1. [你好检察官全员宣言](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%A3%80%E5%AF%9F%E5%AE%98%E5%85%A8%E5%91%98%E5%AE%A3%E8%A8%80%23&Refer=top) `127.8K 🔥`
-1. [乔一成不想拖累项南方](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E4%B8%8D%E6%83%B3%E6%8B%96%E7%B4%AF%E9%A1%B9%E5%8D%97%E6%96%B9%23&Refer=top) `98.6K 🔥`
+1. [乔一成不想拖累项南方](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E4%B8%8D%E6%83%B3%E6%8B%96%E7%B4%AF%E9%A1%B9%E5%8D%97%E6%96%B9%23&Refer=top) `119.9K 🔥`
+1. [广东包揽全运跳水男女团冠军](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E5%8C%85%E6%8F%BD%E5%85%A8%E8%BF%90%E8%B7%B3%E6%B0%B4%E7%94%B7%E5%A5%B3%E5%9B%A2%E5%86%A0%E5%86%9B%23&Refer=top) `72.3K 🔥`
 1. [国足首发](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B3%E9%A6%96%E5%8F%91&Refer=top) `55.7K 🔥`
 1. [世界杯预选赛](https://s.weibo.com/weibo?q=%E4%B8%96%E7%95%8C%E6%9D%AF%E9%A2%84%E9%80%89%E8%B5%9B&Refer=top) `53.7K 🔥`
 1. [陈锡文薇娅增补为农民丰收节推广大使](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%94%A1%E6%96%87%E8%96%87%E5%A8%85%E5%A2%9E%E8%A1%A5%E4%B8%BA%E5%86%9C%E6%B0%91%E4%B8%B0%E6%94%B6%E8%8A%82%E6%8E%A8%E5%B9%BF%E5%A4%A7%E4%BD%BF%23&Refer=top) `52.8K 🔥`
 1. [袁隆平诞辰91周年](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E8%AF%9E%E8%BE%B091%E5%91%A8%E5%B9%B4%23&Refer=top) `9.2K 🔥`
 
-数据更新于 2021-09-08 07:14:41
+数据更新于 2021-09-08 07:26:05
 
 <!-- END -->
 
