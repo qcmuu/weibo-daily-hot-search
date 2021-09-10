@@ -10,7 +10,7 @@
 1. [25岁姑娘穿汉服表演独竹漂](https://s.weibo.com/weibo?q=%2325%E5%B2%81%E5%A7%91%E5%A8%98%E7%A9%BF%E6%B1%89%E6%9C%8D%E8%A1%A8%E6%BC%94%E7%8B%AC%E7%AB%B9%E6%BC%82%23&Refer=top) `1.8M 🔥`
 1. [工资配不上这个办公室](https://s.weibo.com/weibo?q=%23%E5%B7%A5%E8%B5%84%E9%85%8D%E4%B8%8D%E4%B8%8A%E8%BF%99%E4%B8%AA%E5%8A%9E%E5%85%AC%E5%AE%A4%23&Refer=top) `1.7M 🔥`
 1. [大妈以为女婿被绑哭着要转骗子25万](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E4%BB%A5%E4%B8%BA%E5%A5%B3%E5%A9%BF%E8%A2%AB%E7%BB%91%E5%93%AD%E7%9D%80%E8%A6%81%E8%BD%AC%E9%AA%97%E5%AD%9025%E4%B8%87%23&Refer=top) `1.3M 🔥`
-1. [教师资格证](https://s.weibo.com/weibo?q=%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81&Refer=top) `1.1M 🔥`
+1. [教师资格证](https://s.weibo.com/weibo?q=%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81&Refer=top) `1.2M 🔥`
 1. [劳荣枝触目惊心的罪恶](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E8%A7%A6%E7%9B%AE%E6%83%8A%E5%BF%83%E7%9A%84%E7%BD%AA%E6%81%B6%23&Refer=top) `1.0M 🔥`
 1. [济南喜悦整形被打当事人发声](https://s.weibo.com/weibo?q=%23%E6%B5%8E%E5%8D%97%E5%96%9C%E6%82%A6%E6%95%B4%E5%BD%A2%E8%A2%AB%E6%89%93%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `903.1K 🔥`
 1. [教师节快乐](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%B8%88%E8%8A%82%E5%BF%AB%E4%B9%90%23&Refer=top) `833.7K 🔥`
@@ -94,12 +94,12 @@
 1. [劳荣枝一审死刑](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E4%B8%80%E5%AE%A1%E6%AD%BB%E5%88%91%23&Refer=top) `107.9K 🔥`
 1. [王嘉尔包办Drive舞台所有细节](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E5%8C%85%E5%8A%9EDrive%E8%88%9E%E5%8F%B0%E6%89%80%E6%9C%89%E7%BB%86%E8%8A%82%23&Refer=top) `106.1K 🔥`
 1. [赵立坚用6个对比痛批美国](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E7%94%A86%E4%B8%AA%E5%AF%B9%E6%AF%94%E7%97%9B%E6%89%B9%E7%BE%8E%E5%9B%BD%23&Refer=top) `98.2K 🔥`
-1. [教师迷惑行为图鉴](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%B8%88%E8%BF%B7%E6%83%91%E8%A1%8C%E4%B8%BA%E5%9B%BE%E9%89%B4%23&Refer=top) `94.9K 🔥`
+1. [教师迷惑行为图鉴](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%B8%88%E8%BF%B7%E6%83%91%E8%A1%8C%E4%B8%BA%E5%9B%BE%E9%89%B4%23&Refer=top) `98.1K 🔥`
 1. [今天是教师节](https://s.weibo.com/weibo?q=%E4%BB%8A%E5%A4%A9%E6%98%AF%E6%95%99%E5%B8%88%E8%8A%82&Refer=top) `74.1K 🔥`
 1. [我国发射成功中星9B卫星](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E5%8F%91%E5%B0%84%E6%88%90%E5%8A%9F%E4%B8%AD%E6%98%9F9B%E5%8D%AB%E6%98%9F%23&Refer=top) `55.7K 🔥`
 1. [电视剧光芒](https://s.weibo.com/weibo?q=%23%E7%94%B5%E8%A7%86%E5%89%A7%E5%85%89%E8%8A%92%23&Refer=top) `8.2K 🔥`
 
-数据更新于 2021-09-10 10:38:40
+数据更新于 2021-09-10 10:41:06
 
 <!-- END -->
 
