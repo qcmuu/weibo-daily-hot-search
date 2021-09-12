@@ -57,8 +57,9 @@
 1. [莆田疫情](https://s.weibo.com/weibo?q=%E8%8E%86%E7%94%B0%E7%96%AB%E6%83%85&Refer=top) `139.1K 🔥`
 1. [超强台风灿都袭来](https://s.weibo.com/weibo?q=%23%E8%B6%85%E5%BC%BA%E5%8F%B0%E9%A3%8E%E7%81%BF%E9%83%BD%E8%A2%AD%E6%9D%A5%23&Refer=top) `137.9K 🔥`
 1. [莆田累计32例确诊病例32例无症状](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E7%B4%AF%E8%AE%A132%E4%BE%8B%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B32%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%23&Refer=top) `134.8K 🔥`
+1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `49.8K 🔥`
 
-数据更新于 2021-09-13 01:42:34
+数据更新于 2021-09-13 01:47:55
 
 <!-- END -->
 
