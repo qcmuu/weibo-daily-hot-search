@@ -58,12 +58,13 @@
 1. [国家卫生健康委派工作组赴哈尔滨](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E5%8D%AB%E7%94%9F%E5%81%A5%E5%BA%B7%E5%A7%94%E6%B4%BE%E5%B7%A5%E4%BD%9C%E7%BB%84%E8%B5%B4%E5%93%88%E5%B0%94%E6%BB%A8%23&Refer=top) `101.0K 🔥`
 1. [王菲献唱湾区升明月主题曲](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%8F%B2%E7%8C%AE%E5%94%B1%E6%B9%BE%E5%8C%BA%E5%8D%87%E6%98%8E%E6%9C%88%E4%B8%BB%E9%A2%98%E6%9B%B2%23&Refer=top) `100.0K 🔥`
 1. [易烊千玺推介电影长津湖](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E6%8E%A8%E4%BB%8B%E7%94%B5%E5%BD%B1%E9%95%BF%E6%B4%A5%E6%B9%96%23&Refer=top) `99.9K 🔥`
-1. [晚会台下的赵丽颖](https://s.weibo.com/weibo?q=%23%E6%99%9A%E4%BC%9A%E5%8F%B0%E4%B8%8B%E7%9A%84%E8%B5%B5%E4%B8%BD%E9%A2%96%23&Refer=top) `NaN 🔥`
 1. [2021全国运动会](https://s.weibo.com/weibo?q=%232021%E5%85%A8%E5%9B%BD%E8%BF%90%E5%8A%A8%E4%BC%9A%23&Refer=top) `65.8K 🔥`
 1. [男子用瓜子袋屏蔽ETC3个月逃费22次](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%94%A8%E7%93%9C%E5%AD%90%E8%A2%8B%E5%B1%8F%E8%94%BDETC3%E4%B8%AA%E6%9C%88%E9%80%83%E8%B4%B922%E6%AC%A1%23&Refer=top) `58.7K 🔥`
+1. [晚会台下的赵丽颖](https://s.weibo.com/weibo?q=%23%E6%99%9A%E4%BC%9A%E5%8F%B0%E4%B8%8B%E7%9A%84%E8%B5%B5%E4%B8%BD%E9%A2%96%23&Refer=top) `NaN 🔥`
 1. [长津湖](https://s.weibo.com/weibo?q=%E9%95%BF%E6%B4%A5%E6%B9%96&Refer=top) `NaN 🔥`
+1. [美国将放宽国际航班旅客入境限制](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%B0%86%E6%94%BE%E5%AE%BD%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E6%97%85%E5%AE%A2%E5%85%A5%E5%A2%83%E9%99%90%E5%88%B6%23&Refer=top) `20.0K 🔥`
 
-数据更新于 2021-09-22 02:36:15
+数据更新于 2021-09-22 02:49:20
 
 <!-- END -->
 
